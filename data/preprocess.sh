@@ -1,7 +1,13 @@
 #!/bin/bash
 
-python preprocess_json.py --pos_tag_method spacy --output_filename idiom_annotations_0.5.tsv --frequency_threshold 0.5
+python preprocess_json.py --pos_tag_method spacy --output_filename idiom_keywords.tsv --frequency_threshold 0.5
 wait
 
+python translate_keywords.py --input_tsv idiom_keywords.tsv --output_tsv idiom_keywords_translated.tsv
+wait
 
-#python translate_keywords.py --input_tsv idiom_annotations.tsv --output_tsv idiom_annotations_translated.tsv
+for i in {0..1726}
+do
+   python translate_magpie.py --source corpus/magpie/${i}.tsv --pred ${i}_pred.txt --folder corpus
+   wait
+done
