@@ -1,112 +1,116 @@
 import sys
 import random
 import pickle
-import numpy as np
 from collections import defaultdict
 import torch
+from torch import LongTensor as LT
 sys.path.append('../data/')
 from data import extract_sentences
 
 
-sentences = extract_sentences(
-    range(0, 50), use_tqdm=True, data_folder="../data/magpie", store_attention=True)
+def get_attention(attention, from_indices, to_indices):
+    """Extract attention from ... to ... and average over heads."""
+    att = torch.index_select(attention, dim=-2, index=LT(from_indices))
+    att = torch.mean(torch.index_select(att, dim=-1, index=LT(to_indices)))
+    return att.item()
 
-# Collect all tokenised PIEs
-pies = []
-for sent in sentences:
-    pie_indices = sent.index_select(1, no_subtokens=False)
-    pie_indices = range(pie_indices[0], pie_indices[-1] + 1)
-    pie = [sent.tokenised_sentence.split()[x] for x in pie_indices]
-    pie_pos_tags = [sent.pos_tags[x] for x in pie_indices]
-    pies.append(" ".join([sent.tokenised_sentence.split()[x] for x in pie_indices]))
-pies = set(pies)
 
-a, b = [], []
+def collect_attention():
+    """Encoder self-attention for PIEs and non-PIEs."""
+    sentences = extract_sentences(
+        range(0, 1727), use_tqdm=True, data_folder="../data/magpie", store_attention=True)
 
-# Analyse the encoder's self-attention
-per_layer = dict()
-for layer in range(6):
-    avg_attention = defaultdict(list)
+    # Collect all tokenised PIEs
+    pies = []
     for sent in sentences:
         pie_indices = sent.index_select(1, no_subtokens=False)
-        pie_indices = torch.LongTensor(list(range(pie_indices[0], pie_indices[-1] + 1)))
-        pie = [sent.tokenised_sentence.split()[x] for x in pie_indices]
-        pie_pos_tags = [sent.pos_tags[x] for x in pie_indices]
-        before_context = list(range(pie_indices[0] - 10, pie_indices[0]))
-        after_context = list(range(pie_indices[-1] + 1, pie_indices[-1] + 1 + 10))
-        pie_context = before_context + after_context
-        pie_context = torch.LongTensor([
-            x for x in pie_context if 0 <= x < len(sent.tokenised_annotation) and \
-            sent.pos_tags[x] == "NOUN"])
-        a.append(len(pie_context))
-        for i in range(len(sent.pos_tags)):
-            non_pie = " ".join(sent.tokenised_sentence.split()[i:i + len(pie_indices)])
-            not_idiom = 1 not in sent.tokenised_annotation[i:i + len(pie_indices)]
-            equal_pos_tags = pie_pos_tags == sent.pos_tags[i:i + len(pie_indices)]
-            if not_idiom and equal_pos_tags and non_pie not in pies:
-                att = torch.index_select(sent.attention[layer], dim=-2, index=pie_indices)
-                att = torch.mean(torch.index_select(att, dim=-1, index=pie_context))
-                avg_attention["attention, pie"].append(att.item())
+        pie_indices = range(pie_indices[0], pie_indices[-1] + 1)
+        pies.append(" ".join([sent.tokenised_sentence.split()[x] for x in pie_indices]))
+    pies = set(pies)
 
-                before_context = list(range(i - 10, i))
-                after_context = list(range(i + len(pie_indices), i + len(pie_indices) + 10))
-                non_pie_context = before_context + after_context
-                non_pie_context = torch.LongTensor([x for x in non_pie_context if 0 <= x < len(sent.tokenised_annotation) and sent.pos_tags[x] == "NOUN"])
-                non_pie_indices = torch.LongTensor(list(range(i, i + len(pie_indices))))
-                if len(non_pie_context) > 4 and random.random() < 0.5:
-                    continue
-                b.append(len(non_pie_context))
+    # Analyse the encoder's self-attention
+    per_layer = dict()
+    for layer in range(6):
+        avg_attention = defaultdict(list)
+        for sent in sentences:
+            pie_indices = sent.index_select(1, no_subtokens=False)
+            pie_indices = list(range(pie_indices[0], pie_indices[-1] + 1))
+            pie_pos_tags = [sent.pos_tags[x] for x in pie_indices]
+            before_context = list(range(pie_indices[0] - 10, pie_indices[0]))
+            after_context = list(range(pie_indices[-1] + 1, pie_indices[-1] + 1 + 10))
+            pie_context = [
+                x for x in before_context + after_context \
+                if 0 <= x < len(sent.tokenised_annotation) and sent.pos_tags[x] == "NOUN"]
 
-                att = torch.index_select(sent.attention[layer], dim=-2, index=non_pie_indices)
-                att = torch.mean(torch.index_select(att, dim=-1, index=non_pie_context))
-                avg_attention["attention, non_pie"].append(att.item())
+            for i in range(len(sent.pos_tags)):
+                non_pie = " ".join(sent.tokenised_sentence.split()[i:i + len(pie_indices)])
+                not_idiom = 1 not in sent.tokenised_annotation[i:i + len(pie_indices)]
+                equal_pos_tags = pie_pos_tags == sent.pos_tags[i:i + len(pie_indices)]
 
-                break
-    per_layer[layer] = avg_attention
-pickle.dump(per_layer, open("data/attention_wsd_comparison.pickle", 'wb'))
+                if not_idiom and equal_pos_tags and non_pie not in pies:
+                    avg_attention["attention, pie"].append(
+                        get_attention(sent.attention[layer], pie_indices, pie_context))
 
-print(np.mean(a), np.mean(b))
-# Analyse the cross-attention
-per_layer_cross_attention = dict()
-sentences = extract_sentences(
-    range(0, 50), use_tqdm=True, data_folder="../data/magpie", store_cross_attention=True)
-for layer in range(6):
-    avg_attention = defaultdict(list)
+                    before_context = list(range(i - 10, i))
+                    after_context = list(range(i + len(pie_indices), i + len(pie_indices) + 10))
+                    non_pie_context = [
+                        x for x in before_context + after_context if 0 <= x < \
+                        len(sent.tokenised_annotation) and sent.pos_tags[x] == "NOUN"]
+                    non_pie_indices = list(range(i, i + len(pie_indices)))
+                    avg_attention["attention, non_pie"].append(
+                        get_attention(sent.attention[layer], non_pie_indices, non_pie_context))
+                    break
+        per_layer[layer] = avg_attention
+    pickle.dump(per_layer, open("data/attention_wsd_comparison.pickle", 'wb'))
 
-    for sent in sentences:
-        eos_index = sent.translation.index("</s>")
-        translation = sent.translation[:eos_index + 1]
-        align_src2tgt = defaultdict(list)
-        for i in range(eos_index + 1):
-            attention_last_layer = torch.mean(sent.cross_attention[-1, :, i, :-1], dim=0)
-            index = torch.argmax(attention_last_layer, dim=-1)
-            align_src2tgt[index.item()].append(i)
 
-        pie_indices = sent.index_select(1, tags=["NOUN"])
-        if not pie_indices:
-            continue
-        if len(pie_indices) > 1:
-            pie_indices = random.sample(pie_indices, 1)
-        tgt_indices = align_src2tgt[pie_indices[0]]
-        if not tgt_indices:
-            continue
+def collect_cross_attention():
+    """Cross-attention PIE src to PIE tgt and non-PIE src to non-PIE tgt."""
+    # Analyse the cross-attention
+    per_layer_cross_attention = dict()
+    sentences = extract_sentences(
+        range(0, 1727), use_tqdm=True,
+        data_folder="../data/magpie", store_cross_attention=True)
+    for layer in range(6):
+        avg_attention = defaultdict(list)
+        for sent in sentences:
 
-        att = torch.index_select(sent.cross_attention[layer], dim=-2, index=torch.LongTensor(tgt_indices))
-        att = torch.mean(torch.index_select(att, dim=-1, index=torch.LongTensor(pie_indices)))
-        avg_attention["cross-attention, pie"].append(att.item())
+            # Get the sentence alignment
+            align_src2tgt = defaultdict(list)
+            for i in range(sent.translation.index("</s>") + 1):
+                last_layer = torch.mean(sent.cross_attention[-1, :, i, :-1], dim=0)
+                index = torch.argmax(last_layer, dim=-1)
+                align_src2tgt[index.item()].append(i)
 
-        pie_indices = sent.index_select(0, tags=["NOUN"])
-        if not pie_indices:
-            continue
-        if len(pie_indices) > 1:
-            pie_indices = random.sample(pie_indices, 1)
-        tgt_indices = align_src2tgt[pie_indices[0]]
-        if not tgt_indices:
-            continue
-        att = torch.index_select(sent.cross_attention[layer], dim=-2, index=torch.LongTensor(tgt_indices))
-        att = torch.mean(torch.index_select(att, dim=-1, index=torch.LongTensor(pie_indices)))
-        avg_attention["cross-attention, non_pie"].append(att.item())
+            # Get the PIE and non-PIE indices
+            pie_src = sent.index_select(1, tags=["NOUN"])
+            non_pie_src = sent.index_select(0, tags=["NOUN"])
+            if not pie_src or not non_pie_src:
+                continue
 
-    per_layer_cross_attention[layer] = avg_attention
-pickle.dump(per_layer_cross_attention,
-            open("data/cross_attention_wsd_comparison.pickle", 'wb'))
+            # Find tgt indices that align to the (non-)PIE
+            pie_tgt_indices = align_src2tgt[pie_src[0]]
+            non_pie_tgt = align_src2tgt[non_pie_src[0]]
+
+            # Sample 1 to measure 1 - 1 attention
+            if len(pie_src) > 1:
+                pie_src = random.sample(pie_src, 1)
+            if len(non_pie_src) > 1:
+                non_pie_src = random.sample(non_pie_src, 1)
+
+            if not pie_tgt_indices or not non_pie_tgt:
+                continue
+
+            avg_attention["cross-attention, pie"].append(
+                get_attention(sent.cross_attention[layer], pie_tgt_indices, pie_src))
+            avg_attention["cross-attention, non_pie"].append(
+                get_attention(sent.cross_attention[layer], non_pie_tgt, non_pie_src))
+
+        per_layer_cross_attention[layer] = avg_attention
+    pickle.dump(per_layer_cross_attention,
+                open("data/cross_attention_wsd_comparison.pickle", 'wb'))
+
+
+if __name__ == "__main__":
+    collect_attention()
+    collect_cross_attention()
