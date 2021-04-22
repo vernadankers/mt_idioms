@@ -51,7 +51,7 @@ for layer in range(6):
                 before_context = list(range(i - 10, i))
                 after_context = list(range(i + len(pie_indices), i + len(pie_indices) + 10))
                 non_pie_context = before_context + after_context
-                non_pie_context = torch.LongTensor([x for x in non_pie_context if x >= 0 and x < len(sent.tokenised_annotation) and sent.pos_tags[x] == "NOUN"])
+                non_pie_context = torch.LongTensor([x for x in non_pie_context if 0 <= x < len(sent.tokenised_annotation) and sent.pos_tags[x] == "NOUN"])
                 non_pie_indices = torch.LongTensor(list(range(i, i + len(pie_indices))))
                 if len(non_pie_context) > 4 and random.random() < 0.5:
                     continue
@@ -108,4 +108,5 @@ for layer in range(6):
         avg_attention["cross-attention, non_pie"].append(att.item())
 
     per_layer_cross_attention[layer] = avg_attention
-pickle.dump(per_layer_cross_attention, open("data/cross_attention_wsd_comparison.pickle", 'wb'))
+pickle.dump(per_layer_cross_attention,
+            open("data/cross_attention_wsd_comparison.pickle", 'wb'))
