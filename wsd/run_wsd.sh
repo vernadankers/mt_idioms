@@ -3,7 +3,8 @@
 python preprocess.py
 wait
 
-for lang in en nl 
+# For German & Dutch
+for lang in de nl
 do
     python translate_wsd.py --source data/os18_0-1000_${lang}.tsv --pred data/os18_0-1000_${lang}_pred.txt --lang $lang
     wait
