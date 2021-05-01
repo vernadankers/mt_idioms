@@ -34,7 +34,6 @@ if __name__ == "__main__":
     parser.add_argument("--n", type=int, default=0)
     parser.add_argument("--m", type=int, default=1728)
     parser.add_argument("--k", type=int, default=1)
-    parser.add_argument("--l0", action="store_true")
     parser.add_argument("--average_over_pie", action="store_true")
     args = parser.parse_args()
     logging.basicConfig(level=logging.INFO)
@@ -83,8 +82,6 @@ if __name__ == "__main__":
                     epochs=5,
                     layer=layer,
                     batch_size=16,
-                    l0=args.l0,
-                    lambd=0.0075,
                     average_over_pie=args.average_over_pie)
                 trainer.init_model()
                 logging.info(f"FOLD {fold}")

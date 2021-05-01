@@ -11,14 +11,10 @@ import logging
 
 
 class Probe(torch.nn.Module):
-    def __init__(self, in_features, l0=False):
+    def __init__(self, in_features):
         super().__init__()
-        self.l0 = l0
         self.dropout = torch.nn.Dropout(0.1)
-        if l0:
-            self.weights1 = HardConcreteLinear(in_features, 1)
-        else:
-            self.weights1 = torch.nn.Linear(in_features, 1)
+        self.weights1 = torch.nn.Linear(in_features, 1)
 
     def forward(self, input_vec):
         input_vec = self.dropout(input_vec)
@@ -27,7 +23,7 @@ class Probe(torch.nn.Module):
 
 
 class Trainer():
-    def __init__(self, lr, epochs, layer, batch_size, l0, lambd, average_over_pie=True):
+    def __init__(self, lr, epochs, layer, batch_size, average_over_pie=True):
         self.epochs = epochs
         self.l0 = l0
         self.layer = layer
@@ -38,7 +34,7 @@ class Trainer():
         self.average_over_pie = average_over_pie
 
     def init_model(self):
-        self.model = Probe(512, self.l0)
+        self.model = Probe(512)
         if torch.cuda.is_available():
             self.model.cuda()
         self.optimizer = optim.Adam(self.model.parameters(), lr=self.lr)
@@ -68,8 +64,7 @@ class Trainer():
                 preds = self.model(inputs.cuda()).cpu()
             else:
                 preds = self.model(inputs)
-            loss = loss_fn(preds, targets) + \
-                (0 if not self.l0 else self.lambd * self.model.weights1.mask.l0_norm())
+            loss = loss_fn(preds, targets)
             loss.backward()
             self.optimizer.step()
             losses.append(loss.detach())
@@ -129,5 +124,4 @@ class Trainer():
             inputs = torch.stack(inputs)
             targets = torch.FloatTensor(targets)
             data.append((inputs, targets))
-
         return data
