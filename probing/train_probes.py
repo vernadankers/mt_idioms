@@ -78,7 +78,7 @@ if __name__ == "__main__":
             for fold in range(5):
                 # Initialise the probing classifier and training functionalities
                 trainer = Trainer(
-                    lr=0.005,
+                    lr=0.0005,
                     epochs=5,
                     layer=layer,
                     batch_size=16,
