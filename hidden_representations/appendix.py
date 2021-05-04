@@ -39,14 +39,14 @@ def compute_cosine_sim(data1, data2, cca_results, cca=True):
     return torch.mean(cos).item()
 
 # Load all hidden representations of idioms
-samples3 = extract_sentences(range(0, 250), use_tqdm=True, store_hidden_states=True, data_folder="../data/magpie")
-samples2 = extract_sentences(range(250, 500), use_tqdm=True, store_hidden_states=True, data_folder="../data/magpie")
+samples3 = extract_sentences(range(1000, 1727), use_tqdm=True, store_hidden_states=True, data_folder="../data/magpie")
+samples2 = extract_sentences(range(0, 1000), use_tqdm=True, store_hidden_states=True, data_folder="../data/magpie")
 
 vocab = []
 for s in samples2:
     vocab.extend(s.tokenised_sentence.split())
 vocab = Counter(vocab)
-vocab = list(set(x for x in vocab if vocab[x] >= 16 and vocab[x] <= 400))
+vocab = list(set(x for x in vocab if vocab[x] >= 50 and vocab[x] <= 75))
 print(len(vocab))
 
 
