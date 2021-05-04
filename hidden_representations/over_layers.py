@@ -42,13 +42,13 @@ def compute_cosine_sim(data1, data2, cca_results):
 
 # Load all hidden representations of idioms
 samples_for_cca = extract_sentences(
-    range(0, 50), use_tqdm=True, data_folder="../data/magpie",
+    range(0, 1727), use_tqdm=True, data_folder="../data/magpie",
     store_hidden_states=True, get_verb_idioms=True)
 logging.info(len(samples_for_cca))
 sents1 = [s.sentence for s in samples_for_cca]
 
 samples_to_analyse = extract_sentences(
-    range(0, 50), use_tqdm=True, data_folder="../data/magpie",
+    range(0, 1727), use_tqdm=True, data_folder="../data/magpie",
     store_hidden_states=True)
 logging.info(len(samples_to_analyse))
 sents2 = [s.sentence for s in samples_to_analyse]
@@ -69,7 +69,7 @@ for i in range(1, 7):
     layer1 = torch.FloatTensor(layer1).transpose(0, 1).numpy()
     layer2 = torch.FloatTensor(layer2).transpose(0, 1).numpy()
     cca = cca_core.get_cca_similarity(
-        layer1[:, :50000], layer2[:, :50000], epsilon=1e-6)
+        layer1[:, :100000], layer2[:, :100000], epsilon=1e-6)
     cca_results.append(cca)
 
 for TAGS in [["NOUN"]]:
@@ -94,7 +94,7 @@ for TAGS in [["NOUN"]]:
         for i in range(1, 7):
             indices = list(range(len(freq_subsets[i][category])))
             random.shuffle(indices)
-            indices = indices[:50000]
+            indices = indices[:100000]
             layer1 = torch.stack(freq_subsets[i-1][category], dim=0)[indices].transpose(0, 1).numpy()
             layer2 = torch.stack(freq_subsets[i][category], dim=0)[indices].transpose(0, 1).numpy()
             coefs.append(compute_cosine_sim(layer1, layer2, cca_results[i - 1]))
@@ -124,7 +124,7 @@ for TAGS in [["NOUN"]]:
         for i in range(1, 7):
             indices = list(range(len(freq_subsets[i][category])))
             random.shuffle(indices)
-            indices = indices[:50000]
+            indices = indices[:100000]
             layer1 = torch.stack(freq_subsets[i-1][category], dim=0)[indices].transpose(0, 1).numpy()
             layer2 = torch.stack(freq_subsets[i][category], dim=0)[indices].transpose(0, 1).numpy()
             coefs.append(compute_cosine_sim(layer1, layer2, cca_results[i - 1]))
