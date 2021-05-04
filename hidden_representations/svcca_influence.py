@@ -3,16 +3,17 @@ import argparse
 import random
 from collections import defaultdict
 import logging
+import pickle
+import numpy as np
 from tqdm import tqdm
 import torch
-import numpy as np
 from cca_core import get_cca_similarity
 sys.path.append('../data/')
 from data import extract_sentences
 
 
 
-def get_cca_results(layer, samples, samples_masked, label, tags, neighbourhood):
+def get_cca_results(layer, samples, samples_masked, label, neighbourhood):
     data1 = []
     data2 = []
 
@@ -22,7 +23,7 @@ def get_cca_results(layer, samples, samples_masked, label, tags, neighbourhood):
     samples_masked = [samples_masked[i] for i in indices]
 
     for s, s_masked in zip(samples, samples_masked):
-        indices = s_masked.index_select(0, neighbours_only=True, tags=tags,
+        indices = s_masked.index_select(0, neighbours_only=True,
             neighbourhood=neighbourhood, context_context=True, layer=layer)
         if not indices:
             continue
@@ -44,7 +45,7 @@ def get_cca_results(layer, samples, samples_masked, label, tags, neighbourhood):
     return get_cca_similarity(data1, data2, epsilon=1e-6)
 
 
-def collect_data_per_layer(layer, samples, samples_masked, label, tags,
+def collect_data_per_layer(layer, samples, samples_masked, label,
                            neighbours_only, neighbourhood, context_context):
     data1 = defaultdict(list)
     data2 = defaultdict(list)
@@ -57,7 +58,7 @@ def collect_data_per_layer(layer, samples, samples_masked, label, tags,
 
         # Select the tokens of interest
         indices = s_masked.index_select(
-            label, tags=tags, neighbours_only=neighbours_only,
+            label, neighbours_only=neighbours_only,
             neighbourhood=neighbourhood, context_context=context_context, layer=layer)
 
         if not indices or not torch.any(s.hidden_states[1:] != s_masked.hidden_states[1:]):
@@ -98,86 +99,76 @@ def compute_cosine_sim(data1, data2, cca_results):
     data1 = np.dot(np.dot(P.T, np.dot(P, cca_results["full_invsqrt_xx"])), cacts1)
     P = cca_results["full_coef_y"]
     data2 = np.dot(np.dot(P.T, np.dot(P, cca_results["full_invsqrt_yy"])), cacts2)
-    cos = torch.nn.CosineSimilarity(dim=1, eps=1e-6)
+    cos = torch.nn.CosineSimilarity(dim=0, eps=1e-6)
     cos = cos(torch.FloatTensor(data1), torch.FloatTensor(data2))
     return torch.mean(cos).item()
 
 
 if __name__ == "__main__":
     parser = argparse.ArgumentParser()
-    parser.add_argument("--tags", nargs='+')
     parser.add_argument("--neighbours_only", action="store_true")
     parser.add_argument("--neighbourhood", type=int, default=10)
     parser.add_argument("--n_samples", type=int, default=5000)
     parser.add_argument("--n", type=int, default=0)
     parser.add_argument("--m", type=int, default=1728)
     parser.add_argument("--k", type=int, default=1)
-    parser.add_argument("--average", action="store_true")
     parser.add_argument("--label", type=int, default=0)
     parser.add_argument("--context_context", action="store_true")
     parser.add_argument("--masked_folder", type=str,
                         default="../data/magpie/masked_idiom")
+    parser.add_argument("--save_file", type=str, default="svcca.pickle")
     args = parser.parse_args()
 
     # Load sentences from pickled files with hidden representations
     logging.basicConfig(level="INFO")
     samples, samples_masked = [], []
     for i in tqdm(list(range(args.n, args.m, args.k))):
-        a = extract_sentences(
+        without_mask = extract_sentences(
             [i], use_tqdm=False, data_folder="../data/magpie/masked_regular",
             influence_setup=True)
-        b = extract_sentences(
+        with_mask = extract_sentences(
             [i], use_tqdm=False, data_folder=args.masked_folder,
             influence_setup=True)
-        if len(a) == len(b):
-            samples.extend(a)
-            samples_masked.extend(b)
+        if len(without_mask) == len(with_mask):
+            samples.extend(without_mask)
+            samples_masked.extend(with_mask)
 
+    # Load the sentences with verb idioms to measure the CCA results on
     samples_cca, samples_cca_masked = [], []
     for i in tqdm(list(range(args.n, args.m, args.k))):
-        a = extract_sentences(
+        without_mask = extract_sentences(
             [i], use_tqdm=False, data_folder="../data/magpie/masked_regular",
             influence_setup=True, get_verb_idioms=True)
-        b = extract_sentences(
+        with_mask = extract_sentences(
             [i], use_tqdm=False, data_folder="../data/magpie/masked_context",
             influence_setup=True, get_verb_idioms=True)
 
-        if len(a) == len(b):
-            samples_cca.extend(a)
-            samples_cca_masked.extend(b)
+        if len(without_mask) == len(without_mask):
+            samples_cca.extend(without_mask)
+            samples_cca_masked.extend(with_mask)
 
-    for tags in [[]]:
-        svcca_similarities = defaultdict(list)
+    svcca_similarities = defaultdict(list)
+    for layer in range(0, 6):
+        logging.info(f"Performing SVCCA for layer {layer}.")
+        vectors, vectors_masked = collect_data_per_layer(
+            layer, samples, samples_masked, args.label,
+            args.neighbours_only, args.neighbourhood, args.context_context)
 
-        for layer in range(0, 6):
-            logging.info(f"Performing SVCCA for layer {layer}.")
-            vectors, vectors_masked = collect_data_per_layer(
-                layer, samples, samples_masked, args.label, tags,
-                args.neighbours_only, args.neighbourhood, args.context_context)
+        cca_results = get_cca_results(
+            layer, samples_cca, samples_cca_masked, args.label, args.neighbourhood)
 
-            cca_results = get_cca_results(
-                layer, samples_cca, samples_cca_masked, args.label, tags, args.neighbourhood)
+        # Per subset label, compute similarities
+        for subset_name in vectors:
+            vectors[subset_name] = np.stack(vectors[subset_name], axis=1)
+            vectors_masked[subset_name] = np.stack(vectors_masked[subset_name], axis=1)
 
-            # Per subset label, compute similarities
-            for x in vectors:
-                vectors[x] = torch.FloatTensor(np.stack(vectors[x], axis=0))
-                vectors_masked[x] = torch.FloatTensor(np.stack(vectors_masked[x], axis=0))
+            # Report how many samples are in the different subsets
+            if layer == 0:
+                logging.info(f"{subset_name}, {vectors[subset_name].shape}")
 
-                # Report how many samples are in the different subsets
-                if layer == 1:
-                    logging.info(f"{x}, {vectors[x].shape}, {vectors_masked[x].shape}")
+            # Two-step SVCCA
+            two_step_svcca = compute_cosine_sim(
+                vectors[subset_name], vectors_masked[subset_name], cca_results)
+            svcca_similarities[subset_name].append(two_step_svcca)
 
-                # Two-step SVCCA
-                two_step_svcca = compute_cosine_sim(
-                    vectors[x].transpose(0, 1).numpy(),
-                    vectors_masked[x].transpose(0, 1).numpy(), cca_results)
-                svcca_similarities[x].append(two_step_svcca)
-
-        logging.info("----------------------")
-        logging.info("Two step SVCCA Similarity")
-        for x in svcca_similarities:
-            if isinstance(x, tuple):
-                name = "_".join(x).replace("-", "_")
-            else:
-                name = x.replace("-", "_")
-            logging.info(f"{name} = [" + ','.join([str(round(z, 5)) for z in svcca_similarities[x]]) + '],')
+    pickle.dump(svcca_similarities, open(args.save_file, 'wb'))
