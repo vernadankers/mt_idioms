@@ -146,7 +146,7 @@ class MarianAttention(nn.Module):
         num_heads: int,
         dropout: float = 0.0,
         is_decoder: bool = False,
-        bias: bool = True,
+        bias: bool = True
     ):
         super().__init__()
         self.embed_dim = embed_dim
@@ -174,6 +174,9 @@ class MarianAttention(nn.Module):
         past_key_value: Optional[Tuple[torch.Tensor]] = None,
         attention_mask: Optional[torch.Tensor] = None,
         output_attentions: bool = False,
+        custom_attention_weights=None,
+        attention_projection_matrix=None,
+        attention_projection_indices=None,
     ) -> Tuple[torch.Tensor, Optional[torch.Tensor], Optional[Tuple[torch.Tensor]]]:
         """Input shape: Batch x Time x Channel"""
 
@@ -184,6 +187,15 @@ class MarianAttention(nn.Module):
 
         # get query proj
         query_states = self.q_proj(hidden_states) * self.scaling
+
+        if attention_projection_matrix is not None:
+            for i in attention_projection_indices:
+                query_states[:, i, :] = \
+                    torch.matmul(
+                        attention_projection_matrix,
+                        query_states[:, i, :].transpose(0, 1)).transpose(0, 1)
+
+        query_states2 = query_states.detach()
         # get key, value proj
         if is_cross_attention and past_key_value is not None:
             # reuse k,v, cross_attentions
@@ -238,7 +250,10 @@ class MarianAttention(nn.Module):
             attn_weights = attn_weights.view(bsz, self.num_heads, tgt_len, src_len) + attention_mask
             attn_weights = attn_weights.view(bsz * self.num_heads, tgt_len, src_len)
 
-        attn_weights = F.softmax(attn_weights, dim=-1)
+        if custom_attention_weights is None:
+            attn_weights = F.softmax(attn_weights, dim=-1)
+        else:
+            attn_weights = custom_attention_weights
 
         if output_attentions:
             # this operation is a bit akward, but it's required to
@@ -268,7 +283,7 @@ class MarianAttention(nn.Module):
 
         attn_output = self.out_proj(attn_output)
 
-        return attn_output, attn_weights_reshaped, past_key_value
+        return attn_output, (attn_weights_reshaped, query_states2), past_key_value
 
 
 # Copied from transformers.models.bart.modeling_bart.BartEncoderLayer with Bart->Marian
@@ -289,7 +304,10 @@ class MarianEncoderLayer(nn.Module):
         self.fc2 = nn.Linear(config.encoder_ffn_dim, self.embed_dim)
         self.final_layer_norm = nn.LayerNorm(self.embed_dim)
 
-    def forward(self, hidden_states: torch.Tensor, attention_mask: torch.Tensor, output_attentions: bool = False):
+    def forward(self, hidden_states: torch.Tensor, attention_mask: torch.Tensor, output_attentions: bool = False,
+            custom_attention_weights=None,
+            attention_projection_matrix=None,
+            attention_projection_indices=None):
         """
         Args:
             hidden_states (:obj:`torch.FloatTensor`): input to the layer of shape `(seq_len, batch, embed_dim)`
@@ -301,7 +319,10 @@ class MarianEncoderLayer(nn.Module):
         """
         residual = hidden_states
         hidden_states, attn_weights, _ = self.self_attn(
-            hidden_states=hidden_states, attention_mask=attention_mask, output_attentions=output_attentions
+            hidden_states=hidden_states, attention_mask=attention_mask, output_attentions=output_attentions,
+            custom_attention_weights=custom_attention_weights,
+            attention_projection_matrix=attention_projection_matrix,
+            attention_projection_indices=attention_projection_indices
         )
         hidden_states = F.dropout(hidden_states, p=self.dropout, training=self.training)
         hidden_states = residual + hidden_states
@@ -617,9 +638,13 @@ class MarianEncoder(MarianPreTrainedModel):
         output_attentions=None,
         output_hidden_states=None,
         return_dict=None,
-        attention_mask2=None,
-        from_layer=None,
-        erasure=None
+        attention_from_layer=None,
+        custom_attention_mask=None,
+        custom_attention_weights=[None]*6,
+        hidden_projection_matrix=[None]*7,
+        hidden_projection_indices=None,
+        attention_projection_matrix=[None]*7,
+        attention_projection_indices=None
     ):
         r"""
         Args:
@@ -677,21 +702,33 @@ class MarianEncoder(MarianPreTrainedModel):
         hidden_states = inputs_embeds + embed_pos
         hidden_states = F.dropout(hidden_states, p=self.dropout, training=self.training)
 
+        for i, matrix in enumerate(hidden_projection_matrix):
+            if matrix is not None:
+                assert hidden_projection_indices is not None, "Projection indices absent."
+
+        if hidden_projection_matrix[0] is not None:
+            for i in hidden_projection_indices:
+                hidden_states[:, i, :] = \
+                torch.matmul(
+                    hidden_projection_matrix[0],
+                    hidden_states[:, i, :].transpose(0, 1)).transpose(0, 1)
+
         # expand attention_mask
         if attention_mask is not None:
             # [bsz, seq_len] -> [bsz, 1, tgt_seq_len, src_seq_len]
             attention_mask = _expand_mask(attention_mask, inputs_embeds.dtype)
 
-        if attention_mask2 is not None:
+        if custom_attention_mask is not None:
             # [bsz, seq_len] -> [bsz, 1, tgt_seq_len, src_seq_len]
-            attention_mask2 = _expand_mask(attention_mask2, inputs_embeds.dtype)
+            custom_attention_mask = _expand_mask(custom_attention_mask, inputs_embeds.dtype)
 
         encoder_states = () if output_hidden_states else None
         all_attentions = () if output_attentions else None
         for custom_counter, encoder_layer in enumerate(self.layers):
 
-            if from_layer is not None and custom_counter == from_layer:
-                attention_mask_tmp = attention_mask2
+            if attention_from_layer is not None and custom_counter == attention_from_layer and \
+               custom_attention_mask is not None:
+                attention_mask_tmp = custom_attention_mask
             else:
                 attention_mask_tmp = attention_mask
 
@@ -716,12 +753,20 @@ class MarianEncoder(MarianPreTrainedModel):
                         attention_mask_tmp,
                     )
                 else:
-                    layer_outputs = encoder_layer(hidden_states, attention_mask_tmp, output_attentions=output_attentions)
+                    layer_outputs = encoder_layer(
+                        hidden_states, attention_mask_tmp,
+                        output_attentions=output_attentions,
+                        custom_attention_weights=custom_attention_weights[custom_counter],
+                        attention_projection_matrix=attention_projection_matrix[custom_counter + 1],
+                        attention_projection_indices=attention_projection_indices)
 
                 hidden_states = layer_outputs[0]
-            if erasure is not None and custom_counter in erasure:
-                for batch_num, token_num, dimension in erasure[custom_counter]:
-                    hidden_states[batch_num, token_num, dimension] = 0
+                if hidden_projection_matrix[custom_counter + 1] is not None:
+                    for i in hidden_projection_indices:
+                        hidden_states[:, i, :] = \
+                            torch.matmul(
+                                hidden_projection_matrix[custom_counter + 1],
+                                hidden_states[:, i, :].transpose(0, 1)).transpose(0, 1)
 
             if output_attentions:
                 all_attentions = all_attentions + (layer_outputs[1],)
@@ -1001,9 +1046,13 @@ class MarianModel(MarianPreTrainedModel):
         output_attentions=None,
         output_hidden_states=None,
         return_dict=None,
-        attention_mask2=None,
-        from_layer=None,
-        erasure=None
+        attention_from_layer=None,
+        custom_attention_mask=None,
+        custom_attention_weights=[None]*6,
+        hidden_projection_matrix=[None]*7,
+        hidden_projection_indices=None,
+        attention_projection_matrix=[None]*7,
+        attention_projection_indices=None
     ):
         r"""
         Returns:
@@ -1037,9 +1086,13 @@ class MarianModel(MarianPreTrainedModel):
                 output_attentions=output_attentions,
                 output_hidden_states=output_hidden_states,
                 return_dict=return_dict,
-                attention_mask2=attention_mask2,
-                from_layer=from_layer,
-                erasure=erasure
+                attention_from_layer=attention_from_layer,
+                custom_attention_mask=custom_attention_mask,
+                custom_attention_weights=custom_attention_weights,
+                hidden_projection_matrix=hidden_projection_matrix,
+                hidden_projection_indices=hidden_projection_indices,
+                attention_projection_matrix=attention_projection_matrix,
+                attention_projection_indices=attention_projection_indices
             )
         # If the user passed a tuple for encoder_outputs, we wrap it in a BaseModelOutput when return_dict=True
         elif return_dict and not isinstance(encoder_outputs, BaseModelOutput):
@@ -1148,9 +1201,13 @@ class MarianMTModel(MarianPreTrainedModel):
         output_attentions=None,
         output_hidden_states=None,
         return_dict=None,
-        attention_mask2=None,
-        from_layer=None,
-        erasure=None
+        attention_from_layer=None,
+        custom_attention_mask=None,
+        custom_attention_weights=[None]*6,
+        hidden_projection_matrix=[None]*7,
+        hidden_projection_indices=None,
+        attention_projection_matrix=[None]*7,
+        attention_projection_indices=None
     ):
         r"""
         labels (:obj:`torch.LongTensor` of shape :obj:`(batch_size, sequence_length)`, `optional`):
@@ -1182,9 +1239,13 @@ class MarianMTModel(MarianPreTrainedModel):
             output_attentions=output_attentions,
             output_hidden_states=output_hidden_states,
             return_dict=return_dict,
-            attention_mask2=attention_mask2,
-            from_layer=from_layer,
-            erasure=erasure
+            attention_from_layer=attention_from_layer,
+            custom_attention_mask=custom_attention_mask,
+            custom_attention_weights=custom_attention_weights,
+            hidden_projection_matrix=hidden_projection_matrix,
+            hidden_projection_indices=hidden_projection_indices,
+            attention_projection_matrix=attention_projection_matrix,
+            attention_projection_indices=attention_projection_indices
         )
         lm_logits = self.lm_head(outputs[0]) + self.final_logits_bias
 
