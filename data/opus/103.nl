@@ -1,0 +1,1 @@
+Ten slotte was er dan iemand met genoeg moed om „de kat de bel aan te binden, ” hetgeen in dit geval inhield de op prooi beluste, gevaarlijke, op een kat gelijkende pauselijke hiërarchie aan de schandpaal te zetten.

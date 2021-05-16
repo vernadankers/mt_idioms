@@ -1,0 +1,1 @@
+Het is = een angst dat moment slechts een handvol van mishandelde koffers rond zijn trundling, die geen van alle zijn van jou. maar stel je voor, als je haast om het onderzoek bureau om uw milt ventileren krijg je een tekst op je telefoon te zeggen: "Ik ben op carrousel 5, komen en pick me up. "

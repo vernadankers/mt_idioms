@@ -1,0 +1,1 @@
+De Gemeenschap brengt de landbouw van de regen in de drup. De boeren krijgen de volle mep van de verschillen de hervormingen van het GLB, van set aside, prijsdalingen en GATT-akkoorden, en wie er nog overblijft wordt dan geholpen met tijdelijke steun in rampgebieden.

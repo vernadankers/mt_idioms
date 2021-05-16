@@ -1,0 +1,4 @@
+Het komt met bakken uit de lucht.
+Het gaat zo stortregenen.
+Heeft het wel eens kikkers, vissen of andere rare dingen geregend? • KidExplorers • ChristianAnswers.Net/dutch Heeft het wel eens kikkers, vissen of andere rare dingen geregend? 1555 gravure van regent vissen (Magnus) Bekijk deze bladzijde in het: Engels (english) Het zal wel nooit honden en katten regenen, maar vissen, schelpen en kikkers zijn wel eens uit de lucht komen vallen bij speciale gelegenheden.
+De volgende dag werd de reis vervolgd over de Friese meren richting Bergum. De volgende dagen stonden Groningen en Delfzijl op het programma. Tijdens de vaart naar deze laatste plaats begon het te hozen. Helaas zou dit tekenend worden voor de reis. 1985 zou in Europa bekend worden als één van de natste zomers ooit. Na Delfzijl vertrok de Orm uit de Nederlandse wateren. menu terug - verder [ laatst gewijzigd : 11-11-2018 ] © Copyright H.A. Houben
