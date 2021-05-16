@@ -28,3 +28,5 @@ Other non-standard libraries are `spacy==3.0.1` with the `"en_core_web_sm"` mode
 - Appendix C: See the `wsd` folder.
 
 This repo uses the [commit message template for humans](https://github.com/Kaleidophon/commit-template-for-humans).
+
+<object data="attention_flow.pdf" type="application/pdf" width="400px" height="400px"></object>
