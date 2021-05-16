@@ -4,6 +4,7 @@ import unicodedata
 import sys
 import argparse
 import copy
+import os
 import nltk
 from tqdm import tqdm
 import spacy
@@ -127,9 +128,10 @@ def preprocess_corpus(corpus, method):
 
 def corpus_to_files(samples):
     """Create a tsv per idiom."""
+    os.mkdir("magpie/inputs")
     idioms = sorted(samples.keys())
     for i, idiom in tqdm(enumerate(idioms), "Saving samples in .tsv files per idiom"):
-        with open(f"per_idiom2/{i}.tsv", 'w', encoding="utf-8") as f_out:
+        with open(f"magpie/inputs/{i}.tsv", 'w', encoding="utf-8") as f_out:
             for sample in samples[idiom]:
                 sentence, _, label, annotation, variant_type = sample
                 tags = tag(sentence)
@@ -160,6 +162,7 @@ if __name__ == "__main__":
                         default="idiom_annotations.tsv")
     parser.add_argument("--samples_to_file", action="store_true")
     parser.add_argument("--frequency_threshold", type=float, default=0.5)
+    parser.add_argument("--collect_keywords", action="store_true")
     args = parser.parse_args()
 
     # Load the MAGPIE corpus
@@ -171,34 +174,35 @@ if __name__ == "__main__":
         corpus_to_files(samples)
 
     # Extract the keywords based on POS tags
-    punctuation_removed = dict()
-    with open(args.output_filename, 'w', encoding="utf-8") as f:
-        sorted_idioms = sorted(list(idiom_to_pos.keys()))
-        for idiom in tqdm(sorted_idioms, desc="Iterating over idioms"):
+    if args.collect_keywords:
+        punctuation_removed = dict()
+        with open(args.output_filename, 'w', encoding="utf-8") as f:
+            sorted_idioms = sorted(list(idiom_to_pos.keys()))
+            for idiom in tqdm(sorted_idioms, desc="Iterating over idioms"):
 
-            # Collect all tags available for one word
-            words, tags, keywords = [], [], []
-            tags_per_word = defaultdict(list)
-            for word, tag in idiom_to_pos[idiom]:
-                if word not in punctuation_removed:
-                    word_tmp = remove_punctuation(word)
-                    punctuation_removed[word] = word_tmp
-                    word = word_tmp
-                else:
-                    word = punctuation_removed[word]
-                tags_per_word[word].append(tag)
+                # Collect all tags available for one word
+                words, tags, keywords = [], [], []
+                tags_per_word = defaultdict(list)
+                for word, tag in idiom_to_pos[idiom]:
+                    if word not in punctuation_removed:
+                        word_tmp = remove_punctuation(word)
+                        punctuation_removed[word] = word_tmp
+                        word = word_tmp
+                    else:
+                        word = punctuation_removed[word]
+                    tags_per_word[word].append(tag)
 
-            maxi = max([len(tags_per_word[word]) for word in tags_per_word])
-            # Use the most common tag as the final tag
-            for word in tags_per_word:
-                if len(tags_per_word[word]) < (args.frequency_threshold * maxi):
-                    continue
-                tag = Counter(tags_per_word[word]).most_common(1)[0][0]
-                words.append(f"{word}/{tag}")
-                tags.append(tag)
-                if tag == "NOUN" or tag == "NUM" or word in COLOURS:
-                    keywords.append(word)
-            
-            inclusion = "no" if "NOUN" not in tags else "yes"
-            l = f"{idiom}\t{inclusion}\t{' '.join(words)}\t{' '.join(keywords)}"
-            f.write(l + '\n')
+                maxi = max([len(tags_per_word[word]) for word in tags_per_word])
+                # Use the most common tag as the final tag
+                for word in tags_per_word:
+                    if len(tags_per_word[word]) < (args.frequency_threshold * maxi):
+                        continue
+                    tag = Counter(tags_per_word[word]).most_common(1)[0][0]
+                    words.append(f"{word}/{tag}")
+                    tags.append(tag)
+                    if tag == "NOUN" or tag == "NUM" or word in COLOURS:
+                        keywords.append(word)
+                
+                inclusion = "no" if "NOUN" not in tags else "yes"
+                l = f"{idiom}\t{inclusion}\t{' '.join(words)}\t{' '.join(keywords)}"
+                f.write(l + '\n')
