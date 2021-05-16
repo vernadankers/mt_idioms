@@ -67,7 +67,7 @@ if __name__ == "__main__":
             hidden_states_enc_tmp = torch.stack(
                 outputs_beam["encoder_hidden_states"], dim=0).transpose(0, 1)
             cross_attention_tmp = torch.stack(
-                outputs_cross_attention["cross_attentions"], dim=0).transpose(0, 1)
+                [x[0] for x in outputs_cross_attention["cross_attentions"]], dim=0).transpose(0, 1)
             hidden_states_dec_tmp = torch.stack(
                 outputs_cross_attention["decoder_hidden_states"], dim=0).transpose(0, 1)
 
