@@ -3,7 +3,7 @@ import argparse
 import os
 import torch
 import pickle
-from transformers import AutoModelForSeq2SeqLM, AutoTokenizer
+from transformers import MarianTokenizer, MarianMTModel
 
 
 if __name__ == "__main__":
@@ -18,8 +18,8 @@ if __name__ == "__main__":
     args = vars(parser.parse_args())
 
     mname = f'Helsinki-NLP/opus-mt-en-nl'
-    model = AutoModelForSeq2SeqLM.from_pretrained(mname)
-    tok = AutoTokenizer.from_pretrained(mname)
+    model = MarianMTModel.from_pretrained(mname)
+    tok = MarianTokenizer.from_pretrained(mname)
     if torch.cuda.is_available():
         model = model.cuda()
 
