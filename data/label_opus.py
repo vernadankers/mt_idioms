@@ -45,8 +45,8 @@ def main():
                 if not classifier.contains(idiom):
                     continue
 
-                label = classifier(idiom, src, tgt)
-                prd_label = classifier(idiom, src, prd)
+                label = classifier(idiom, tgt)
+                prd_label = classifier(idiom, prd)
 
                 if label == "none" or prd_label == "none":
                     continue
