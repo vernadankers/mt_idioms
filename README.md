@@ -14,6 +14,9 @@ cd transformers
 pip install -e .
 ```
 
+Other non-standard libraries are `spacy==3.0.1` with the `"en_core_web_sm"` model for POS tagging,
+and `sacrebleu`.
+
 ### Experiments
 - Section 4: See the `data` folder.
 - Section 5: See the `attention` folder.
