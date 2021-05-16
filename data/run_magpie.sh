@@ -25,3 +25,6 @@ do
    python translate_magpie.py --source magpie/inputs/${i}.tsv --pred ${i}_pred.txt --folder magpie
    wait
 done
+
+python label_magpie.py
+wait
