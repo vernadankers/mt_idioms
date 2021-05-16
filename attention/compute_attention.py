@@ -1,127 +1,100 @@
 import sys
-
-sys.path.append('../data/')
-sys.path.append('../probing/')
-
-from data import extract_sentences, Sentence
 from collections import defaultdict
-import torch
-import numpy as np
-import tqdm
-import math
-import seaborn as sns
-import matplotlib.pyplot as plt
 import random
 import argparse
 import logging
 import pickle
-logging.basicConfig(level=logging.INFO)
+import torch
+from torch import LongTensor as LT
+sys.path.append('../data/')
+from data import extract_sentences
+random.seed(1)
 
-mode = "regular"
 
-########################### Step 1: load the data
-sentences = extract_sentences(
-    range(0, 1727), use_tqdm=True, data_folder="../data/magpie", store_attention=True)
+def main(mode, start, stop, step):
+    # Step 1: load the data
+    sentences = extract_sentences(
+        range(start, stop, step), use_tqdm=False,
+        data_folder="../data/magpie", store_attention=True)
 
-if mode == "identical":
-    sentences = [x for x in sentences if x.variant == "identical"]
-elif mode == "intersection":
-    literal_idioms = {x.idiom for x in sentences if x.translation_label == "word-by-word" and x.magpie_label == "literal"}
-    figurative_idioms = {x.idiom for x in sentences if x.translation_label == "paraphrase" and x.magpie_label == "figurative"}
-    intersection = literal_idioms.intersection(figurative_idioms)
-    sentences = [x for x in sentences if x.idiom in intersection]
+    # Restrict the data used to...
+    # - identical are matches labelled as identical by MAGPIE
+    # - intersection are PIEs that are both in fig-par and lit-wfw
+    if mode == "identical":
+        sentences = [x for x in sentences if x.variant == "identical"]
+    elif mode == "intersection":
+        lit_idioms = {x.idiom for x in sentences if x.translation_label ==
+                      "word-by-word" and x.magpie_label == "literal"}
+        fig_idioms = {x.idiom for x in sentences if x.translation_label ==
+                      "paraphrase" and x.magpie_label == "figurative"}
+        intersection = lit_idioms.intersection(fig_idioms)
+        sentences = [x for x in sentences if x.idiom in intersection]
 
-logging.info(f"{len(sentences)} sentences available.")
+    logging.info(f"Processing attention - mode {mode} - {len(sentences)} samples.")
 
-logging.info("Loaded encodings.")
+    per_layer = dict()
+    for layer in range(6):
+        con2idi = defaultdict(list)
+        idi2idi = defaultdict(list)
+        idi2con = defaultdict(list)
 
-per_setup = dict()
-for tags in [["NOUN"]]: #, ["NOUN", "VERB", "ADJ", "ADV"]]:
-    for neighbourhood in [10]:
-        logging.info(f"Setup: {'_'.join(tags) if tags else 'all'} {neighbourhood}")
+        for sent in sentences:
+            # Get the token indices of the idiom and its noun
+            nouns_idiom = sent.index_select(1, tags=["NOUN"])
+            if len(nouns_idiom) > 1:
+                nouns_idiom = random.sample(nouns_idiom, 1)
+            all_idiom = sent.index_select(1)
+            all_idiom = LT([x for x in all_idiom if x not in nouns_idiom])
+            nouns_idiom = LT(nouns_idiom)
 
-        per_layer = dict()
-        for layer in range(6):
-            avg_attention_con2idi = defaultdict(list)
-            avg_attention_idi2idi = defaultdict(list)
-            avg_attention_idi2con = defaultdict(list)
-            avg_attention_idinoun2con = defaultdict(list)
-            avg_attention_noun2con = defaultdict(list)
+            # Get the token indices of tokens in the PIE context
+            all_context = sent.index_select(0, neighbours_only=True)
+            all_context = LT(all_context)
+            nouns_context = sent.index_select(0, tags=["NOUN"], neighbours_only=True)
+            nouns_context = LT(nouns_context)
 
-            for sent in sentences:
-                num_layers, num_heads, output_length, input_length = sent.attention.shape
+            # Con2idi
+            label_pair = (sent.magpie_label, sent.translation_label)
+            att = torch.index_select(sent.attention[layer], dim=-2, index=all_context)
+            att = torch.mean(torch.index_select(att, dim=-1, index=nouns_idiom))
+            con2idi[sent.magpie_label].append(att.item())
+            con2idi[sent.translation_label].append(att.item())
+            con2idi[label_pair].append(att.item())
 
-                
-                idiom_indices = sent.index_select(1, tags=tags)
-                if len(idiom_indices) > 1:
-                    idiom_indices = random.sample(idiom_indices, 1)
-                all_idiom_indices = torch.LongTensor([x for x in sent.index_select(1) if x not in idiom_indices])
-                idiom_indices = torch.LongTensor(idiom_indices)
-                all_context_indices = torch.LongTensor(
-                    sent.index_select(0, neighbours_only=True, neighbourhood=neighbourhood))
-                context_indices = torch.LongTensor(
-                    sent.index_select(0, tags=tags, neighbours_only=True, neighbourhood=neighbourhood))
+            # Idi2idi
+            att = torch.index_select(sent.attention[layer], dim=-2, index=all_idiom)
+            att = torch.mean(torch.index_select(att, dim=-1, index=nouns_idiom))
+            idi2idi[sent.magpie_label].append(att.item())
+            idi2idi[sent.translation_label].append(att.item())
+            idi2idi[label_pair].append(att.item())
 
-                att = torch.index_select(sent.attention[layer], dim=-2, index=all_context_indices)
-                att = torch.mean(torch.index_select(att, dim=-1, index=idiom_indices))
-                avg_attention_con2idi[sent.magpie_label].append(att.item())
-                avg_attention_con2idi[sent.translation_label].append(att.item())
-                avg_attention_con2idi[(sent.magpie_label, sent.translation_label)].append(att.item())
+            # Idi2con
+            att = torch.index_select(sent.attention[layer], dim=-2, index=all_idiom)
+            att = torch.mean(torch.index_select(att, dim=-1, index=nouns_context))
+            idi2con[sent.magpie_label].append(att.item())
+            idi2con[sent.translation_label].append(att.item())
+            idi2con[label_pair].append(att.item())
 
-                att = torch.index_select(sent.attention[layer], dim=-2, index=all_idiom_indices)
-                att = torch.mean(torch.index_select(att, dim=-1, index=idiom_indices))
-                avg_attention_idi2idi[sent.magpie_label].append(att.item())
-                avg_attention_idi2idi[sent.translation_label].append(att.item())
-                avg_attention_idi2idi[(sent.magpie_label, sent.translation_label)].append(att.item())
+        per_layer[layer] = {"con2idi": con2idi,
+                            "idi2idi": idi2idi,
+                            "idi2con": idi2con}
 
-                att = torch.index_select(sent.attention[layer], dim=-2, index=all_idiom_indices)
-                att = torch.mean(torch.index_select(att, dim=-1, index=context_indices))
-                avg_attention_idi2con[sent.magpie_label].append(att.item())
-                avg_attention_idi2con[sent.translation_label].append(att.item())
-                avg_attention_idi2con[(sent.magpie_label, sent.translation_label)].append(att.item())
+    if mode == "intersection":
+        pickle.dump(per_layer, open("data/attention_subset=intersection.pickle", 'wb'))
+    elif mode == "identical":
+        pickle.dump(per_layer, open("data/attention_subset=identical.pickle", 'wb'))
+    else:
+        pickle.dump(per_layer, open("data/attention.pickle", 'wb'))
 
-                idiom_noun_indices = sent.index_select(1, tags=["NOUN"])
-                if len(idiom_noun_indices) > 1:
-                    idiom_noun_indices = random.sample(idiom_noun_indices, 1)
-                if idiom_noun_indices:
-                    idiom_noun_indices = torch.LongTensor(idiom_noun_indices)
-                    idiom_context_indices = [
-                        x for x in sent.index_select([0]) \
-                        if (idiom_noun_indices[0] - 10 <= x and x <= idiom_noun_indices[0] - 5) or \
-                        (idiom_noun_indices[0] + 5 <= x and x <= idiom_noun_indices[0] + 10)]
-                    idiom_context_indices = torch.LongTensor(idiom_context_indices)
-                    att = torch.index_select(sent.attention[layer], dim=-2, index=idiom_noun_indices)
-                    att = torch.mean(torch.index_select(att, dim=-1, index=idiom_context_indices))
-                    avg_attention_idinoun2con[sent.magpie_label].append(att.item())
-                    avg_attention_idinoun2con[sent.translation_label].append(att.item())
-                    avg_attention_idinoun2con[(sent.magpie_label, sent.translation_label)].append(att.item())
 
-                noun_indices = sent.index_select(0, tags=["NOUN"])
-                if len(noun_indices) > 1:
-                    noun_indices = random.sample(noun_indices, 1)
-                if noun_indices:
-                    noun_indices = torch.LongTensor(noun_indices)
-                    context_indices = [
-                        x for x in sent.index_select([0]) \
-                        if (noun_indices[0] - 10 <= x and x <= noun_indices[0] - 5) or \
-                        (noun_indices[0] + 5 <= x and x <= noun_indices[0] + 10)]
-                    context_indices = torch.LongTensor(context_indices)
-                    att = torch.index_select(sent.attention[layer], dim=-2, index=noun_indices)
-                    att = torch.mean(torch.index_select(att, dim=-1, index=context_indices))
-                    avg_attention_noun2con[sent.magpie_label].append(att.item())
-                    avg_attention_noun2con[sent.translation_label].append(att.item())
-                    avg_attention_noun2con[(sent.magpie_label, sent.translation_label)].append(att.item())
-
-            per_layer[layer] = {"con2idi": avg_attention_con2idi,
-                                "idi2idi": avg_attention_idi2idi,
-                                "idi2con": avg_attention_idi2con,
-                                "idinoun2con": avg_attention_idinoun2con,
-                                "noun2con": avg_attention_noun2con}
-        per_setup[("_".join(tags) if tags else "all", neighbourhood)] = per_layer
-
-if mode == "intersection":
-    pickle.dump(per_setup, open("attention_subset=intersection.pickle", 'wb'))
-elif mode == "identical":
-    pickle.dump(per_setup, open("attention_subset=identical.pickle", 'wb'))
-else:
-    pickle.dump(per_setup, open("attention.pickle", 'wb'))
+if __name__ == "__main__":
+    parser = argparse.ArgumentParser()
+    parser.add_argument("--start", type=int, default=0)
+    parser.add_argument("--stop", type=int, default=100)
+    parser.add_argument("--step", type=int, default=1)
+    parser.add_argument(
+        "--mode", type=str, choices=["regular", "intersection", "identical"],
+        default="regular")
+    args = parser.parse_args()
+    logging.basicConfig(level=logging.INFO)
+    main(args.mode, args.start, args.stop, args.step)
