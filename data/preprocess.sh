@@ -3,9 +3,10 @@
 mkdir magpie
 mkdir magpie/inputs
 
-python preprocess_json.py --pos_tag_method spacy --output_filename idiom_keywords.tsv --frequency_threshold 0.5 --samples_to_file
-wait
-
+## These could be run, but the data is present in the repository.
+## Therefore, it's not needed to rerun.
+#python preprocess_json.py --pos_tag_method spacy --output_filename idiom_keywords.tsv --frequency_threshold 0.5 --samples_to_file
+#wait
 #python translate_keywords.py --input_tsv idiom_keywords.tsv --output_tsv idiom_keywords_translated.tsv
 #wait
 
@@ -17,6 +18,8 @@ mkdir magpie/cross_attention
 mkdir magpie/prds
 mkdir magpie/tokenised_prds
 
+# To collect all data involves a lot of gigabytes, but this will provide you with a nice small subset of the data
+# that can be used to illustrate our findings
 for i in {0..1726..25}
 do
    python translate_magpie.py --source magpie/inputs/${i}.tsv --pred ${i}_pred.txt --folder magpie

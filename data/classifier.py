@@ -39,6 +39,8 @@ class Classifier():
         """For a given idiom, predict the class of the predicted translation."""
         prd = prd.lower().strip()
         idiom = idiom.lower().strip()
+
+        # Voorzitter... is a common Europarl hallucination, exclude them :-(
         if idiom not in self.nl_keywords or not prd or "Voorzitter" in prd:
             return "none"
 
