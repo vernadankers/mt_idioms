@@ -4,16 +4,12 @@ import unicodedata
 import sys
 import argparse
 import copy
-import os
 import nltk
 from tqdm import tqdm
 import spacy
-from flair.data import Sentence
-from flair.models import SequenceTagger
 
 
 nlp = spacy.load("en_core_web_sm")
-tagger = SequenceTagger.load('upos-fast')
 COLOURS = ['black', 'white', 'red', 'green', 'yellow', 'blue',
            'brown', 'orange', 'pink', 'purple', 'grey']
 
@@ -30,14 +26,6 @@ def get_pos_tags(line, method):
     if method == "nltk":
         tokenised_line = nltk.word_tokenize(line)
         _, pos_tags = zip(*nltk.pos_tag(line.split(), tagset="universal"))
-    elif method == "flair":
-        sentence = Sentence(line, use_tokenizer=False)
-        tagger.predict(sentence)
-        pos_tags = []
-        tokenised_line = []
-        for token in sentence.tokens:
-            tokenised_line.append(token.text)
-            pos_tags.append(token.annotation_layers['pos'][0].value)
     elif method == "spacy":
         line = copy.deepcopy(line)
         doc = nlp(line)
@@ -75,7 +63,7 @@ def preprocess_corpus(corpus, method):
     idiom_to_pos = defaultdict(list)
     return_samples = defaultdict(list)
 
-    for sample in tqdm(corpus[:5000], desc="Iterating over MAGPIE samples"):
+    for sample in tqdm(corpus, desc="Iterating over MAGPIE samples"):
         # Exclude samples with confidence lower than 1
         if sample["confidence"] < 1:
             continue
@@ -128,7 +116,6 @@ def preprocess_corpus(corpus, method):
 
 def corpus_to_files(samples):
     """Create a tsv per idiom."""
-    os.mkdir("magpie/inputs")
     idioms = sorted(samples.keys())
     for i, idiom in tqdm(enumerate(idioms), "Saving samples in .tsv files per idiom"):
         with open(f"magpie/inputs/{i}.tsv", 'w', encoding="utf-8") as f_out:
@@ -157,7 +144,7 @@ def tag(sentence):
 if __name__ == "__main__":
 
     parser = argparse.ArgumentParser()
-    parser.add_argument("--pos_tag_method", type=str, default="nltk")
+    parser.add_argument("--pos_tag_method", type=str, default="spacy")
     parser.add_argument("--output_filename", type=str,
                         default="idiom_annotations.tsv")
     parser.add_argument("--samples_to_file", action="store_true")
