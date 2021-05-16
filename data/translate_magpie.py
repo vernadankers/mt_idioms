@@ -83,11 +83,11 @@ if __name__ == "__main__":
                 src_len = len(src_annotations) + 1
 
                 prd = tok.convert_ids_to_tokens(outputs_beam["sequences"][j])[1:]
-                attention[src] = attention_tmp[j][:, :, :src_len, :src_len].detach().numpy()
-                query_attention[src] = query_attention_tmp[j].detach().numpy()
-                hidden_states_enc[src] = hidden_states_enc_tmp[j].detach().numpy()
-                cross_attention[src] = cross_attention_tmp[j][:, :, :, :src_len].detach().numpy()
-                hidden_states_dec[src] = hidden_states_dec_tmp[j].detach().numpy()
+                attention[src] = attention_tmp[j][:, :, :src_len, :src_len].cpu().detach().numpy()
+                query_attention[src] = query_attention_tmp[j].cpu().detach().numpy()
+                hidden_states_enc[src] = hidden_states_enc_tmp[j].cpu().detach().numpy()
+                cross_attention[src] = cross_attention_tmp[j][:, :, :, :src_len].cpu().detach().numpy()
+                hidden_states_dec[src] = hidden_states_dec_tmp[j].cpu().detach().numpy()
                 prds[srcs[j]] = prd
 
     pickle.dump(dict(prds), open(
