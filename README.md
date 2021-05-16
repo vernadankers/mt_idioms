@@ -1,8 +1,8 @@
 # mt_idioms
 
-`transformers==4.3.0`, with `modeling_marian.py` replaced with the adapted version from this repository.
-
 ### Install
+
+`transformers==4.3.0`, with `modeling_marian.py` replaced with the adapted version from this repository.
 To clone `transformers` and replace MarianMT with our adapted version, carry out the following instructions:
 ```
 git clone https://github.com/huggingface/transformers.git
@@ -15,7 +15,7 @@ pip install -e .
 ```
 
 Other non-standard libraries are `spacy==3.0.1` with the `"en_core_web_sm"` model for POS tagging,
-and `sacrebleu`.
+`sacrebleu`, `dutch_words`, and `wordfreq`.
 
 ### Experiments
 - Section 4: See the `data` folder.
