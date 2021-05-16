@@ -61,28 +61,28 @@ def main():
 
 
     denominator = (counter['paraphrase'] + counter['word-by-word'] + counter['copied'])
-    print(f"% of paraphrases {counter['paraphrase'] / denominator:.2f}")
-    print(f"% of word for word {counter['word-by-word'] / denominator:.2f}")
-    print(f"% of copied instances {counter['copied'] / denominator:.2f}")
+    print(f"% of paraphrases {counter['paraphrase'] / denominator:.3f}")
+    print(f"% of word for word {counter['word-by-word'] / denominator:.3f}")
+    print(f"% of copied instances {counter['copied'] / denominator:.3f}")
 
-    print(f"Paraphrase: % of paraphrased {counter[('paraphrase', 'paraphrase')] / counter['paraphrase']:.2f}")
-    print(f"Paraphrase: % of word for word {counter[('paraphrase', 'word-by-word')] / counter['paraphrase']:.2f}")
-    print(f"Paraphrase: % of copies {counter[('paraphrase', 'copied')] / counter['paraphrase']:.2f}")
+    print(f"Paraphrase: % of paraphrased {counter[('paraphrase', 'paraphrase')] / counter['paraphrase']:.3f}")
+    print(f"Paraphrase: % of word for word {counter[('paraphrase', 'word-by-word')] / counter['paraphrase']:.3f}")
+    print(f"Paraphrase: % of copies {counter[('paraphrase', 'copied')] / counter['paraphrase']:.3f}")
 
-    print(f"Word for word: % of paraphrases {counter[('word-by-word', 'paraphrase')] / counter['word-by-word']:.2f}")
-    print(f"Word for word: % of word for word {counter[('word-by-word', 'word-by-word')] / counter['word-by-word']:.2f}")
-    print(f"Word for word: % of copies {counter[('word-by-word', 'copied')] / counter['word-by-word']:.2f}")
+    print(f"Word for word: % of paraphrases {counter[('word-by-word', 'paraphrase')] / counter['word-by-word']:.3f}")
+    print(f"Word for word: % of word for word {counter[('word-by-word', 'word-by-word')] / counter['word-by-word']:.3f}")
+    print(f"Word for word: % of copies {counter[('word-by-word', 'copied')] / counter['word-by-word']:.3f}")
 
-    print(f"Copy: % of paraphrases {counter[('copied', 'paraphrase')] / counter['copied']}")
-    print(f"Copy: % of word for word {counter[('copied', 'word-by-word')] / counter['copied']}")
-    print(f"Copy: % of copies {counter[('copied', 'copied')] / counter['copied']}")
+    print(f"Copy: % of paraphrases {counter[('copied', 'paraphrase')] / counter['copied']:.3f}")
+    print(f"Copy: % of word for word {counter[('copied', 'word-by-word')] / counter['copied']:.3f}")
+    print(f"Copy: % of copies {counter[('copied', 'copied')] / counter['copied']:.3f}")
 
     for label1 in ["paraphrase", "word-by-word", "copied"]:
         for label2 in ["paraphrase", "word-by-word", "copied"]:
             print(label1, label2)
             prds, tgts = zip(*data[(label1, label2)])
             bleu = sacrebleu.corpus_bleu(prds, [tgts])
-            print(f"{label1} - {label2} - BLEU score: {bleu.score}")
+            print(f"{label1} - {label2} - BLEU score: {bleu.score:.1f}")
 
 
 if __name__ == '__main__':
