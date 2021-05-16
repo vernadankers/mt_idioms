@@ -1,0 +1,9 @@
+Gooi je je hoed in de ring ?	-0.2766265571117401
+Hé , J. Wil je je hoed in de ring gooien ?	-0.310607373714447
+Waarom gooi je je hoed niet in de ring ?	-0.31012198328971863
+Gooi je je hoed in de ring ?	-0.21296344697475433
+Je ziet eruit alsof je probeert je hoed in de ring te gooien .	-0.3297138214111328
+We verwachtten dat je overwogen zou willen worden , je hoed in de ring gooien .	-0.48618096113204956
+We gooiden de dobbelstenen die je niet in de ring gooide .	-0.5218418836593628
+Dus , als je je hoed in de ring wilt gooien , nu is het tijd .	-0.4024578332901001
+Als je je hoed in de ring gooit , zorg ik ervoor dat je gelijk hebt .	-0.3617282211780548

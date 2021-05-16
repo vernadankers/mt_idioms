@@ -1,0 +1,500 @@
+Op scherp ?	-0.7066311836242676
+Op de randen :	-0.4515644907951355
+Op scherp ?	-0.7066311836242676
+Op scherp .	-0.6306853890419006
+Hij is gespannen .	-0.2633500099182129
+Je bent gespannen .	-0.3053116500377655
+Hoge-resolutie-randdetectie	-0.6045259237289429
+Ik ben gespannen .	-0.4370442032814026
+Hij is gespannen .	-0.2633500099182129
+Ze is gespannen .	-0.25899237394332886
+Ik ben gespannen .	-0.28301361203193665
+Je bent gespannen .	-0.3053116500377655
+Iedereen is gespannen .	-0.2611446976661682
+Je bent gespannen .	-0.3053116500377655
+Ik ben gespannen .	-0.28301361203193665
+Je bent gespannen .	-0.3053116500377655
+Ik ben gespannen .	-0.3030576705932617
+Iedereen is gespannen .	-0.2611446976661682
+- Op scherp ?	-0.7208627462387085
+Ze is gespannen .	-0.25899237394332886
+Je bent gespannen .	-0.3053116500377655
+Ik ben niet gespannen .	-0.36219778656959534
+Je bent gespannen vanavond .	-0.2871932089328766
+Je lijkt gespannen .	-0.3071184754371643
+- Beetje gespannen .	-0.44825413823127747
+Alles is gespannen .	-0.3483445644378662
+Ik ben gewoon gespannen .	-0.31594178080558777
+Hij leek gespannen .	-0.24489888548851013
+Hij is gewoon gespannen .	-0.32970544695854187
+Iemand is gespannen .	-0.37615010142326355
+We zijn allemaal gespannen .	-0.2880643904209137
+Je lijkt gespannen .	-0.3071184754371643
+- Iedereen is gespannen .	-0.3648722171783447
+Je bent gewoon gespannen .	-0.32881465554237366
+En hij is gespannen .	-0.2702000141143799
+De bemanning is gespannen .	-0.3917503356933594
+Ik ben gewoon gespannen .	-0.3159421384334564
+Hij is gewoon gespannen .	-0.3297061026096344
+Hij is gewoon gespannen .	-0.3297061026096344
+We zijn allemaal gespannen .	-0.28806445002555847
+Hij lijkt gespannen .	-0.26806312799453735
+En ik ben gespannen .	-0.27171191573143005
+Hij was gespannen .	-0.24912722408771515
+De zenuwen zijn gespannen .	-0.3995893895626068
+Ik ben gespannen .	-0.3024391233921051
+- Je lijkt gespannen .	-0.4451810419559479
+Niet voor gebruik op randen .	-0.3268791735172272
+Ik ben gespannen , kan niet slapen .	-0.3225846290588379
+4.6 Toleranties op de rand	-0.4781467616558075
+Je bent echt gespannen .	-0.557379961013794
+Chili is gespannen of zo .	-0.3879624903202057
+Ik ben een beetje gespannen .	-0.2852523922920227
+Nee , ik ben gewoon gespannen .	-0.2990272343158722
+Deze jongens zijn gespannen .	-0.5444744825363159
+We zijn allemaal gespannen .	-0.3760770559310913
+Het zet je zenuwen op scherp .	-0.4790874719619751
+We zijn allemaal gespannen .	-0.33050188422203064
+Hij was erg gespannen .	-0.31508544087409973
+Ze lijken allemaal gespannen .	-0.2800559103488922
+Hij is echt gespannen .	-0.3425275385379791
+Iedereen is nog zo gespannen .	-0.29691392183303833
+Je haren staan op scherp .	-0.49634313583374023
+Je bent nerveus .	-0.5134133100509644
+Crash dieet .	-0.6307229399681091
+De man lijkt gespannen .	-0.513268768787384
+Mijn hele sectie is gespannen .	-0.43509724736213684
+Het maakt me nerveus .	-0.6151241660118103
+Ik had je nerveus .	-0.5393856763839722
+Je lijkt gespannen de laatste tijd .	-0.3504784405231476
+Mijn zenuwen zijn gespannen .	-0.3522407114505768
+Je bent gespannen , je bent gespannen .	-0.2868819832801819
+Vereniging van selectieranden inschakelen	-0.43199479579925537
+Luister , Mr Hawkins , de mensen zijn gespannen .	-0.38909491896629333
+Ik ben zo gespannen .	-0.2769685387611389
+Valse man , een beetje gespannen . '	-0.595323920249939
+Ik was helemaal gespannen .	-0.3597968816757202
+De bemanning is wel gespannen .	-0.5370948314666748
+4.6 Toleranties op de rand	-0.4781467616558075
+Iedereen is een beetje gespannen .	-0.28464558720588684
+- Je bent nogal gespannen .	-0.8661678433418274
+Je bent gespannen geweest .	-0.5426571369171143
+Ik was al gespannen .	-0.23053783178329468
+Hij is nerveus , afgeleid , gespannen .	-0.34743496775627136
+Ik ben een beetje gespannen .	-0.2852523922920227
+Ik ben gewoon gespannen .	-0.35592472553253174
+Hij leek erg gespannen .	-0.3519385755062103
+- Hij is altijd gespannen .	-0.30320629477500916
+Leg je armen op scherp .	-0.5108397603034973
+Ze is gespannen of zo .	-0.3336416780948639
+6.3 Toleranties op de rand	-0.4630732536315918
+Ik had hem gespannen .	-0.45984745025634766
+Je lijkt een beetje gespannen .	-0.33917924761772156
+Je ziet er gespannen uit .	-0.41275301575660706
+Het zet mijn tanden op scherp .	-0.49427276849746704
+Daar is de steengroeve bij Vazon Edge .	-0.2802141606807709
+Nou , je bent een beetje gespannen .	-0.36773234605789185
+Ik ben al de hele dag gespannen .	-0.3109578788280487
+Ze is gespannen op dit moment .	-0.4106462001800537
+Hij is gewoon een beetje gespannen .	-0.36139175295829773
+Deze jongens hebben iedereen op het randje .	-0.5920599699020386
+Ze is een beetje gespannen vandaag .	-0.3223043382167816
+Gisteren leek ze erg gespannen .	-0.39268526434898376
+Dit meisje heeft je nerveus gemaakt .	-0.5896691679954529
+Ik ben een beetje gespannen .	-0.2890758812427521
+Wat is er aan de hand ?	-0.2991180121898651
+Ik ben een beetje gespannen .	-0.26565197110176086
+Een beetje gespannen , hè ?	-0.5547547340393066
+Corinthians fans zijn gespannen .	-0.5162734985351562
+Het houdt me gewoon nerveus .	-0.5471489429473877
+Alles is hier gespannen , Jeremy .	-0.41234922409057617
+Ze is gespannen over haar recensie .	-0.33120429515838623
+Nu zijn ze gevoelig , gespannen .	-0.39969030022621155
+Tabel 4 Toleranties op de rand camber	-0.5096665024757385
+Je bent al dagen gespannen .	-0.32186344265937805
+Dit maakt ons allemaal nerveus .	-0.46652305126190186
+Ik ben een beetje gespannen .	-0.43783894181251526
+- We zijn allemaal nogal gespannen .	-0.4013570547103882
+Rand tussen de knopranden en het kind .	-0.45514312386512756
+Hij is gespannen .	-0.2861784100532532
+We zijn allemaal een beetje gespannen .	-0.3360922336578369
+Hij leek gespannen .	-0.354560911655426
+We zijn allemaal een beetje gespannen .	-0.2953527569770813
+De kou zet ze op scherp .	-0.4589584171772003
+Nee , ik ben gewoon gespannen vandaag .	-0.2943810820579529
+Hij lijkt gespannen .	-0.39107832312583923
+De troepen zijn echter gespannen .	-0.5717459917068481
+Iedereen is gespannen , vooral in Washington .	-0.27008968591690063
+Ik ben gewoon een beetje gespannen .	-0.35389086604118347
+Ik ben al de hele ochtend gespannen .	-0.3649917542934418
+Het vuur maakt je nerveus .	-0.5001307129859924
+Waarom ben je niet gespannen ?	-0.29215556383132935
+De lokale bevolking was achterdochtig en gespannen .	-0.31312498450279236
+Kijk naar de rok aan de rand van de struik .	-0.45136842131614685
+Je lijkt een beetje gespannen .	-0.46148160099983215
+Ik ben gewoon een beetje gespannen , juffrouw ...	-0.3643045723438263
+Het maakt je eerst nerveus .	-0.5038491487503052
+- Ze is erg gespannen de laatste tijd .	-0.4266227185726166
+Deze hele zaak maakt me nerveus .	-0.423328161239624
+% van afschuining aan randen van cubies :	-0.542219340801239
+Mensen zijn gespannen , ik voelde me aankomen .	-0.46292436122894287
+Lijkt me dat je echt gespannen bent .	-0.5204989910125732
+Het spijt me , ik ben een beetje gespannen .	-0.3047466278076172
+Nou , ik was een beetje gespannen .	-0.32540181279182434
+Klinkt alsof ze zeker gespannen was .	-0.4886443018913269
+Mensen worden heet , mensen zijn gespannen ...	-0.42237919569015503
+Net genoeg om me nerveus te maken .	-0.3481854200363159
+De bemanning lijkt een beetje gespannen .	-0.3976426124572754
+Josh , mijn maag is nogal gespannen .	-0.37604594230651855
+- Hij is nog wat gespannen .	-0.43009209632873535
+Je lijkt meer gespannen dan voorheen .	-0.4340243637561798
+Leek hij bezorgd of gespannen ?	-0.46456676721572876
+ETA aan Vazon Edge groeve vier minuten .	-0.3310982882976532
+Als de hele plek gespannen is .	-0.5263020992279053
+Congreslid Ames heeft die groep op het randje .	-0.3083173930644989
+Dat zou mijn tanden op scherp zetten .	-0.48554563522338867
+Neem het als je je gespannen voelt .	-0.6238333582878113
+Ik weet het niet , je lijkt gespannen .	-0.41425180435180664
+En jullie maken me nerveus .	-0.3111456334590912
+Maakt de ingestor prikkelbaar en op de rand .	-0.27541980147361755
+De Hearst verkrachter heeft iedereen gespannen .	-0.38265085220336914
+Want gisteravond ... een beetje gespannen .	-0.44492778182029724
+Deze quarantaine maakt iedereen nerveus , Constable .	-0.5333307385444641
+- Ik was zo gespannen .	-0.5238390564918518
+Ik voel me de hele tijd gespannen .	-0.4153020977973938
+Je bent angstig , gespannen , nerveus .	-0.4247027337551117
+Ze is meer gespannen dan ik .	-0.3663610517978668
+Richard was al weken gespannen .	-0.3176301121711731
+Het is gewoon dat ik helemaal gespannen ben .	-0.4731179177761078
+Ik wilde zeggen gespannen .	-0.6304095387458801
+Hij was zo gespannen vanmorgen !	-0.45161372423171997
+Hij slaapt niet en hij is altijd gespannen .	-0.280842661857605
+Misschien was je gespannen ?	-0.5982792973518372
+Ik denk dat ik een beetje gespannen ben .	-0.41463083028793335
+Als ik ze zie , word ik nerveus .	-0.3238464593887329
+Leek ze nerveus , gespannen ?	-0.37176188826560974
+Midnight moordenaar had de hele stad op het randje .	-0.42845484614372253
+Ik denk dat hij gespannen is over de baby .	-0.28455662727355957
+Ik ben al gespannen sinds de moord op Derrick .	-0.38800743222236633
+Kijk , dit Nighthawk gedoe heeft iedereen op het randje .	-0.5660845637321472
+Misschien was hij daarom gisteren nerveus .	-0.4457017779350281
+Het brengt Susan altijd een beetje gespannen .	-0.4897553622722626
+Dit hele gedoe heeft me nerveus gemaakt .	-0.5291550159454346
+Geef mij er een , ik ben ook gespannen .	-0.5471578240394592
+In de jungle is iedereen voortdurend gespannen .	-0.3160557448863983
+Ik denk dat ik een beetje gespannen ben .	-0.3680777847766876
+Het is genoeg om iemands zenuwen op scherp te zetten .	-0.41440916061401367
+Het is allemaal bedoeld om je gespannen te houden .	-0.3415389657020569
+Zag hij er gespannen uit ?	-0.5421286225318909
+In het bijzonder degene die ontwikkeld worden door Pentillion Edge .	-0.3825227618217468
+Iedereen is zo gespannen .	-0.4572281837463379
+Natuurlijk ben ik gespannen , het is mijn moeder .	-0.3576825261116028
+Deze kerel heeft de hele stad op het randje .	-0.4685981571674347
+Negen jaar , heb ik op scherp moeten leven .	-0.5881935358047485
+Het heeft ons allemaal een beetje gespannen .	-0.4322351813316345
+Dingen zijn een beetje gespannen hier in de buurt .	-0.6151531934738159
+- Hij zal nu erg gespannen zijn .	-0.6517643332481384
+Door de dood van Francois , is iedereen gespannen .	-0.3927282989025116
+Ik ben gespannen , ik ben al lang weg .	-0.35908225178718567
+Hij was al een tijdje gespannen .	-0.3046705722808838
+We zijn politiemoordenaars .	-0.42008471488952637
+Ik zou alleen je moeders tanden op scherp zetten .	-0.5365980863571167
+Je zei zelf dat de kolonel gespannen was .	-0.3023168444633484
+Om te openen , sla scherp op de rand van de teller .	-0.5730031728744507
+Je liet me schrikken , maar ik ben gespannen .	-0.31999605894088745
+- Veel van de bemanning is gespannen de laatste tijd .	-0.5006119608879089
+Ik ben gewoon een beetje gespannen .	-0.42100590467453003
+Zoals je kunt zien , ben ik een beetje gespannen .	-0.3447106182575226
+De laatste dagen zijn moeilijk geweest .	-0.6128304600715637
+Een beetje gespannen is begrijpelijk , gezien deze moorden .	-0.3211280405521393
+Je weet hoe gespannen Gibbs is de laatste tijd .	-0.3300743103027344
+We hebben een verdacht voertuig dat zuidwaarts rijdt op Edgewood .	-0.6264008283615112
+Of ben je gewoon een beetje gespannen ?	-0.4497787058353424
+Ik ben gewoon een beetje gespannen de laatste tijd , dat is alles .	-0.33249154686927795
+Vul de selectie randen met de gouden kralen patroon	-0.3502267599105835
+Drops Summer trui in Parijs met bloemen op randen	-0.4122512638568878
+Je bent gespannen sinds we dat kruispunt vonden .	-0.43359115719795227
+Ik bedoel , iedereen lijkt gespannen , dus ...	-0.3247781991958618
+Uw jongens lijken een beetje gespannen Mr McPherson .	-0.38511863350868225
+Ik was altijd gespannen , een zak zenuwen .	-0.31602951884269714
+4.3 Toleranties op vlakheid 4.4 Toleranties op rand camber	-0.40358930826187134
+Daarom ben ik een beetje gespannen .	-0.4256533980369568
+Het vloeken en vloeken zette me op een vreemde manier op het randje .	-0.490477591753006
+Bloed - soms zet het mijn tanden op het randje .	-0.6043040752410889
+Deze hele zaak ... maakt me nerveus , wachtend .	-0.42361071705818176
+Is dat wat je tanden op Edge heeft ?	-0.5665549635887146
+Iedereen is gespannen met de besmetting die zich verspreidt door de stad .	-0.5290997624397278
+Een bijzonder warme , droge zomer heeft iedereen op het randje ..	-0.3022170960903168
+Ik merk dat je een beetje gespannen bent .	-0.5160399675369263
+Ook al zet hij je tanden al op scherp ?	-0.5099807381629944
+Je vraagt mijn mening , ik zou zeggen dat ze ... gespannen leek .	-0.42447778582572937
+Zit op de rand van de stoel met de handen gedrukt op de heupen .	-0.36725908517837524
+Maar de laatste tijd is Darryl zo gespannen , weet je ?	-0.3099115192890167
+Zet de hele stad op het randje voor meer dan een week .	-0.4125635027885437
+De laatste weken leek je afgeleid , gespannen .	-0.5053735971450806
+We praten met hem , hij is gespannen , gespannen .	-0.38141798973083496
+Ik weet het , ik ben gewoon een beetje gespannen , oké ?	-0.36318767070770264
+Je bent gespannen sinds we uit het vliegtuig zijn .	-0.4584861099720001
+Je bent gespannen en je voelt je ongemakkelijk in onze aanwezigheid .	-0.33448347449302673
+Ik ben helemaal gespannen , mijn zenuwen zijn helemaal gefrituurd .	-0.44439366459846497
+Een plotselinge dood binnen de groep zet alles op het randje .	-0.45866483449935913
+Op de ochtend van de veiling was ik gespannen .	-0.3672189712524414
+Ze is gespannen , maar we werken eraan .	-0.5023341178894043
+Je bent misschien gespannen omdat je je niet 100 % voelt .	-0.3725116550922394
+Iedereen is gespannen en vraagt zich af waar Amon nu toeslaat .	-0.39984366297721863
+Nu ik erover nadenk , een beetje gespannen .	-0.2601433992385864
+Mijn vader stopte met roken , en hij is een beetje gespannen .	-0.3416840434074402
+Minder voor knoopsgaten bij een hoogte van het werk ( gemeten vanaf de kant van de cast-on ) :	-0.5609076023101807
+Iedereen die zo gespannen is als ik zou ups en downs hebben .	-0.49610066413879395
+Het geluid van schreeuwen zet mijn tanden op scherp .	-0.4869590401649475
+Begrijpelijk , ze lijken soms verdrietig of gespannen .	-0.4554564356803894
+En laten we vergeten dat je zenuwen gespannen zijn .	-0.42981579899787903
+Hij was de laatste week wat gespannener .	-0.5454402565956116
+- Nee , dus je bent een beetje gespannen .	-0.5051664113998413
+Het land is gespannen , dat is precies wat ze wilden .	-0.3877274692058563
+Een verzameling rendierschedels verzameld op Edgeøya in de jaren zeventig .	-0.21368208527565002
+ijsberen die ganzeneieren eten Nederland op Edgeøya adopteren een stern	-0.2541782557964325
+Jullie voelen je een beetje gespannen tegenwoordig .	-0.5101339817047119
+De stad is gespannen als de deadline nadert voor burgemeester Kane ...	-0.3565045893192291
+- Dat zette Danny op scherp , dus trok hij zijn vuurwapen .	-0.49110424518585205
+Ik ben hier met de mannen van Hare Majesteit 's gevangenis Edgefield .	-0.20443062484264374
+Je ziet eruit alsof je tanden gespannen zijn , jongen .	-0.4450761377811432
+Natuurlijk doe ik mijn beste werk als ik gespannen ben .	-0.3167549669742584
+De kolonel is gespannen en deze jongens kunnen blij zijn .	-0.6255154013633728
+M ' n gele Ford Maverick uit 1972 is oververhit .	-0.3575388193130493
+`` Lips geboeid , wind over tong in beweging , tanden op de rand . ''	-0.5430065989494324
+Iedereen is een beetje gespannen wachtend tot de Atrians aankomen .	-0.47292983531951904
+Maar de hele bemanning is gespannen en ik ook .	-0.32484468817710876
+Ruiz doorzoeken heeft iedereen een beetje gespannen .	-0.628553032875061
+Ja , weet je , ik ben gewoon gespannen sinds we terug zijn .	-0.48275700211524963
+- Ik ben een beetje gespannen .	-0.4760962426662445
+Het is jouw verdomde dochter die terugkomt dat iedereen nerveus maakt .	-0.4550737142562866
+De zenuwen stonden op het randje te wachten op boobytraps en verrassingsaanvallen .	-0.3904523551464081
+Ja , want je bent al nerveus sinds je me aan het vibreren bent .	-0.6589595079421997
+Deze Big Four business heeft de hele internationale gemeenschap op het randje .	-0.4375436007976532
+Het is niet gemakkelijk om zo lang gespannen te zijn .	-0.43195101618766785
+Ze waren gespannen , ze wilden naar de politie .	-0.29581233859062195
+Het heeft de blanken op het randje , dus let op jezelf .	-0.526360809803009
+Ja , de lucht-hoge adrenaline niveaus , constant op scherp .	-0.5727387070655823
+En onder de mensen is er die Allah aanbidt op gespannen voet .	-0.6631341576576233
+Het spijt me , jongens , ik denk dat ik een beetje gespannen ben .	-0.39302605390548706
+Het hele land was gespannen door zijn tijd in het ziekenhuis .	-0.39346811175346375
+Nou , klaag me aan omdat ik een beetje gespannen ben , waarom doe je dat niet ?	-0.5089302062988281
+Ik moet zeggen , dit alles heeft me helemaal op het randje .	-0.5791218280792236
+Ik ben net ontslagen uit de fabriek , dus ik was gespannen .	-0.33652397990226746
+Ze kunnen je op scherp zetten en je er geen geven .	-0.7261589765548706
+Leek hij nerveus of gespannen of ...	-0.39579683542251587
+Sinds de moedervlek terug is , ben ik een beetje gespannen .	-0.3271169066429138
+Ik begin te snappen waarom je altijd zo gespannen bent .	-0.4062134325504303
+Zal dat worden bereikt door de gelederen te mengen en iedereen op het randje te zetten ?	-0.5292119979858398
+Weet u zeker dat u niet gespannen bent ?	-0.31292659044265747
+Je bent gespannen sinds ik terugging om Teo te vinden .	-0.4413328170776367
+Alicia en de vierdejaars die vertrekken ... hebben ons allemaal nerveus gemaakt .	-0.48447975516319275
+Je lijkt gespannen sinds we de missie begonnen .	-0.49300751090049744
+Maak 1 dunne stalen draad langs het gieten op de rand van de hoed .	-0.4632798433303833
+Ik denk niet dat iemand het je kan kwalijk nemen dat je gespannen bent , Chloe .	-0.35939255356788635
+Ik ben gespannen . Er zijn 38 dagen verstreken sinds ik mijn broer heb vermoord .	-0.4063083827495575
+Deze stunt van Miss Artifice laat alleen zien hoe gespannen de dingen zijn .	-0.49777618050575256
+Ik denk dat ik nog steeds gespannen ben over wat er gebeurd is met Dr. Banks .	-0.3666841387748718
+Mijn zenuwen zijn gespannen en gaan niet eens naar de gevangenis .	-0.5142110586166382
+Weet je , omdat je op vakantie bent , ben je nogal gespannen .	-0.47772443294525146
+Een tijdje leek je zo gelukkig , maar de laatste tijd ben je ... gespannen .	-0.36880481243133545
+Je verspilt alleen munitie en maakt iedereen nerveus .	-0.3683772087097168
+Ik kan je verhalen vertellen die je haar op scherp zetten .	-0.47804996371269226
+Audrey , om eerlijk te zijn , ik ben moe en een beetje gespannen .	-0.28493762016296387
+Ik ben een beetje gespannen omdat ik probeer te stoppen met roken .	-0.31340405344963074
+Naai de buitenste lus aan de kant st om een dikke naad te vermijden .	-0.3588937819004059
+Landhuis aan de rand van een dorp , op 1,9 ha met zwembad , Orne .	-0.1676982343196869
+Over mijn nachtmerries , mijn temperament op scherp ... de plotselinge stroomversnellingen van onverklaarbare kracht ?	-0.4674072563648224
+Klantenbeoordelingen Klantenbeoordeling : Mannen op Edge 17 - California Beach Stud Schrijf een review	-0.13262201845645905
+Iedereen is nog steeds gespannen over jou en ik heb het net uitgemaakt met Archie .	-0.297607421875
+Het voelt alsof je me gewoon nerveus houdt .	-0.4587574005126953
+Zijn hard gesneden , maar goed aan elkaar plakken zowel op plasti , en op de randen .	-0.44047582149505615
+De romp heeft meestal ruwe injectieranden die moeten worden afgevijld .	-0.34634578227996826
+Hij maakt ons allebei zo nerveus , dat we misschien in de schaduw springen .	-0.5658565759658813
+En ik weet zeker dat dat veel mensen op het randje zet op dit moment .	-0.5364775657653809
+Deze hele gemeenschap zal gespannen zijn tot we deze jongens pakken .	-0.593284010887146
+Een beetje nerveus , een beetje gespannen , maar het komt wel goed .	-0.36473092436790466
+Die jongen die gisteravond is vermoord woonde een paar straten verderop op Edgemont .	-0.40794602036476135
+Iedereen in het Tsjetsjeense verzet is gespannen sinds we Mueller gevangen hebben .	-0.3605809807777405
+RELAXATIE De sprintspelers staan op het randje , ze moeten op 9 april staan .	-0.438178151845932
+Nog steeds een beetje gespannen van beschoten te worden , maar ik red me wel .	-0.4987313151359558
+Sorry , hij is altijd gespannen als de familie hier is voor de AGM .	-0.388113409280777
+Hij zette de stad Bogota op het randje en de Colombiaanse regering op de hoogte .	-0.4456411600112915
+Niemand houdt me op het randje voor 500 pagina 's dan beslissen ze dat ze gewoon klaar zijn met schrijven .	-0.4713665246963501
+Maar hij leek een beetje gespannen de laatste twee of drie dagen .	-0.3632102608680725
+Je bent zo gespannen de laatste tijd , zittend , aankomend gewicht en blaffen naar mensen .	-0.47883936762809753
+Het is duidelijk dat niemand voortdurend zo gespannen kan leven .	-0.6204801797866821
+De recente moorden op leden van vijf Roma-families zetten haar leven op het spel .	-0.36413997411727905
+Soms heb ik het gevoel dat mensen ... altijd nerveus zullen zijn over mij .	-0.41077953577041626
+De tanden van ieder die zure druiven eet zullen op de rand worden gezet . ''	-0.6595287322998047
+Je bent gespannen , je bent grillig , behalve wanneer je jaagt , want dan ben je ronduit eng .	-0.33903396129608154
+Haak toer 1 tot 4 langs de kant van de kant langs de andere kant .	-0.3833751976490021
+Ik denk dat iedereen een beetje gespannen was vanwege de gebeurtenissen in Londen .	-0.31116634607315063
+Ze zal kwetsbaar zijn , gespannen ... en God wil dat ze zelfs een fout maakt .	-0.4605430066585541
+Ondertussen staan er auto 's in brand , de politie staat op scherp , mijn verslaggevers zijn allemaal sukkels .	-0.4879206120967865
+Ik heb al twee weken geen seks gehad .	-0.3527796268463135
+Ik bedoel , ik denk , zoals iedereen met een groot huis , ik was gespannen .	-0.49759912490844727
+We hebben allemaal gehoord dat mensen verdwaald raken en nooit meer gezien worden .	-0.5069595575332642
+Je kunt niet allebei gespannen zijn , dus drink je bier en relax .	-0.5220016837120056
+Het meisje maakt ons een beetje nerveus met haar spookverhalen .	-0.3725624084472656
+Verbleef hier 15 september , kleine parkeerplaats gewijd aan campers aan de rand van het dorp .	-0.2881331741809845
+Na wat er met Tony is gebeurd , zijn we allemaal een beetje gespannen .	-0.3972513973712921
+Dan worden ze op de rand geplaatst zodat hun droging sneller en completer is .	-0.4899146258831024
+Soms zet het mijn tanden op scherp , soms helpt het me de chaos te beheersen .	-0.4852907359600067
+Eraf springen zonder veel provocatie , een paar aanvaringen met de andere jongens .	-0.7387405633926392
+Je weet wel , constant gespannen , bang dat een gek op hem gaat schieten .	-0.5217547416687012
+De muiters zijn allemaal gespannen omdat ze denken dat er demonen zijn op dit eiland .	-0.2850378751754761
+Een reeks aanvallen op vrouwen in Chula Vista heeft veel mensen op Edge .	-0.5162373781204224
+Wordt in de rondte naar beneden gebreid van kant op kant op voor- en achterpand .	-0.46359992027282715
+Hij liet Gateshead onder zijn eigen stoom , op de rand , in een haast , duimt een lift .	-0.42376717925071716
+Nou , Danny kwam vanmiddag langs , weet je , en hij leek een beetje gespannen .	-0.38985884189605713
+Zeer aangename locatie aan de rand van de stad met een kleine supermarkt , veel bars / cafes / restaurants .	-0.2158987820148468
+Het had me op het randje voor , nou ja , meer dan een beetje , dat kan ik nu zeggen .	-0.48610031604766846
+- En je bent waarschijnlijk een beetje gespannen ... door dat hele `` slouching toward Bethlehem '' gedoe .	-0.5671867728233337
+Mijn schoonouders zijn in de stad , de vrouw is gespannen omdat we de tweeling in slaap trainen .	-0.3442622125148773
+Ze is al gespannen , ik dacht dat ze je niet zo hoefde te zien .	-0.41774436831474304
+Verwijder fonograaf records van de speler of de opslagkast en pak ze op rand in kartons .	-0.4673961102962494
+Ze is de hoofdprogrammeur bij Pentillion Edge , die grote RD firma in Chelsea .	-0.3614956736564636
+Hij was al gespannen , en toen stak die verdomde clown een ballon in zijn gezicht .	-0.34411534667015076
+Maar ik was de hele dag gespannen ... alsof iets in me wist dat ze terug zouden komen .	-0.2998475134372711
+Hoge slijtvastheid , precisierand , optimale hardheidsstandaard en winstgevendheid voor elke soort snijmachines .	-0.40705183148384094
+Vroeger waren het een paar crackers in een SUV die de jungle op het randje zetten .	-0.37364432215690613
+Ze heeft me zo gespannen dat ik het bos niet heb kunnen zien voor de bomen .	-0.4388488233089447
+Dat was de enige kopie van mijn bestanden die ik had opgeslagen op EDGE DiskGO flash drive .	-0.15112625062465668
+Nee , je lijkt een beetje ... een beetje nerveus , wat heel begrijpelijk is .	-0.6864722371101379
+Dit wezen waar je het niet over wilt hebben heeft iedereen gespannen , en P.T . is gewoon ... het zilver aan het poetsen .	-0.476345956325531
+Naai de zakken op 13 cm van de kant en 6 cm van de rand van de band ( d.w.z . van middenvoor ) .	-0.41021448373794556
+Naai de pannenlap samen aan de onderkant met netjes , kleine st .	-0.40130630135536194
+Ze gaf je het gevoel dat je op gespannen voet leefde , dat dingen elk moment uit elkaar zouden vliegen .	-0.5764821767807007
+De aXtion Edge MagConnect case van The Joy Factory Surface Pro 4 kan overal worden genomen en gebruikt .	-0.19256280362606049
+Paddings op randen gemaakt van hoogwaardig materiaal van de Heymans outdoor trampoline biedt een zeer goede bescherming tegen verwondingen .	-0.3391954302787781
+Nee , we zijn een beetje gespannen omdat Lily zich gedraagt alsof ze geen broer of zus wil ...	-0.41726815700531006
+Immogo - koop huis in frankrijk -Stone House aan de rand van een rustig dorpje in de bosrijke Noordelijke Dordogne .	-0.25665611028671265
+Charmante typische Percheronne boerderij klaar om te verhuizen , op een prachtige rustige locatie aan de rand van een klein gehucht .	-0.2647343873977661
+Deze ribbons zijn gelegd op de rand en zijn gevormd tot een grote eimassa die lijkt op een mooie bloem .	-0.472156286239624
+De gemeenschap is gespannen sinds de staatspolitie bevestigde dat één man dag en nacht heeft aangevallen .	-0.48878374695777893
+Basteer het gareneinde van de kant naar boven en naar beneden door de eerste 6 st , trek samen en zet vast .	-0.5822151899337769
+Ga op de rand van de stoel zitten . Pak één knie vast met beide handen en trek de knie omhoog onder de oksel .	-0.3699883818626404
+Ik ben een beetje gespannen omdat we de laatste dagen anonieme pakketten en telefoontjes kregen .	-0.3955513834953308
+Het einde is zeker in zicht en een assertieve beweging zal jullie binnenkort dichter bij de tijd van Disclosure brengen .	-0.3070942461490631
+Oké , ik ben een beetje gespannen omdat ik gestopt ben met roken voor mijn interview met de burgemeester , dus ...	-0.3184303939342499
+Door de ondertekening van het protocol betreffende de douane-unie op 29 juli 2005 heeft Turkije iedereen onnodig op de proef gesteld .	-0.4541563391685486
+De normale en speciale ( S ) toleranties op de randcamber moeten worden weergegeven in tabel 4 ( zie ook 5.2 ) .	-0.4813752770423889
+Kijk , ik weet dat je nog steeds gespannen bent over dat hele `` niet schieten '' ding , maar je moet echt relaxen .	-0.42300504446029663
+In de Berlinale VIP Club , waar we de filmteams ontmoeten , zijn dingen vaak hectisch en zenuwen gespannen .	-0.32226473093032837
+Ik ben elke minuut gespannen , denkend dat hij op het pad zal lopen of de politie zal komen en me vertellen ...	-0.5034858584403992
+Mijn neven kruipen uit het ondiepe eind van de genenpoel , dus iedereen is een beetje gespannen .	-0.4065333902835846
+Zijwaartse deflectoren moeten een kromtestraal hebben van ten minste 1 mm op randen die naar buiten gericht kunnen worden .	-0.3174768090248108
+Een persoon die gevoelig was was in een staat van voortdurende spanning met hun zenuwen op de rand .	-0.387310653924942
+Jouw seksuele spanning , gebrek aan chemie zetten ons op het randje , ironisch genoeg , op elk niveau , houd je ons tegen om vrienden te zijn .	-0.42998039722442627
+Naai met geborstelde Alpaca zijde/melodie korte zijde ( = afkantrand ) samen met lange zijde , van markeerder en naar beneden tot gegoten rand .	-0.4032908082008362
+Als uw bedekking - niet bezusadochnoe , snijden op een plaats , vergeet niet om napusk op de randen ( 3-5 cm ) .	-0.38366377353668213
+Lengte van kant op kant tot onderkant middenvoor : ca . 57-52 cm ( korter in groter formaat door diepere hals ) .	-0.4371623694896698
+Gisteravond was hij zo gespannen dat hij tegen me knapte omdat ik de kerstversieringen wilde ophangen .	-0.5526872277259827
+Ze hebben het waarschijnlijk al uitgeladen , en als dat niet zo is , zullen ze gespannen zijn , hoog op hun eigen voorraad .	-0.5451071262359619
+Rustige ligging aan de rand van het dorp en in de zonnigste hoek van Axams . Ideaal voor skiërs en kinderen , ontspannen en informele sfeer .	-0.1495218575000763
+Om fysieke gevechten met hele families van plunderaars , de stad is op de rand , zelfs als buurman lijkt zich te keren tegen de buurman .	-0.4446149170398712
+Ook al zat Alison al opgesloten , haar vrienden waren gespannen over iemand die vragen stelde , of Mona 's spullen aanraakte .	-0.42401406168937683
+Om nog eens twee bands te noemen die opdook tijdens het beluisteren van dit album moet ik Edge Of Sanity en Facebreaker noemen .	-0.32069849967956543
+== Geschiedenis ==Op 11 april 1995 werd de titel gegeven aan een rapport uit Tokyo : `` A String of Disasters Leaves Japanese on Edge . ''	-0.6654555201530457
+En onder de mensen is er iemand die Allah aanbidt en wanneer er iets goeds op zijn weg komt , dan is hij er tevreden mee .	-0.6184290647506714
+De wielsterkte met betrekking tot de breuken aan de randen en andere kritieke punten wanneer het wiel een obstakel raakt , moet worden gecontroleerd .	-0.3567648231983185
+Naai de naad middenachter naai de kant af tegen de kant kant , kant aan kant met 1 steek in elke st .	-0.4813859462738037
+On Edge De Microsoft Rand browser op Xbox One heeft een modernere look en feel en betere controller navigatie gekregen .	-0.2967509925365448
+Herhaal deze 2 nld tot er 1 st is gebreid in elke st langs de hele kant van de kant van de kant .	-0.39868637919425964
+RockabillyKids is een nieuw kledingmerk dat gelanceerd zal worden op de London Edge Alternative Fashion Trade Show op 5-7 februari 2012 .	-0.20619627833366394
+30 Maar een iegelijk zal sterven om zijn ongerechtigheid ; een iegelijk , die de zure druif eet , zijn tanden zullen gespannen worden .	-0.3347940742969513
+In die dagen zullen zij niet meer zeggen : De vaders hebben een zure druif gegeten , en de tanden der kinderen zijn gespannen .	-0.2967928647994995
+Bovenste en basic grondslagen worden op de boorden met de kleefstof koude otverzhdeniya ingevet en met bokovinami door middel van nagels of schroeven gevat .	-0.6074243187904358
+Gebruik het spreekwoord niet meer dat zegt : 'De vaders hebben zure druiven gegeten en de tanden van de kinderen zijn gespannen . '	-0.43219199776649475
+One-tier Waltz Bruids Sluiers met Lint Rand ( 00600246 ) - JennyJoseph Vul hier uw maten in centimeters in om uw artikel speciaal op maat gemaakt te ontvangen .	-0.19786202907562256
+Paradiso ( De Bezige Bij , 2008 , 293 pagina 's ) Vanaf de allereerste pagina 's van zijn nieuwe roman zet Kees van Beijnum de lezer voorop .	-0.22875475883483887
+Twee-tier Kathedraal Bruidssluiers met Lint Rand ( 006004370 ) - JennyJoseph Vul hier uw maten in centimeters in om uw artikel speciaal op maat gemaakt te ontvangen .	-0.24765314161777496
+Two-tier Waltz Bruidssluiers met Lint Rand ( 006003747 ) - JennyJoseph Vul hier uw maten in centimeters in om uw artikel speciaal op maat gemaakt te ontvangen .	-0.2282290756702423
+Het startpunt is de video 'The Hunt ' van Christian Jankowski ( DE ) die humoristisch de vervreemding tussen stadsbewoners en voedsel op de rand zet .	-0.3377304673194885
+Kijk , ik weet dat iedereen een beetje gespannen is , maar ik moet zeggen dat ik denk dat we vandaag veel goeds hebben gedaan .	-0.4209897220134735
+Het enige verschil is dat 'Chanteur ' Didier Delsaux meer een Bruce Dickinson randje in zijn stem heeft en Andy Kuntz van Vandenplas niet .	-0.19432421028614044
+Twee-tier Elleboog Bruidssluiers met Lint Rand ( 006003748 ) - JennyJoseph Vul hier uw maten in centimeters in om uw artikel speciaal op maat gemaakt te ontvangen .	-0.2356274574995041
+Two-tier Waltz Bruidssluiers met Lint Rand ( 00600243 ) - JennyJoseph Vul hier uw maten in centimeters in om uw artikel speciaal op maat gemaakt te ontvangen .	-0.22962220013141632
+Tijdens het SmackDown main event versloeg Jeff Hardy Triple H en WWE Champion Edge in een wedstrijd met drie deelnemers om het kampioenschap te winnen .	-0.2680067718029022
+Twee-tier Elleboog Bruidssluiers met Lint Rand ( 000605419 ) - JennyJoseph Vul hier uw maten in centimeters in om uw artikel speciaal op maat gemaakt te ontvangen .	-0.24436169862747192
+Two-tier Lint Edge Waltz Bruids Vouw met Lint ( 000696810 ) - JennyJoseph Vul hier uw maten in centimeters in om uw artikel speciaal op maat gemaakt te ontvangen .	-0.20903709530830383
+Kant losjes 64 st op met rondbreinld 8 mm met Puddel . LET OP : Zorg dat de kant niet te strak zit .	-0.26197150349617004
+Bloeit van juni tot eind september . Groeit op de glades van de bossen , tussen de struiken , op de boswegen , op de randen van de bossen , op de landelijke begraafplaatsen .	-0.4519314467906952
+Gebruik de op- en neertoetsen in de nieuwe menulaag om de cursor naar de regel `` On Edges '' te verplaatsen en druk op F4 = Enter .	-0.28425365686416626
+Gelukkig omdat Hans Peter een geweldige Grand Prix Special reed op GLOCK 's Romanov , hoewel Edward , Nicole , Anna en de anderen er gespannen uitzagen .	-0.3399355709552765
+Met een vooraf geladen power-based workout op Edge 1000 kunt u uw functionele drempelvermogen ( FTP ) berekenen , waaruit u uw power training zones kunt baseren .	-0.39898034930229187
+Ze is een goede vrouw en , hoewel de zin genoeg is om je tanden op scherp te zetten , zijn er momenten dat haar deugd bewondering vraagt .	-0.43494269251823425
+Minder bij een hoogte van 9 cm vanaf de kant kant 1 st aan elke kant van 4 st aan elke kant - Read DECREase TIP 1 !	-0.303263396024704
+Behang na constructie randen omhoog , borstelen lijm moet worden gecontroleerd of het uniform en het wandoppervlak water absorptie , passend verhogen van de kleefkracht van lijm .	-0.41213905811309814
+Kun je ons even uitleggen wat er hier aan de hand is ... waardoor jullie zo gespannen zijn ?	-0.5279648900032043
+Bovendien , met het IPS-display , is er geen vervorming zelfs op randen en hoeken , dus makers ervaren de volledige expressie van visuele inhoud voor echt meeslepend bekijken .	-0.4158982038497925
+Op de Royal Rumble 2009 verloor Hardy zijn WWE Championship aan Edge nadat Hardy 's broer , Matt , zich bemoeide met Edge 's naam en Hardy raakte met een stalen stoel .	-0.3337896764278412
+Knip 4 lengtes bruin van ongeveer 18 cm . Vouw ze dubbel en trek de lus door de kant en trek vervolgens de draadeinden door de lus .	-0.372494637966156
+Een tweede niveau zou kunnen bestaan uit kommen of oneven - gevormde artikelen , elk apart verpakt en vervolgens gebundeld . Bowls ook moeten worden geplaatst op de rand .	-0.4568674564361572
+Schat , ik weet dat je gespannen bent met alles wat er gebeurd is , en ik begrijp het , maar ik weet nog steeds niet zeker of we iets hebben om bang voor te zijn .	-0.3179742395877838
+Stel gewoon het doel in op Rand 520 , start met trappen , en de trainer zal automatisch aanpassen om u op uw doel te houden , terwijl de 520 toont uw statistieken .	-0.3900297284126282
+En je kunt niet hebben nagelaten te merken dat de zenuwen de laatste tijd weer gespannen zijn en dat beide kanten zich verschuilen achter principiële vragen .	-0.5580933690071106
+Zijn islamitische agenda plaatste cruciale overheidsinstellingen .. namelijk het leger en de rechterlijke macht .. op de rand en botste met de liberale , het moderniseren van de eisen van de tegenstanders .	-0.6107171773910522
+Het is mogelijk om op twee armen een brede plank over een deur , met hoge , tot 60 mm , kanten aan de randen die banken niet glijden vast te stellen .	-0.4853072166442871
+In de buurt is entertainment , bars en de restaurants en cafés op Edgeware Road . In een paar minuten kunt u winkelen in Oxford Street , Bond Street , Kensington of Knightsbridge .	-0.20490117371082306
+Haak 1 toer met v op haaknld 3 mm rond staaldraad + gieten op de rand , dit wordt gedaan om hoed stevig aan de onderkant te maken .	-0.3284565508365631
+18:2 Wat betekent het , dat gij dit spreekwoord gebruikt van het land Israels , zeggende : De vaders hebben zure druiven gegeten , en de tanden der kinderen zijn geboeid ?	-0.3749612271785736
+Naai samen voor de mouwen als volgt : Plaats A tegen B - zie grafiek - en naai de rand tegen de rand van de kant en 10-10-10-11-11-11 cm in de richting van het midden .	-0.3370012044906616
+Hoe kan het dat ik in de meest kolossale catastrofe ooit kan zijn ... maar ik ben nu minder gespannen met jou dan de hele zomer met Paige .	-0.45694175362586975
+2 Wat zijt gij , dat gij dit spreekwoord gebruikt van het land Israels , zeggende : De vaders hebben zure druiven gegeten , en de tanden der kinderen zijn geboeid ?	-0.39986738562583923
+Wat bedoelt gij , dat gij dit spreekwoord gebruikt over het land Israels , zeggende : De vaders hebben zure druiven gegeten , en de tanden der kinderen zijn gespannen ?	-0.4046601355075836
+De vaders hebben een zure druif gegeten en de tanden van de kinderen zijn gespannen ; maar wie de zure druif eet , zijn tanden zullen op de rand worden gezet .	-0.397297203540802
+Wat de exacte data voor dit alles betreft , zou het dwaas van ons zijn om dit aspect van onze plannen te onthullen omdat we het duister op de rand willen houden .	-0.40337860584259033
+Ik waardeer het , echt waar , maar je weet dat ik nerveus ben vanwege dat Tyler-Klaus gedoe , dus je doet alsof het uitmaken met Damon geen probleem was .	-0.3728748559951782
+GAD kan ook rusteloosheid veroorzaken of een gevoel van gevoel van gevoel op of op de rand veroorzaken , gemakkelijk vermoeid zijn , moeite hebben zich te concentreren of denken leeg te gaan , zich prikkelbaar voelen , spierspanning of slaapstoornissen hebben .	-0.5328941941261292
+3.1 Toleranties op de dikte 3.2 Toleranties op de lengte 3.3 Toleranties op de breedte 3.4 Toleranties op de vlakheid 3.5 Toleranties op de breedte 3.6 Toleranties op de randruimte 3.7 Superimponatie van de afmetingen	-0.34924980998039246
+2 Wat zijt gij , dat gij dit spreekwoord gebruikt van het land Israels , zeggende : De vaders hebben zure druiven gegeten , en de tanden der kinderen zijn gespannen ?	-0.37786340713500977
+De buyout waarde schatten module geeft u de onderhandeling rand omdat je weet hoeveel het bedrijf is echt waard.Eenvoudige installatie kunt u springen in en analyseren van gegevens meteen	-0.4450550079345703
+Een sfeer van angst en urgentie leidt alleen maar tot rijen en zet zenuwen op het randje - en onnodig , aangezien de nationale munt zal blijven bruikbaar voor een relatief lange periode ( 45-60 dagen ) .	-0.38593941926956177
+In het toekomstige pand van Galerie Sissingh een voormalige auto garage .. Zwitserse kunstenaar Bastien Gachet zet de kijker te staren op de rand door het werpen van twijfel op zelfverklaarbare ruimtes en objecten .	-0.5646177530288696
+Onnodig te zeggen dat iedereen hier de laatste tijd een beetje gespannen is , maar gelukkig hebben we voldoende voorzorgsmaatregelen om te voorkomen dat een dergelijke gebeurtenis een ernstige bedreiging vormt .	-0.5274705290794373
+Als je bang bent om iets te zeggen of te doen wat een klap zou kunnen zijn om partij te kiezen , voel je je op het randje wanneer je bij je ouders bent , bang dat je in het conflict wordt gesleept .	-0.5569398999214172
+GAD kan ook rusteloosheid veroorzaken of een gevoel van gevoel van gevoel op of op de rand veroorzaken , gemakkelijk vermoeid zijn ( vermoeid ) , moeite hebben zich te concentreren of denken leeg te gaan , zich prikkelbaar voelen , spierspanning of slaapstoornissen hebben .	-0.517846941947937
+Toen luitenant Goldman en Beller die avond terugkwamen en rapporteerden ... vertelde ik generaal Elliot dat Beller en zijn mannen gespannen waren .	-0.4598698318004608
+Naai de puntjes aan de bovenkant van de muts ( aan de andere kant van de markeerders ) samen met de rand met kleine steken . Naai de kant op en kant de rand samen middenachter .	-0.4300767183303833
+In 1996 werd de economische groei echter vertraagd , de werkloosheid en de inflatie verslechterden , de overheidsfinanciën stonden onder enige druk , het tekort op de lopende rekening steeg en in mei 1997 moest de valutaband worden afgeschaft .	-0.4521038234233856
+De parket hamer ( vijg . 44 , 6 ) gewicht 910г heeft een schuine sok welk in de klap op de randen van parket zonder de voering niet kreupelen , groeven en aangezichtshoeken van de randen .	-0.48317426443099976
+Er wordt melding gemaakt van een straal van 2,5 mm tot 5 mm voor hoeken , van intrekbare treden , van duidelijke markeringen op randen en zelfs van automaten voor warme dranken en kookapparatuur .	-0.4014130234718323
+Hebt gij niet gelezen in de Schrift , waar de Profeet Jeremia zegt : `` In die dagen zullen zij niet meer zeggen , de vaders hebben zure druiven gegeten en de kinderen tanden zijn op de rand gezet .	-0.4248986840248108
+In de Bijbeltijd hadden de Joden een gezegde : .Vaders zijn degenen die onrijpe druiven eten , maar het zijn de tanden van de zonen die op de rand worden gezet ..... Ezechiël 18 : 2 .	-0.5034686923027039
+Stoom de sjaal lichtjes met een stoomstrijkijzer om de sleur mooi te maken . Stoom van gegoten op de rand en uit tot ongeveer 1 cm binnen de sleur ( niet stoom de afkantrand ) .	-0.5795878767967224
+Plaats de afkantrand op het 1e deel naar rechts lange kant op het 2e deel - aan de onderkant naar de kant en 41-45-49-54 cm naar boven.Zorg ervoor dat u het werk niet te veel uitrekt .	-0.5120997428894043
+Hiervoor is het heel goed mogelijk om afval van schrijnwerk te gebruiken . Op de randen worden deze planken gemaaid , dat de gewrichten vooral merkbaar zijn wanneer hout begint op te drogen werden toegewezen .	-0.658902108669281
+Er zal niet meer gezegd worden : `` De vaders hebben een zure druif gegeten en de tanden van de kinderen zijn gespannen ; maar wie de zure druif eet , zijn tanden zullen gespannen worden . ''	-0.40909212827682495
+Terrassen niet alleen goed te repareren grond , maar ook te bevorderen aftrek van regenwater . En dat stromen van regenwater niet nemen van de aarde van hellingen , op de rand van terrassen graven water weg te nemen fluiten .	-0.42035818099975586
+Het begint met tekenen door middel van een vierkante doorsnede potlood risok . Op het einde doellatten , waar zal een doorn , risico 's doen op alle perimeter , op de doellatten met het oog - alleen op de randen .	-0.5007646083831787
+Plaats bij een hoogte van 5 cm een markeringsdraad in de maat van het werk vanaf hier , ga verder in Rib gedurende 5 cm ( = boordsteek meet 10 cm van kant op de rand ) - en ga verder met naaldmaat 3mm .	-0.5358394384384155
+Het hele publiek was gespannen ; ze verwachtten een buitengewone manifestatie van bovennatuurlijke macht te zien die een passend getuigenis zou zijn van de aard en autoriteit van hem die die dag tot hen sprak .	-0.41250795125961304
+Kant nu de st aan de voor- en achterkant samen 2 bij 2 TEGELIJKERTIJD af . Naai de pannenlap samen aan de onderkant met nette , kleine steken aan de kant naaien .	-0.47232311964035034
+De Europese Centrale Bank heeft haar benchmarkrente verhoogd van 3 % naar 4,75 % , maar in de tussentijd is ook de inflatie toegenomen , waardoor een groot deel van de stijging van de nominale rente is ontstaan .	-0.5691500902175903
+Met een sterke line-up : Kim Chi ( bas , zang ) , Sam Soto ( gitaar ) , Jason Edge ( gitaar , zang ) en Mat Young ( drums ) , richtte ze een nieuw project/band op genaamd 'Original Sinners ' en bracht dit jaar hun titelloze debuutalbum uit via Nitro Records .	-0.18437661230564117
+Burgers op de rand Blijf op de hoogte van de reacties van de stad op de uitbarsting van criminele bende oorlogen door middel van in-game social media feeds , de vasthoudend stadsblad de Daily Bugle , en de steeds uitgesproken J. Jonah Jameson en zijn podcast , Just the Facts .	-0.3226076662540436
+Als ik dit duet ga doen , zal de volgende plaat die ik doe op Edgehill mijn eigen muziek zijn geproduceerd door Liam , en ik wil nooit meer een woord horen over dit grootste hit album tenzij het mijn idee is .	-0.3461425304412842
+Herhaal meerder tot het werk 30 cm meet , gemeten diagonaal langs de kant van de kant van de kant . Onthoud de knopen TENSION . Ga verder met strepen zoals hiervoor , minder TEGELIJKERTIJD 1 st aan het begin van elke nld door 2 st samen te breien .	-0.45166587829589844
+Brei 1 nld over alle st ( aan de goede kant ) , brei de volgende nld als volgt ( aan de verkeerde kant ) : Neem de buitenste st van de kant op , brei de eerste st van de linker nld , brei de nieuwe st over , brei de rest van de nld .	-0.23157332837581635
+Bijvoorbeeld , in de schemering en avond-tijd de zogenaamde camouflage combinatie van de kleren van voetgangers en omliggende achtergrond daarom de bestuurder niet ziet de voetganger gaan op rand proezzhej van een deel of een weg wordt heel vaak waargenomen .	-0.49057596921920776
+Voor de definitieve verpakking van de gerolde tapijt bekleding moet een volledige rust in de uitgespreide soort een minimum twee dagen . Als uw bedekking - niet bezusadochnoe , snijden op een plaats , vergeet niet om napusk op de randen ( 3-5 cm ) .	-0.5224018692970276
+Linker voorkant : zet de 8 st van de hulpdraad terug op breinld 2.5 mm / US 1.5 en brei de Rib , zet tegelijkertijd 1 nieuwe st op naar het voorpand ( = st voor het naaien op de rand , brei in ribbelst in de hele st ) .	-0.42158764600753784
+En onder de mensen is er iemand die Allah aanbidt als opperhoofd . Als hem iets goeds overkomt , dan is hij er tevreden mee en als hem een beproeving treft , dan keert hij zich om op zijn gezicht ; hij verliest de wereld en het Hiernamaals .	-0.5748116970062256
+Meer details Materiaal & Care Maattabel Levering & Retourneren Meer details Zwarte sjaal voor dames Gouden strepen , exclusieve aardbeienprint van Elise , opengewerktRechthoekig formaat , kwastjes op randenAfmetingen : 90 cm x 190 cm Fashion Tip : Een bedrukte sjaal op een gouden gestreepte achtergrond , perfect tijdens het wachten op de zomer .	-0.3151739537715912
+Microsoft heeft zojuist een beta-versie van de eerste Android webbrowser vrijgegeven ; Microsoft Edge Preview is de naam van de browser , en terwijl het de naam deelt met Windows 10	-0.3298526108264923
+We worden op de rand gehouden van de geboorte door onderwijs , door de competitieve arbeidsmarkt en wat ze noemen succes of mislukking , of huwelijken en alle andere dingen die uit elkaar vallen omdat alle oude instelling is aangevallen door degenen die het regeerden en gaf het aan ons in de eerste plaats .	-0.5054290294647217
+COMPARE FUNCTIES Veiligheid Nieuws en tips BULLGUARD BLOG Transportsysteem gericht BULLGUARD BLOG Zeven miljoen records gehackt in de stad Salem aanval BULLGUARD BLOG Dojo door BullGuard wint IoT Evolution Edge Excellence Award 2018 Alle blogs bekijken Vergelijk producten Antivirus Internet Security Premium Protection Meerdere lagen van bescherming om u veilig en uw apparaten draaien soepel .	-0.21988625824451447
+ZAR 294.38 Meer info Bound Gods - The Official Greeting of The Dom of The House ZAR 294.38 Meer info Men on Edge - Straight Rugby Player ZAR 294.38 Meer info Slave Girls Fucked ZAR 154.57 Leveringsinformatie Voor de verpakking en verzending van uw bestelling vragen we een kleine bijdrage op basis van gewicht en producten besteld .	-0.09082541614770889
+Heldere en zwaarlijvige pylivaiut basis ; vet het , back party van een patch en turned on randen van oude linoleum met mastiek ; Zet een patch op zijn plaats , goed glad en prigruzhajut zware lading . Als in het proces priglazhivaniya mastiek wordt geperst , het onmiddellijk schoon , veeg de bevuilde plaatsen oplosmiddel , stapel een papier , een bord of multiplex en prigruzhajut .	-0.4025423228740692
+Binnen 30 dagen retourneren Winkels in Alblasserdam , Brouwersdam , Oostvoorne & Zevenhuizen U moet ingelogd zijn om deze functie te gebruiken.Delen Deel dit product Uw review toevoegen Beoordeel Edge Tuner Opslaan Home Edge Tuner Demon Edge Tuner 0 reviews - uw review toevoegen Artikelcode 010210410101 €14,99 De Demon Edge Tuner is op voorraad en klaar om verzonden of opgehaald te worden .	-0.08080434054136276
+Boek - Paradiso - Letterenfonds Nederlands Home Programma 's Subsidies Schrijvers en vertalers Over het fonds Nieuws Publicaties Toekenningen Agenda Contact English Home Programs Subsidies Authors and translators About the foundation News Publications Grants awarded Agenda Contact Boek Kees van Beijnum Paradiso De betekenis van geluk Vanaf de allereerste pagina 's van zijn nieuwe roman zet Kees van Beijnum de lezer voorop .	-0.13297773897647858
+== Differentiaal geometrische formulering van de Canny-randdetector ==Een verfijndere benadering om randen met subpixelnauwkeurigheid te verkrijgen is door gebruik te maken van de benadering van differentiaalranddetectie , waarbij de eis van niet-maximale onderdrukking wordt geformuleerd in termen van tweede- en derde-ordederivaten berekend uit een schaalruimterepresentatie ( Lindeberg 1998 ) Zie het artikel over randdetectie voor een gedetailleerde beschrijving .	-0.38174405694007874
+Dit is een land dat de energievoorziening als wapen gebruikt , een land wiens cavaliergedrag in de Kaukasus en de Baltische staten de zenuwen van zijn buren op scherp zet , en een land waar de rechtsstaat buigt en buigt om degenen die voor het Kremlin zijn tegemoet te komen , en de schroeven draait op degenen die dat niet zijn , zoals het nieuwe proces tegen Michail Chodorkovsky vandaag bevestigt .	-0.40112075209617615
+De S27 skate is het eerste model in deze Supreme Line met de Tuuk Edge Holder Meer informatie Maak een keuze : Op voorraad Winkel CHF 305,55 Aantal Voer het aantal in en klik op Label Ok TUUK LightSpeed 5 Carbon Edge Runners Merk : Bauer Reviews : ( 0 ) De Bauer TUUK LightSpeed 5 carbon Edge lopers hebben een zachte binnenkant voor verbeterde randkwaliteit en scherpte .	-0.18190202116966248
+Dus ze geven je al dit drama en natuurlijk wanneer ze grote veranderingen maken in hun eigen systeem , let wel , de grote jongens geven je veel angst , veel angst om je zorgen over te maken : komende plagen , opwarming van de aarde , oorlogen in het buitenland . Alles wat zou kunnen worden gedaan door de wetenschap vandaag kunnen ze eigenlijk doen , maar ze zijn angstaanjagend het leven uit het publiek en dat houdt hen op de rand .	-0.3292214274406433
+Een enthousiaste bewonderaar beschreef ze op deze manier : Er waren scheermes - ruggen en pieken , rots monolieten , gebogen koepels , spleten en spleten en hollen - uitgeholpen ponden omringd door rode heuvels aan elke horizon ... convex , concave , geschulpt , en recht omhoog op de rand of kantelend over , in een ongelooflijk doolhof waar de diep ommuurde waterlopen een weg hadden gekerfd .	-0.4162609279155731
+De reden voor de maatregel was de niet-conformiteit van de grastrimmer met de essentiële veiligheids- en gezondheidseisen van bijlage I bij Richtlijn	-0.5005592703819275
+==Import== * Nendo ( .ndo ) * 3D Studio ( .3ds ) * Adobe Illustrator ( .ai ) * Autodesk FBX ( .fbx ) * Lightwave/Modo ( .lwo/.lxo ) * Wavefront ( .obj ) * PostScript ( Inkscape ) ( .ps ) * Encapsulated PostScript ( .eps ) * Stereolithografie ( .stl ) ==Export=== * Nendo ( .ndo ) * 3D Studio ( .3ds ) * Adobe Illustrator ( .ai ) * BZFlag ( .bzw ) * Kerkythea ( .xml ) * Autodesk FBX ( .fbx ) * Lightwave/Modo ( .lxo ) * Wavefront ( .obj ) * POV-Ray ( .pov ) * Cartoon ( .Epges ) * Edografie ( .Epthografie ) * R	-0.19410440325737

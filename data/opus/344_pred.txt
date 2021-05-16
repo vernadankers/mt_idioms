@@ -1,0 +1,500 @@
+De truc doen ?	-0.5274534821510315
+Dat is genoeg .	-0.6427281498908997
+Dat werkt niet .	-0.6051226854324341
+Dat is genoeg .	-0.6427281498908997
+Dat is genoeg .	-0.6427281498908997
+Dat zou het moeten doen .	-0.8520609736442566
+Dat zal de truc zijn .	-0.7704287767410278
+Dat zou het moeten doen .	-0.8520609736442566
+Is dat de truc ?	-0.672114372253418
+Doet dit de truc ?	-0.6254342794418335
+Desinfectiemiddel zal de truc doen .	-0.5374460816383362
+Dat is genoeg .	-0.6427281498908997
+Dat is genoeg .	-0.6427281498908997
+De koffie van de sheriff is genoeg .	-0.45776745676994324
+Dat moet genoeg zijn .	-0.5718708634376526
+Dit moet de truc zijn .	-0.6240854263305664
+- Dat is genoeg .	-0.7599942088127136
+Dit zal de truc doen .	-0.5214467644691467
+- Dit moet genoeg zijn .	-0.683064877986908
+Doet dit de truc ?	-0.498373806476593
+Dat moet genoeg zijn .	-0.687678337097168
+Dat moet genoeg zijn .	-0.5718708634376526
+Dit zal de truc doen , Norm .	-0.4660303592681885
+Dat moet genoeg zijn .	-0.5718708634376526
+- Dat is genoeg .	-0.6456025838851929
+Dat moet genoeg zijn .	-0.5696901082992554
+Misschien is dat genoeg .	-0.5738887786865234
+Dit moet de truc zijn .	-0.6240854263305664
+Deze jongens doen de truc .	-0.5983878374099731
+Misschien is dat genoeg .	-0.5738887786865234
+Ze moeten de truc doen .	-0.42408767342567444
+Oké , dit is genoeg .	-0.5416066646575928
+Dat moet genoeg zijn .	-0.5718708634376526
+Dit moet de truc zijn .	-0.6240854263305664
+Dat zou de truc kunnen zijn .	-0.5787637829780579
+Dit moet de truc zijn .	-0.6240854263305664
+Dat zou de truc kunnen zijn .	-0.5787637829780579
+Dat zou de truc kunnen zijn .	-0.5787637829780579
+Dat moet genoeg zijn .	-0.5718708634376526
+Heeft het de truc gedaan ?	-0.5301651358604431
+Lijkt de truc te doen .	-0.4674735963344574
+Dat moet genoeg zijn .	-0.5718708634376526
+Chips zal de truc doen .	-0.4262157678604126
+Dit moet de truc zijn .	-0.6240854263305664
+Heeft dat de truc gedaan ?	-0.5846090912818909
+Ja , dat zou de truc zijn .	-0.43533095717430115
+Lang moet de truc doen .	-0.3753228783607483
+Gaat dat de truc doen ?	-0.6713961958885193
+Dat moet genoeg zijn .	-0.5718708634376526
+Dit moet de truc zijn .	-0.6240854263305664
+Dat moet genoeg zijn .	-0.5718708634376526
+Oh , dat zal de truc zijn .	-0.5379822254180908
+Het zou de truc moeten doen .	-0.5599820017814636
+Dit moet de truc zijn .	-0.6240854263305664
+Zal dit de truc doen ?	-0.517204999923706
+Dit moet de truc zijn .	-0.6240854263305664
+Dit moet de truc zijn .	-0.6240854263305664
+Nou , dit zal de truc doen .	-0.5017175674438477
+Deze zullen de truc doen .	-0.5939309000968933
+Zal het de truc doen ?	-0.4782010018825531
+Dit moet de truc zijn .	-0.6240854263305664
+Dat moet genoeg zijn .	-0.5718708634376526
+Dat moet genoeg zijn .	-0.5718708634376526
+Dit moet de truc zijn .	-0.6240854263305664
+Lijkt de truc te doen .	-0.4674735963344574
+Dat zou waarschijnlijk de truc zijn .	-0.5411748290061951
+Dat moet genoeg zijn .	-0.5961666703224182
+Helaas ... deed het de truc niet .	-0.5151149034500122
+Genoeg om de truc te doen , vermoedelijk .	-0.369040846824646
+Het heeft niet echt gewerkt .	-0.5451057553291321
+Ik denk dat het de truc is .	-0.5370668768882751
+Drie drankjes moeten genoeg zijn .	-0.5189637541770935
+Ze leken de truc te doen .	-0.432770311832428
+En dat zal de truc zijn ?	-0.6405767202377319
+Dat werkt niet altijd .	-0.6187155842781067
+- Deze Batmagneet moet de truc doen .	-0.5636201500892639
+- Deze moeten genoeg zijn .	-0.773199200630188
+Ik denk dat dit de truc is .	-0.47597163915634155
+Zal de paraffine de truc doen ?	-0.3603743612766266
+Koffiepot zal de truc doen .	-0.5133121609687805
+De banken zouden de truc doen .	-0.502819299697876
+Die brief zal de truc doen .	-0.5202085971832275
+Oké , dat moet genoeg zijn .	-0.5244120955467224
+Ze lijken de truc te doen .	-0.43004968762397766
+Deze oxycodone moet de truc doen .	-0.4566163122653961
+Een kabel van 300 meter is genoeg .	-0.7084309458732605
+Deze moet de truc doen .	-0.5396485924720764
+Een theelepel moet de truc doen .	-0.4449846148490906
+Ik dacht dat hij het wel zou doen .	-0.4221276342868805
+Je doet de truc ... prima .	-0.5016551613807678
+Zal $ 5000 de truc doen ?	-0.6160918474197388
+Ik denk dat dat de truc is .	-0.5641864538192749
+Niets lijkt de truc te doen .	-0.484781414270401
+- Het zal de truc doen .	-0.5378638505935669
+Hij die de truc moet doen .	-0.7426863312721252
+Dat moet genoeg zijn .	-0.5961666703224182
+Dit gaat de truc doen .	-0.5185881853103638
+- Zal dat de truc doen ?	-0.6646648645401001
+Het lijkt de truc te doen .	-0.5062969326972961
+Het is ondoordringbaar , het zal de truc doen .	-0.393382728099823
+Dat moet genoeg zijn .	-0.5961666703224182
+Maar kunnen ze de trucs doen ?	-0.5045396685600281
+Ik dacht dat hij het wel zou doen .	-0.4221276342868805
+Vier wagens zouden de truck doen .	-0.5973778963088989
+Dat moet genoeg zijn , Hogan .	-0.3954615592956543
+Ik hoop dat deze de truc doen .	-0.38577136397361755
+Ik denk dat het de truc is .	-0.5482816100120544
+Maar dit kan de truc zijn .	-0.46053898334503174
+Zou een microfilament de truc doen ?	-0.3664551079273224
+Laten we hopen dat ze de truc doen .	-0.3420684337615967
+Dat moet genoeg zijn .	-0.5961666703224182
+Het kan de truc niet meer doen .	-0.4744942784309387
+- Maar ze doen de truc .	-0.45423582196235657
+Een andere dosis moet genoeg zijn .	-0.5451963543891907
+Ik dacht dat dit kon helpen .	-0.5370352268218994
+Dave , deze baby moet de truc doen .	-0.3377222716808319
+Ze doen het gewoon niet meer .	-0.4167744517326355
+Een kleine afleiding zou de truc moeten doen .	-0.472355455160141
+Zullen de nieuwe maatregelen de truc doen ?	-0.520862877368927
+Hij zei dat het de truc zou doen .	-0.4519454836845398
+Soms doen antibiotica alleen de truc niet .	-0.5863090753555298
+De reserves kunnen de truc doen .	-0.6652694940567017
+Een ijsblokje zou de truc doen .	-0.5132969617843628
+Ze doen de trucs in de film .	-0.38203299045562744
+Persoonlijk denk ik dat ze de truc doen .	-0.3509760797023773
+- Een beetje koffie is genoeg .	-0.6557145118713379
+- Tien pond moet genoeg zijn .	-0.5692901611328125
+Dit calcium moet genoeg zijn , Humphrey .	-0.48188745975494385
+Mijn blauwe `` harpoen-tang '' zou de truc moeten doen .	-0.40182775259017944
+Ik denk dat dit de truc is .	-0.5097037553787231
+Dus ik hoop dat ze de truc doen .	-0.3406388461589813
+Deze puppy 's moeten de truc doen .	-0.4625912308692932
+Ik denk dat dit de truc is .	-0.5097037553787231
+Oké , dit zal de truc doen .	-0.4860195219516754
+Deze kauwgomverpakking zal de truc doen .	-0.5775537490844727
+Gewoon likken , plakken ... het zal de truc doen .	-0.5286680459976196
+Koffie is niet genoeg .	-0.5696837902069092
+De laatste injectie deed het niet .	-0.49360620975494385
+Een 13-inch tv zou de truc moeten doen ...	-0.4952385425567627
+Oké , dat moet genoeg zijn .	-0.5146740674972534
+Ik dacht dat dat wel zou werken .	-0.6434940099716187
+De bananenbits doen meestal de truc .	-0.6320132613182068
+Dat zou de truc moeten zijn , nietwaar ?	-0.5966680645942688
+Een goede stompin ' zal de truc doen .	-0.8332192301750183
+Dit is sho ' gaat de truc doen .	-0.5855183005332947
+Denk je dat sommige dextroamfetaminen de truc doen ?	-0.4554974138736725
+Mijn kleine creatie moet de truc doen .	-0.5238271951675415
+Hij vindt dat je de truc moet doen .	-0.46381819248199463
+Een verlaten gebouw zou de truc doen .	-0.37657999992370605
+Nog één handtekening moet genoeg zijn .	-0.5286524891853333
+We dachten dat dat zou helpen .	-0.5562039017677307
+Gigabyte van RAM moet de truc doen .	-0.29531294107437134
+Drie hechtingen moeten genoeg zijn .	-0.4535444974899292
+Vertel me hoe je de truc doet .	-0.3266853988170624
+Ja , dat zou waarschijnlijk de truc zijn .	-0.45210015773773193
+Deze jonge sapling zou de truc moeten doen .	-0.6374970078468323
+Koekjes doen het niet , Lou .	-0.3709637224674225
+Hopelijk zal deze nieuwe afscherming de truc doen .	-0.5361446738243103
+Meer als modder , maar het zal de truc doen .	-0.48327597975730896
+Ik ben er vrij zeker van dat dit de truc zal doen .	-0.46668609976768494
+Ik hoop dat een heet bad het zal doen .	-0.5795760750770569
+Ik denk dat het uniform het wel kan .	-0.568839430809021
+Kijken naar je handen kan de truc doen .	-0.4974803030490875
+Nou , zoiets als Melenex zou de truc kunnen doen .	-0.4500872790813446
+Ik laat hem zien hoe hij de truc moet doen .	-0.37599116563796997
+Het volgende sh script moet de truc doen :	-0.30573850870132446
+Perfect , een paar van deze zullen de truc doen .	-0.6934047341346741
+Dus ik dacht dat het genoeg was .	-0.6637465357780457
+Oh , nou , dan zou dat de truc zijn .	-0.4856559932231903
+Die hammen doen het niet meer .	-0.498524934053421
+Kijk door zijn telefoon moet de truc doen .	-0.5544027090072632
+Ik denk dat het grote logboek niet de truc deed .	-0.7522281408309937
+Het laken zou het voorlopig moeten doen .	-0.6079002618789673
+Mooie fles sherry moet de truc doen !	-0.453767865896225
+Kijken naar Denise 's foto kan de truc zijn .	-0.45420148968696594
+Nou , iets dat misschien de truc kan doen .	-0.5820520520210266
+Opruimen is niet genoeg .	-0.5345436930656433
+Het is niet mooi , maar het zal de truc doen .	-0.39681416749954224
+- Dat apparaat leek de truc te doen .	-0.583774983882904
+Een van die tanks kan de truc doen .	-0.5273973345756531
+Een lijn als deze zou de truc doen :	-0.4610818028450012
+Nou , een Porsche zou waarschijnlijk de truc doen .	-0.4061005711555481
+Denk je dat onze bom het zal doen ?	-0.43550023436546326
+Een magische zal het niet doen .	-0.7612900733947754
+Een eenvoudige onvoorwaardelijke overgave moet de truc doen .	-0.39948034286499023
+Een goede nachtrust is genoeg .	-0.48175233602523804
+Zal dat de truc doen , denk je ?	-0.4542883634567261
+Een verspreide breedveldstraal zou de truc kunnen doen .	-0.6655519604682922
+Het een of het ander moet de truc doen .	-0.46847739815711975
+Ik weet niet of smeken genoeg is .	-0.4536839425563812
+Klinkt dat niet alsof het de truc zou doen ?	-0.46313101053237915
+Houd een onderzoek , dat lijkt de truc te doen .	-0.8139967322349548
+Ik geef je een scheermes dat de truc doet .	-0.3959007263183594
+Denk je dat dit spul echt de truc is , luitenant ?	-0.4374769628047943
+Nou , ik denk dat dat waarschijnlijk de truc moet doen .	-0.5715816020965576
+Elke drug kan de truc doen onder de juiste controle .	-0.4900796115398407
+Oké , dat moet genoeg zijn .	-0.6894432306289673
+Ik denk dat sommige voorbijgaande blikken de truc kunnen doen .	-0.7322858572006226
+KITT , ik hoop dat dit genoeg is .	-0.43228235840797424
+Ik denk dat je zult vinden dat dat de truc moet doen .	-0.6134717464447021
+Doe de truc .	-0.4449577331542969
+Het kan klein zijn , maar het zal de truc doen .	-0.4800598621368408
+Nou , ik denk dat dat waarschijnlijk de truc moet doen .	-0.5715816020965576
+Een spuug en een poets zou de truc doen .	-0.5753815770149231
+Dacht je echt dat dat zou helpen ?	-0.3941965699195862
+Ik bedoel , het is vervelend , maar ik denk dat het de truc zal doen .	-0.4100279211997986
+Vrede in mijn familie zou de truc doen .	-0.5172750949859619
+Deze herschikke algoritmes moeten de truc doen .	-0.7986046671867371
+Dus het typen van `` make osx '' zal de truc doen .	-0.4529658854007721
+Maar OESO-werk alleen zal niet de truc doen .	-0.7247126698493958
+Een beetje kungfu zou de truc kunnen zijn .	-0.6361405253410339
+Dat zal de truc een stuk beter doen dan Rachmaninoff .	-0.3879907727241516
+En ik denk dat magie de truc niet zal doen .	-0.5792297124862671
+Hij denkt dat een beetje gif genoeg is .	-0.6292789578437805
+Ik heb net de schakelaar gereset .	-0.6217946410179138
+- Soms is een zaklamp genoeg .	-0.6608842015266418
+Een paar phaser ontploffingen zou de truc doen .	-0.6571943163871765
+Zou 40 bakstenen goudkleurig latinum de truc doen ?	-0.5986621975898743
+Volgens mijn berekening , moet $ 1 miljoen de truc doen .	-0.7064966559410095
+Bed is een beetje klote , maar het zal de truc doen .	-0.499274879693985
+Dan zal een eenvoudige server vaak de truc doen .	-0.36419713497161865
+Een paar fotonische torpedo 's moeten de truc doen .	-0.3944930136203766
+Was zou de truc doen , maar het is zeker gevaarlijk .	-0.3952178359031677
+Een telefoontje van een mobieltje zou de truc doen .	-0.5739141702651978
+`` Nou , meneer , het sluiten van de luiken moet de truc doen . ''	-0.43304553627967834
+De dokter zegt dat deze crème de truc moet doen .	-0.5284349918365479
+Het lijkt erop dat jouw gesprek met hem niet de truc was .	-0.5357730388641357
+Ik plaats een tas-snaar hechting , wat de truc moet doen .	-0.6660757064819336
+Misschien kan zand in z ' n gezicht schoppen .	-0.6390417814254761
+Willow 's klap-en-plakken werk zal deze keer niet de truc doen .	-0.5012593865394592
+Misschien is verkracht worden in de gevangenis wel genoeg .	-0.6254417896270752
+- Het is een beetje versleten , maar het zal de truc doen .	-0.40294089913368225
+Ik heb wat EPS leidingen die de truc kunnen doen .	-0.569705069065094
+Haal nog een dek en ik doe de truc met dat .	-0.5363207459449768
+Dit zijn de dingen die de truc voor me doen .	-0.3933296203613281
+Denk je dat deze nieuwe vleermuis het zal doen ?	-0.358612984418869
+Ik denk dat een 5-gallon tank de truc moet doen .	-0.5134187340736389
+Je zou kunnen zeggen dat het niet altijd de truc was .	-0.370432585477829
+Dit blikje gas zou de truc prima moeten doen .	-0.626057505607605
+We betwijfelen gewoon dat dit huwelijk de truc zal doen .	-0.5211917161941528
+Ah , dit moet de truc zijn .	-0.6623400449752808
+Denk je dat een hacksaw het zal doen ?	-0.45088133215904236
+Ik denk dat een scherpe klap de truc wel zou doen .	-0.5720325112342834
+Ik denk niet dat schorsing of uitzetting de truc zal doen .	-0.5589901208877563
+Het is niet helemaal ketamine , maar het moet de truc doen .	-0.3582535982131958
+Dat is racistisch , elk 15-jarig meisje doet het .	-0.6369587182998657
+Nou , als dat niet werkt , moet dit de truc doen .	-0.49311861395835876
+Maak je geen zorgen over mij , druppel water zal de truc doen .	-0.503717839717865
+De vroedvrouw dacht dat dit misschien zou helpen .	-0.41672709584236145
+Ik kan de truc doen waar ik het over had .	-0.45426270365715027
+Denk je niet dat een goed gesprek de truc zou doen ?	-0.6361215710639954
+En een paar gouden knuppels zou de truck kunnen doen .	-0.7045288681983948
+Natuurlijk zou een donker bier ook de truc doen .	-0.387046217918396
+Dat klopt , Felicity , een beetje eten moet de truc doen .	-0.5845847129821777
+Het moet de truc zijn .	-0.9086278676986694
+Zombie-hersenen doen het niet , elke zombie weet dit .	-0.4736672043800354
+Man , ik dacht echt dat het vriendelijk vragen het zou doen .	-0.6594327092170715
+Eén pomp van dat spul zal de truc doen , weet je .	-0.45160621404647827
+Als je de truc met mij doet , zie je dan Roseanna ?	-0.4412866532802582
+Ik schrijf nu iets voor je , wat de truc moet doen .	-0.5625780820846558
+Je zei : 'Geen dokters . ' Dit zal prima werken .	-0.6067667603492737
+Een vermogensverhouding van ongeveer 60 terawatt moet de truc doen .	-0.44342121481895447
+Handgenaaide gordijnen met magneten in de naad kunnen de truc doen .	-0.3067792057991028
+- Nou , dat is genoeg .	-0.7677215933799744
+Ik dacht dat een echtelijk bezoek wel zou helpen .	-0.5056478977203369
+En een wasspeld zal de truc van het knippen van de draad doen .	-0.5235236883163452
+Ja , ik denk niet dat een pizzafeestje het zal doen .	-0.4238070845603943
+Jouw enge vriendschappen met echt oude vrouwen zouden de truc kunnen doen .	-0.5635927319526672
+Ik denk dat simpele conversatie de truc zal doen , maar bedankt .	-0.5635608434677124
+Maar ik betwijfel of pijpen en messen de truc doen .	-0.42113521695137024
+Een asblok met een stretch-out riem zou de truc doen .	-0.5253598690032959
+Hopelijk zal dit kater ei en kaas Sammy de truc doen .	-0.477943480014801
+De slogan van 'equity ' zal op zichzelf niet werken .	-0.6007543802261353
+Ik neem aan dat jouw vuursteenslot de truc zal doen , tenzij het dat niet doet .	-0.5438051223754883
+Gewone lijm zal de truc doen als het weer zal breken .	-0.47395265102386475
+Maar Josh verraden deed het niet .	-0.7192371487617493
+Olof Wachtmann zegt hallo .	-0.3941938281059265
+Sheila kennende , denk ik dat het gewoon de truc moet doen .	-0.3579742908477783
+Zelfs de stekels van een zee-egel zal de truc doen .	-0.28524601459503174
+Als je ruimte hebt , zal een groter voertuig de truck doen .	-0.46327078342437744
+Ja , een zegen in combinatie met een verstoring spreuk moet de truc doen .	-0.41908368468284607
+Pap , denk je echt dat dat genoeg is om de truc te doen ?	-0.34464097023010254
+Mouse hoopte dat haar nieuwe zak trucjes het zou doen .	-0.4226372241973877
+Een one-page website met een geïntegreerde online winkel zal de truc doen .	-0.3321404457092285
+Nou , twee korrels opium , denk ik , zal de truc doen .	-0.525641679763794
+Hé , dame , ik denk niet dat lippenstift de truc zal doen .	-0.44349855184555054
+Het selecteren van de tape drive en de bijbehorende drivepack zal de truc doen .	-0.2622540295124054
+Grote oude tieten neuken in de groene kamer doen altijd de truc .	-0.4015764594078064
+Ik zal hem een paar injecties geven .	-0.47494983673095703
+En ik denk dat misschien , wat , 25.000 de truc moet doen .	-0.5760588049888611
+De jouwe kan de truc doen ... zolang we de Joan laten vallen .	-0.5124527215957642
+Misschien word je een beetje duizelig , maar het kan de truc doen ...	-0.5546708106994629
+Maar misschien kun je het goedmaken voor je daden .	-0.8500077128410339
+gcc 2.8 en hoger zal de truc doen . Aanbevolen is de libobc .	-0.34775736927986145
+Een beetje verbouwen moet de truc doen om potentiële kopers binnen te halen .	-0.4360598027706146
+Ik kan me voorstellen dat een steen door een raam de truc zou doen .	-0.5076924562454224
+Nog een bezoek als moorddadige voortvluchtige Lila Robinson moet de truc doen .	-0.40139535069465637
+Een huwelijksreis naar Zuid-Amerika .	-0.2373286783695221
+Misschien is er iets slimme recursieve macro dat de truc kan doen ?	-0.3064720928668976
+Denk je dat dat de truc is ?	-0.6669170260429382
+Orgeloverwegingen alleen zullen niet de truc doen : ze hebben hun functie verloren .	-0.6132454872131348
+Leid je baby af Soms kan de goede oude peek-a-boo de truc doen !	-0.4105248749256134
+Een stijve whisky en frisdrank voor het eten zou de truc kunnen doen , eh ?	-0.5294899940490723
+Ik hoorde dat je onlangs een stuk ontwierp dat de truc kon doen ...	-0.46073707938194275
+Een bezoekje aan het stadhuis is genoeg .	-0.5511467456817627
+Als je iets groots wilt , zal deze Giant Opblaasbare Dildo de truc doen !	-0.4233112633228302
+Ik zei toch , knoflook en een heilig water klysma zou de truc doen .	-0.5256438255310059
+- We gaan hem niet verslaan .	-0.3361603021621704
+Een sterkere oplossing zou de truc kunnen zijn .	-0.7324833869934082
+Ik bedoel ... soms kan een beetje ouderwetse verpleging de truc doen .	-0.586901068687439
+Ja , weet je , ik denk dat dit de truc is .	-0.6088598966598511
+Als er geen oplader is , zal een ongebruikte U.S.B . poort de truc doen .	-0.45110177993774414
+Doe alsjeblieft de truc nog een keer .	-0.5012883543968201
+Deze lauwwarme , anoniem klinkende alternatieve rockband moet de truc doen .	-0.3568408191204071
+Misschien als we een ander meisje erbij halen .	-0.6950469613075256
+We waren op zoek naar brute kracht , maar staal zou zeker de truc doen .	-0.33472341299057007
+Om haar opnieuw te starten , lees deze en dat zal de truc doen .	-0.5730158090591431
+Ik heb het gevoel dat dit de truc is .	-0.5945435762405396
+Die vent is een chronische CHF'er . 40 zal de truc niet doen , hij heeft 80 nodig .	-0.5246877074241638
+En van alles wat je beschreef , klinkt dit wapen alsof het de truc zal doen .	-0.4869557023048401
+Ik dacht dat winkeldiefstal het zou helpen , maar het werkte niet .	-0.43311750888824463
+Weet je , ik werd moe van graven , maar het zou de truc moeten doen .	-0.4866638779640198
+Nou , ik denk dat een rondje bij Lori 's het wel zou doen .	-0.4937257766723633
+Dat moet genoeg zijn , zolang je maar rustig blijft .	-0.6602078676223755
+Als John de demon zelf niet kan uitdrijven , zal dit zeker de truc doen .	-0.45135408639907837
+Een beetje ruw op de trommelvliezen , maar ze doen de truc .	-0.4448156952857971
+Het was niet makkelijk , maar ik vond een zwaargewicht reinigingsritueel dat de truc zou moeten doen .	-0.4793499708175659
+Als hij een seriemoordenaar is op zoek naar een sensatie , zou dat de truc zijn .	-0.4056338965892792
+Ik verander stalen pijlen in stof , en jij dacht dat lood de truc zou doen ?	-0.3919142484664917
+'We dachten dat de brief de truc zou doen ' wie bedoelde je met 'we ' ?	-0.38713255524635315
+Oké , ik denk dat nog een plasmastraal de truc moet doen , vriend .	-0.655666708946228
+Hoe dan ook , hij duikt op met iets dat hij zei dat het echt goed zou doen .	-0.5329169034957886
+Ik dacht dat die laatste explosie van mijn kleine Longos de truc zou doen .	-0.43276041746139526
+Waarom zou je zelf komen opdagen als je vijf berichten achterlaat ?	-0.7364645600318909
+Ik bedoel , niet zoals wat Walter gebruikte , maar het zou de truc moeten doen .	-0.35516712069511414
+Hij zegt dat dat genoeg is .	-0.6713350415229797
+Uiteraard is dit een haastig ontworpen synthetisch , maar het moet de truc doen .	-0.5455343127250671
+Maar in dit geval , denk ik niet dat jouw woord echt zal werken .	-0.4445262849330902
+Ik denk dat een beetje mond-op-mond reanimatie het zal doen .	-0.6572045683860779
+Ik ben er zeker van dat dat zal helpen , en we zullen weer inchecken in de ochtend .	-0.5034472942352295
+Hey , heeft Caleb 's penis de truc gedaan en je eindelijk je grote `` o '' gegeven ?	-0.3374905288219452
+Als je een afspraak maakt met een buitentandarts , kan dat helpen .	-0.5270857214927673
+Zelfs een megavat van Raid doet het hier niet .	-0.6397748589515686
+De moordenaar gebruikte waarschijnlijk een gewone schoonmaakster , dus water zou de truc doen .	-0.5308432579040527
+Als een kogel in het hoofd van dat monster niet werkt , wat dan ?	-0.4171605408191681
+Je voelt een prikje en mogelijk een lagere darm ongemak , maar dit moet de truc doen .	-0.5710830092430115
+Hij zegt dat hij een voorbumper heeft gevonden die de truc kan doen .	-0.5690514445304871
+Ik laat Andromeda er een klaarmaken .	-0.4525722563266754
+De brandende brandstapel op mijn brandende brandstapelschip ... zou de truc moeten doen .	-0.47662487626075745
+Alles wat ik nodig heb is wat DNA bewijs - kopje koffie moet de truc doen .	-0.4847017228603363
+Natuurlijk zou een nieuwe wasdroger de truc doen , maar dat is een beetje prijzig .	-0.419768363237381
+Misschien een beetje lekker olifantenhaar ... zou de truc doen .	-0.5979514122009277
+Dus ik dacht dat een kleine doos met vier kleine boeken de truc zou doen .	-0.5793235301971436
+De leuke en fuzzy gitaren aangevuld met Windir-geïnspireerde lead-gitaren doen nooit de truc .	-0.44907060265541077
+Als we redden wat er nog over is en een nieuwe partij cultiveren die de truc zou moeten doen .	-0.5784607529640198
+Ik denk dat rondrennen in de tegenovergestelde richting ... dit keer niet de truc is .	-0.6154888272285461
+Voor gebruikers van pf ( 4 ) of ipf ( 8 ) moeten de volgende regels de truc doen :	-0.29715409874916077
+Aangezien de suiker oplossing niet de truc deed , misschien zullen deze je frons op zijn kop zetten .	-0.6331018805503845
+Aan de andere kant , het aanraken van zijn rug of maag met uw hand kan de truc doen .	-0.3114558756351471
+Het maakt misschien geen indruk op Mrs. Pumphrey , maar het zou de truc met de bankmanager kunnen doen .	-0.5056716203689575
+Maar Shea zei dat de helft van de één de truc zou doen , en ik zou niet verkwistend moeten zijn .	-0.43579164147377014
+Een beetje elektroshock en slaaptekort zal de truc doen voor een fractie van de prijs .	-0.3733629882335663
+Het feit dat je de truc niet goed deed is de grootste belediging van allemaal .	-0.3517628610134125
+Het hele punt van de kit was dat je de trucs kon doen zonder mij .	-0.4561578631401062
+Het kan zijn dat dit soort aanpak af en toe de truc zal doen over alledaagse zaken .	-0.6333695650100708
+Het onderduikadres is aan de gang , het is niets bijzonders , maar het moet de truc doen .	-0.6439228057861328
+Ibuprofen kan de truc doen , maar ik zal bloed onderzoeken en hem culturen versnellen om veilig te zijn .	-0.4502888023853302
+Een uitgebreide gids over het hebben van de perfecte huid ( de ideale staat van uw klanten ) zou de truc doen .	-0.264220267534256
+Je zou niet denken dat hete thee de truc in de hitte zou doen , maar je zou het mis hebben .	-0.5280873775482178
+Als we deze kolommen er gewoon uit halen , weet je , dat zou de truc moeten zijn .	-0.6681528091430664
+Pas op , een paar van de beste kousen van de vrouw samengebonden zal de truc doen in een noodgeval .	-0.5166498422622681
+Bijvoorbeeld , als je je shell wilt veranderen in bash , moet het volgende de truc doen :	-0.40906813740730286
+Wat , wil je dat ik er twee neem , voor het geval de eerste de truc niet doet ?	-0.352234810590744
+Er zijn niet genoeg paarden voor ons allemaal , maar een paar ezels moeten de truc doen .	-0.31722816824913025
+Tienduizend contant voor hem om de truc te doen met een biljartbal van mijn keuze .	-0.344706267118454
+En waar dat de truc niet deed , werd de poets ruwweg afgeschraapt met een scherp voorwerp .	-0.45061007142066956
+Als dat niet werkt , breng hem dan terug naar ons op donderdag om twee uur .	-0.3963564932346344
+En sindsdien waren onder nobele ridders ... een grote portemonnee van goud zou de truc mooi moeten doen .	-0.48089486360549927
+Ik vul z ' n recepten bij en jij haalt ze op bij de apotheek .	-0.4632340967655182
+Nou , als ze niet eerder van je hield , dan moet deze vertoning van moed en toewijding zeker de truc doen .	-0.47877588868141174
+Als de toepassing heeft beïnvloed het Windows-register , het verwijderen van het'met de hand ' kan niet de truc doen .	-0.29987984895706177
+Kijk , als je niet met me uit wilt , een simpele 'nee ' zou de truc doen .	-0.45601439476013184
+Weet je , ik zag ooit de Fonzie iets op tv doen ... dat zou gewoon de truc kunnen doen .	-0.4985329508781433
+Nee , ik denk dat een paar ernstige brandwonden van de sigaar de truc is .	-0.4035227596759796
+Soms zal een enkele pagina de truc doen , maar in de praktijk blijkt dat vaak onvoldoende te zijn .	-0.41605645418167114
+Super opgeladen met een 25-psi boost , geautomatiseerde hydraulica high-stall converter met shift kit .	-0.4766433835029602
+Deze ijsbeer en pinguïn sneeuwbal gevecht moet de truc van het draaien van die frons op zijn kop .	-0.37832924723625183
+In termen van het analyseren van hun MO 's , zal ik een pay-off matrix samenstellen en dat zou de truc moeten doen .	-0.458972692489624
+Variërend van gutturaal tot angstig jammeren , doen ze de truc van het creëren van een bepaalde angst in de muziek .	-0.492338091135025
+Deze Polar Bear en Penguin sneeuwbal gevecht moet doen de truc van het draaien van die frons op zijn kop .	-0.34301963448524475
+De trage monolithische riffs doen de truc in het subduderen van de luisteraar , en heel effectief dus met eenvoudige middelen .	-0.3698423504829407
+Nee , maar ik heb hier zoveel mogelijk amfetaminen vermorzeld , dus dat moet genoeg zijn .	-0.41851893067359924
+Ik bedoel , de oude favoriet is arsenicum natuurlijk , maar een halve gram strychnine zal de truc doen .	-0.3214816451072693
+Film één keer per week , laat het haar zakken , het lijkt de truc te doen .	-0.557124674320221
+Ik dacht dat als we de tassen een goede massage zouden geven , dat het de truc zou kunnen doen .	-0.6798843145370483
+Het zou een misverstand zijn om te denken dat onze overeenkomst hier en onze instrumenten de truc kunnen doen .	-0.518683671951294
+Hoofdschoten doen de truc , maar alleen om veilig te zijn hebben we de neiging om ze te verbranden wanneer we kunnen .	-0.44384878873825073
+Het is niet zo visueel dramatisch als je polsen doorsnijden met een zelfgemaakt mes , maar het zal de truc doen .	-0.35541704297065735
+Nou , ik denk niet dat het maken van meer films over het gaat de truc doen , als dat is wat je vraagt .	-0.48321112990379333
+Als ze haar naam op iets warms en wazigs kan zetten ... iets als puppy 's , kan dat helpen .	-0.40476280450820923
+Een plekje met een kleurfilter ( of kleur LED ) zal de truc doen . Soms is slechts één plek genoeg .	-0.5112197399139404
+Consumenten en bedrijven willen draadloos gebruik maken van hun vaste lijnen : Wi-Fi of 4G kleine cellen zullen de truc doen .	-0.2339000254869461
+Lange tank tops en tube tops ook doen de truc . Ook geen shirts dragen die korte mouwen .	-0.41849273443222046
+De css en vlaggen bestanden zijn veranderd , een herladen van de pagina met shift+f5 moet waarschijnlijk de truc doen .	-0.28497594594955444
+Je probeert een prachtige , sexy ex-vriendin te hebben die rondzwerft over de plek , biseksueel zijn .	-0.5687317252159119
+Kortom , als blues helemaal in je straatje zit , dan zou dit waarschijnlijk de truc live kunnen doen , maar op CD .... ?	-0.4549621641635895
+Over Six Pack Abs hoeft dit niet . 30-45 minuten workouts 2-3 keer per week moet de truc doen .	-0.2607033848762512
+Maar nu ; bijvoorbeeld , het uitgeven van $ 1,5 biljoen aan een disfunctionele F-35 all-purpose jager jet programma zal niet de truc doen .	-0.30790865421295166
+Juist , een straight news plant is misschien te opvallend , maar een kleine blurb in zijn column kan de truc doen .	-0.4489200711250305
+Als je een grote start had , zou dat waarschijnlijk de truc doen , maar je hebt een flinke lading nodig .	-0.5597438216209412
+Ik probeerde om dingen gemakkelijker te maken , en het hebben van een schema leek om de truc te doen !	-0.46686387062072754
+Malcolm , zeg tegen je vader dat ik over drie dagen terug ben ... en dat nog één injectie genoeg is .	-0.38765794038772583
+Zoiets als dit zal de truc doen voor de meeste gevallen , maar zou kunnen falen voor mail Bcc 'd naar de mailinglijst .	-0.39905986189842224
+Shawhead , Dumfries Dichtstbijzijnde bos te bezoeken ... Mabie Forest , 25 minuten rijden Soms werkt een standaard tent niet helemaal .	-0.22767388820648193
+Dus zwarte gaten zullen niet werken . Maar een andere kosmische anomalie beroemd gemaakt door science fiction kan de truc doen - wormgaten .	-0.35026177763938904
+Dit snappy paar hakken zal de truc van gratie doen.Christian Louboutin schoenen , Wij graven deze prachtige schaduw van multicolor .	-0.44714581966400146
+Omdat ik zo vastbesloten was dat dit eindelijk de truc zou doen ... dat dit ons verliefd zou maken .	-0.384597510099411
+Black metal gaat de truc niet meer doen , zelfs nazi black metal heeft tegenwoordig te veel street cred .	-0.3914371132850647
+Dus als we de geheugenopslagmodules uit de 302 's halen , doen we een andere shutdown .	-0.608710765838623
+Een paar stengels van eulalia die een beetje zwaaien zal de truc doen , waardoor kijkers het gevoel van een herfstbries .	-0.45197293162345886
+Ik dacht dat een dekenfeestje het zou doen , maar ik denk dat we dit op de moeilijke manier moeten doen .	-0.39520135521888733
+M ' n RD-mensen hebben een engelenmesje in kogels laten smelten .	-0.5858075618743896
+Als het weer het toelaat , kan zelfs een rustig bankje in een park buiten de hoofdstraat de truc doen .	-0.44560572504997253
+Ik weet dat het gek klinkt , maar ... dat zou de truc kunnen zijn , als we het gewoon op tijd kunnen laten werken .	-0.38668110966682434
+Ik ga me omkleden , maar ik heb een briefje naar Clarkson gestuurd .	-0.3788217604160309
+Ik heb maagzweren , maar ik neem antacida , en ze doen de truc , dus ... antacida zijn geen behandeling voor maagzweren .	-0.3733336627483368
+VideoCD Een gewone CD-writer of CD-rewriter zal de truc doen voor dit formaat Computer , Laptop of standalone DVD-speler . + Meest compatibel	-0.23530371487140656
+Ik ging naar de bazaar en pakte die kleine glazen , de Gandhi bril , maar dat werkte niet .	-0.41693976521492004
+Ik ga je een medicijn geven , oxytocine ... dat helpt je baarmoeder samen te trekken , en dat moet genoeg zijn .	-0.7433018088340759
+Ik zei dat ik al twee citaten van je man kreeg sindsdien , dus ik denk dat het de truc niet deed , hè ?	-0.5486249923706055
+Wat zijn de perfecte ingrediënten van een aangenaam verblijf in Bolzano ? Comfortabele accommodatie , ontspannende lokalen en goed eten doen waarschijnlijk de truc .	-0.2997165024280548
+Ik dacht dat ik misschien verveeld was met huwelijksseks , en ik dacht dat een andere vrouw de truc zou doen -- maar dat deed het niet .	-0.4349000155925751
+- Tuurlijk , ik ben uitgeput , ik kan me nauwelijks aankleden , maar een mooie stevige wandeling in de buurt , dat kan de truc zijn .	-0.41127416491508484
+Sterke bestrijdingsmiddel gemengd met traangas en diesel brandstof zal de truc doen zonder het doden van iedereen die meer dan 20 pond weegt .	-0.3224931061267853
+Uiteraard , een objectieve C compiler ( onthoud , het is een object georiënteerd kader ) . gcc 2.8 en hoger zal de truc doen.Aanbevolen is de libobc .	-0.3709041476249695
+Soms is gewoon de gedachte aan een spin genoeg voor sommige mensen om te beginnen schreeuwen , in anderen kan een foto de truc doen .	-0.4040991961956024
+Hij vertelt zijn moeder nu dat ook praten de truc kan doen . ( Ze heeft hem dat al jaren verteld , maar zonder resultaat ) .	-0.44180336594581604
+Ik hoop dat je beseft dat met zo ' n wapen ... een vrouw de truc net zo makkelijk kan doen als een man .	-0.40563634037971497
+De afwisseling zou letterlijk tot diep in de huid zijn en het kan meerdere behandelingen vereisen , maar ik heb een inaprovaline verbinding bedacht die de truc zou moeten doen .	-0.46315670013427734
+Om gebruikte motorfiets onderdelen zo goed als de dag dat we ze voor het eerst gekocht , regelmatige wassen en spoelen zal de truc doen .	-0.33056628704071045
+Een paar pond thermiet in een koffieblik en een zekering zal de truc doen ... en een goede show geven .	-0.47563084959983826
+We hebben het over een free-floating scherf van bot en je denkt dat zout de truc gaat doen ? Kun je zelfs een recept schrijven ?	-0.4964660108089447
+De hoge thrash/death tempo 's doen zeker de truc in het begin maar Obliteration vergeet soms ( of weigert ) om een stap terug te zetten .	-0.3477553427219391
+Nou , een trailer brandt op ongeveer 700 graden , dus ik zou zeggen ongeveer anderhalve liter van dit spul zou de truc moeten doen .	-0.4397343397140503
+Dit maakt het perfecte excuus voor de familieleden om de truc te doen en zet de cadeautjes onder de deken terwijl de kinderen aan het bidden zijn .	-0.28967198729515076
+Een regelgevingskader alleen is niet voldoende ; financiële en economische prikkels op basis van het wortel-en-kleverbeginsel zijn nodig om de overgang te ondersteunen .	-0.5604933500289917
+Of u nu op een lange fietstocht naar het werk of een recreatieve rit in het weekend wilt gaan , Ophelie zal de truc doen .	-0.35256099700927734
+Rauwe haring gewikkeld rond stukken augurken en ui klinkt misschien niet de meest prikkelende beet , maar het zei om de truc te doen .	-0.4636628329753876
+Doen alsof het je niets kan schelen is één ding , maar het in je handen hebben is iets anders .	-0.4647657573223114
+Voortzetting van zijn discussielijn , zegt hij : Als we onsterfelijke zielen hadden , zouden we God niet nodig hebben , onze onsterfelijke zou de truc doen .	-0.5123421549797058
+Ik bedoel , gewoon wat oude nummers uitbrengen in een nieuwe verpakking die elke fan al bezit , doet natuurlijk niet de truc .	-0.545034646987915
+Een regelgevingskader alleen is niet voldoende ; financiële en economische prikkels op basis van het wortel-en-kleverbeginsel zijn nodig om de overgang te ondersteunen .	-0.5604933500289917
+Want dat klonk alsof je haar kont een beetje wilde kietelen , maar dat gaat niet werken .	-0.4125114381313324
+Voor deze toepassing lijkt het een beetje over de top - een W-12-N kubusmagneet uit onze winkel zou de truc net zo goed doen .	-0.3755686283111572
+Met Twist Off krijg je bijna automatisch hetzelfde effect ; en met een beetje oefening zul je de truc zo snel als je wilt opnieuw doen .	-0.4797091484069824
+Als de zomer herfst wordt , ruilt u de klassieke lichte denim jas met de grote kanonnen ; een heren jean jas met bont kraag zal de truc doen .	-0.4320300817489624
+Vooral in de stevigere , meer US metal-georiënteerde stukken weten de heren mijn nek aan het werk te zetten , en de typische up-tempo riffs doen dat zeker .	-0.4296813905239105
+Of u nu een lange fietstocht wilt maken naar het werk of een recreatieve rit in het weekend , Oscar en Olivia doen de truc .	-0.35384613275527954
+Met 'Twist Off ' krijg je bijna automatisch hetzelfde effect ; en met een beetje oefening zul je de truc zo snel mogelijk opnieuw moeten doen als je wilt .	-0.35056769847869873
+Ik heb de slipstream-kern van de Maru overbelast ... en als het het doelwit raakt ... scheurt het de Cetus in duizend stukken .	-0.5434885025024414
+Of u nu op zoek bent naar mager spier of gewoon proberen om uw trainingen te verlengen , een van deze producten is gebonden aan de truc voor u te doen .	-0.3658028244972229
+Maar als je wilt dat je nichtje een veilige , comfortabele rit heeft , een rit die laat zien hoeveel ze voor je betekent , dit zal de truc doen .	-0.29670846462249756
+Het cohesieproject van de onderzoekers , getiteld 'Compilant Shells for Thoracic Endovasculaire Aorta Aneurysm Repair , ' zou een eerste proof-of-principe moeten bieden dat een origami-achtige gevouwen structuur de truc kan doen .	-0.3170855641365051
+Om in de spleten rond de zool te komen , zal een oude tandenborstel de truc doen.• Voor het verwijderen van vlekken op suède / nubuck gebruik maken van een suède gum .	-0.2857986092567444
+Toch , zelfs als we gelijk hebben over de kou , tenzij we ze naar buiten kunnen drijven , zie ik niet hoe dat op zichzelf de truc zal doen .	-0.48411229252815247
+Als je te weinig voorraad hebt , moeten een heavy-gauge slak en wat kleinere metalen projectielen de truc doen , zolang je maar goed raadt waar het doel zal zijn .	-0.4445097744464874
+De meeste Original Equipment Manufacturer vervangende onderdelen zal de truc doen , maar men kan ook kiezen om hun SUV een beetje te tweaken door het controleren van aftermarket prestaties winkels en websites .	-0.33718690276145935
+Vooral voor degenen die op zoek zijn naar een alternatief voor de traditionele kerstboom en bladeren , kunnen deze drie gewoon de truc doen.Luxe , schoonheid , zacht als fluweel en opvallend .	-0.3353371322154999
+Het ding met Donkey Kong is , op de hogere niveaus worden de vaten meer willekeurig , bezeten bijna . En het spelen door de patronen doet de truc niet meer .	-0.450549840927124
+Een riem of schoen kant zal de truc doen . Omgekeerd , als je gewoon niet kunt krijgen die bovenste knop te sluiten , probeer een stretcher materiaal of gewoon een grotere grootte .	-0.2951299250125885
+Afhankelijk van uw configuratie van & X-Window ; kan Ctrl ; Alt ; Backspace ; ook de truc doen door de X-server uit te schakelen , maar het gebruik ervan voorkomt sessiebeheer en kan niet worden aanbevolen .	-0.25818946957588196
+Ny tiln rming : Toen geen van de opties werden gestart , bedekte brandweerman jongen in een deken en begon te hydrauliek gebruiken in misschien dat een roterende zaag zou de truc doen .	-0.31382888555526733
+Stof die een klap ( en wat warmte ) kan verdragen , zoals katoenen Lining Geïsoleerde voering Bindmiddel ( 2 meter moet de truc doen ) Contrasting draad Gezicht Het patroon Hoe maak je het ?	-0.483573317527771
+Het feit dat de kernleden destijds de machtige Vital Remains vormden en twee geweldig geproduceerde bonus tracks ( waarschijnlijk restjes van 'Battle Lords ' ) gaat de truc niet aan .	-0.41179564595222473
+Verbeter dit gevoel met een gladde pot in een gedempte kleur . Oranje geeft je energie en wordt gebruikt om de aandacht van mensen te trekken.Iedere bloem of pot in deze schaduw zal de truc doen .	-0.2978515923023224
+Nou , procaïnamide en amio kunnen de truc doen maar je wilt uit de buurt blijven van bèta en calcium blokkers omdat je eindigt met een V-fib als je een bypass-kanaal hebt , toch ?	-0.41113340854644775
+Ik wilde met hem werken omdat ik dacht te kunnen leren hoe ik de trucs en illusies moest doen , maar niemand in de bemanning wist hoe hij iets deed .	-0.3699475824832916
+Met nummers als 'Preachers Of Hate ' , 'Fear And Pain ' , 'Kiss Of Judas ' en 'Fight To Survive ' bevat het album een aantal hoogtepunten en de rest van de tracks doet ook de truc .	-0.23268179595470428
+In het algemeen hebben deze vogels bij aankomst een serieuze aanvulling op het voedsel nodig , voordat ze de kracht terugkrijgen om hun reis naar Zuid-Amerika voort te zetten.Een flinke maaltijd van rupsen , kevers en kakkerlakken zal de truc doen .	-0.46046850085258484
+Aan de andere kant , het belangrijkste evenement van dit jaar , d.w.z . de release van 'Mass V ' moet nog gebeuren , dus voor nu moet een e-mail interview met zanger Collin van Eeckhout de truc doen .	-0.4238729178905487
+Soms kan de goede oude peek-a-boo de truc doen ! Wanneer uw baby breekt in slagen van de hik , probeer hem af te leiden met een spel activiteit of door ratelen zijn favoriete speelgoed voor hem .	-0.37699684500694275
+De screams zijn misschien niet erg anders of bijzonder , maar doen de truc in het creëren van een agressieve toon , die het gevoel van urgentie van de songs op een soortgelijke manier als op Lantlôs ' debuut versterkt .	-0.406020849943161
+Af en toe hebben ze ook genoeg ruimte voor melodieuze gitaarsolo 's maar meestal is het de combinatie van pakkende riffs en agressieve vocalen die tot coole songs zijn gevormd die de truc doen .	-0.3742744028568268
+Konijnen zijn gewone dieren die graag bekende gebieden te bezoeken . Een klein hek zal niet de truc , zoals ze hun weg zullen graven onder het . Dus het hek moet in de grond voor ten minste een meter .	-0.4203261137008667
+Bovendien hebben we enkele uren in Georgetown in ons bed doorgebracht . Ivonne heeft een hevige keelinfectie gehad . Na een week van pijn en in de hoop dat het nemen van wat rust de truc zou doen , kon ze bijna niet meer eten .	-0.3072444498538971
+Misschien zal deze perl-liner de truc doen . perl -pi.bak -e 's ! textarea. * ? > ! pre > ! g ' bestandsnaam Een ISP bouwen en vervolgens beheren is lastig , vooral als je het meestal geautomatiseerd , zeer beschikbaar en schaalbaar wilt maken .	-0.2799348533153534
+Het belangrijkste aspect is de toegenomen inzet van de Commissie voor de taakgerelateerde kant van de vergelijking , zonder dat zij zich laat verblinden door de aan de middelen gerelateerde kant , want een uitbreiding van de eigen middelen zal de truc niet alleen doen .	-0.5723639726638794
+( En samen zijn ze goed voor achtendertig minuten muziek ) Nummers als ' G.O.R.E . ' , 'Right To Die ' en 'Dawn Of The Dead ' klinken erg enthousiast en ook de snellere nummers als 'Up The Dose ' en 'Torture Of Duty ' doen het .	-0.24948148429393768
+Voor deze toepassing ziet het er een beetje over de top uit - een W-12-N kubusmagneet uit onze winkel zou de truc net zo goed doen . Als u een grotere magneet wilt voor een visueel effect , kunt u ook het GIANT gebruiken .	-0.44917160272598267
+Dat in het creëren van de verhuizing naar hoge volume , goedkope commerciële productie van dit soort materialen , of wat dat betreft , ultra-licht staal dat een goede back-up technologie , het leger kan de truc doen die het deed in het omzetten van DARPAnet in het internet .	-0.39486461877822876
+Ik kan me zelfs verhouden tot de ballad 'Broken Mirror ' en het nummer 'La Rose Del Amor ' en muzikaal gezien is ' I Share Your Dreams ' zelfs een erg sterke , maar zoals ik al zei , de zang doet het niet voor mij .	-0.3275226652622223
+Nu is er niets mis met deze muziek in 2004 , maar het moet snel , strak en intens gespeeld worden.Ook wat originaliteit en/of eigen ideeën kunnen de truc doen , en die dingen zitten hier niet genoeg in de tas .	-0.41535094380378723
+Twee jaar later veranderde de band meer en meer in hun typische stijl van metal . 'Sad Wings Of Destiny ' bevat een aantal snellere tracks zoals 'Deceiver ' , 'Tyrant ' en 'Island Of Domination'.En ja , hits als 'The Ripper ' en 'Victim Of Changes ' doen dat nog steeds .	-0.2369539737701416
+Ook kunnen we de milieuvervuiling niet verminderen door een paar stickers op auto 's te zetten , hoewel sommigen denken dat dat de truc is . Nee , als je niet bereid bent om wetten en voorschriften te zien , moet je deze problemen aanpakken door gebruik te maken van de meest up-to-date technologie .	-0.49371546506881714
+Net als nu , want het opgravingspakket , het boekje en het geluid van 'Because All Collapses ' zijn netjes zoals het hoort te zijn.Maar dat lukt natuurlijk niet.Een album leeft of sterft via de muziek die er op staat , en deze keer wordt ik in tweeën gedeeld door die muziek .	-0.4996545910835266
+Iemand die 'niet om de natuur geeft ' kan zich bewust worden gemaakt van details in de natuur door middel van een introductie gedaan door een persoon of documentaire.Een mooie vlinder , bloem of een prachtig uitzicht kan de truc doen en een positieve ervaring van de natuur creëren die een positieve verschuiving in waarderingsniveau zal veroorzaken .	-0.3839752674102783
+Filmen in de buurt van een raam met zonlicht of buiten kan vaak de truc doen.Echter , ik had geen ramen in de buurt.Dus ik gebruikte twee grote lichtbakken , je kon ook gebruik maken van schilders verlichting met bakpapier geknipt over de bovenkant om het licht te ontmantelen ... Tip 4 : Voeg bewegingToevoegen van gladde beweging aan uw schot kan uw klanten helpen om beter te zien en volledig waarderen van uw product .	-0.40045270323753357
+Het enige nadeel is dat het beste nummer op deze plaat , ironisch genoeg , een heropname van 'Cypher ' van hun debuut is.Dit suggereert dat er een middenweg te vinden is tussen Void 's vroege elektronica en hun huidige organische stoffen , maar dat is des te veelbelovender voor de toekomst ; laten we zeggen dat break beats gespeeld door een goede drummer altijd de truc doen .	-0.3572034537792206
+De Celtic Frost cover 'Into The Crypts Of Rays ' is niet beter dan de originele versie en dus moeten de twee bonus tracks de truc doen , maar helaas is de Rolling Stones cover 'Paint It Black ' gewoon zwak ( Anvil en Grip Inc. hebben dit al beter gedaan ) en het laatste nummer 'Earth A.D. ' is helemaal niet slecht , maar het is ook geen klassieker .	-0.2336190938949585
+Om ons programma eenvoudig te houden , zullen we een lege omgeving gebruiken : dat is een NULL pointer zal de truc doen . de functie _exit ( ) eindigt het proces , en geeft een uitvoercode terug aan zijn vader ( meestal een shell ) , in het % ebx register ; We hebben dan de `` /bin/sh '' string , een pointer naar deze string en een NULL pointer nodig ( voor de argumenten omdat we er geen hebben en voor de omgeving omdat we er geen definiëren ) .	-0.3259884715080261

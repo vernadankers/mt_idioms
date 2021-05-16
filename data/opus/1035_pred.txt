@@ -1,0 +1,500 @@
+Op de bal .	-0.30901288986206055
+Op de bal !	-0.3708150386810303
+Altijd op de bal .	-0.3358469009399414
+Blijf op de bal .	-0.3614310324192047
+Ogen op de bal .	-0.2006395012140274
+Oog op de bal .	-0.369032621383667
+Ogen op de bal .	-0.2006395012140274
+Oké , op de bal !	-0.3409518003463745
+Oog op de bal .	-0.369032621383667
+Sluit de bal aan !	-0.7521128058433533
+Concentreer je op de bal .	-0.18013331294059753
+Zet de balguard op .	-0.6679883003234863
+Begrepen op de ballen .	-0.2956570088863373
+Blijf op de bal .	-0.3614310324192047
+Stap op de bal .	-0.3162367641925812
+Ga op de bal zitten .	-0.5450780391693115
+Iedereen op de bal !	-0.37027284502983093
+Ga op de bal !	-0.6157492995262146
+Je staat op de stembus .	-0.5490537881851196
+Concentreer je op de ballen .	-0.20230761170387268
+De politie is op de bal .	-0.5862476825714111
+Ogen op de bal .	-0.2006395012140274
+Geland op de bal .	-0.4158340394496918
+Oog op de bal .	-0.369032621383667
+Iedereen op de bal , zie je ?	-0.32003122568130493
+Hij richt zich op de bal .	-0.2241596281528473
+Op de ballon voor opluchting .	-0.33072027564048767
+Denver heeft net gewonnen .	-0.462314635515213
+Oogballen ... Op de bal .	-0.4545765817165375
+Naald is goed op de bal .	-0.3586496114730835
+Ik stond op de stembus .	-0.5155552625656128
+Ik heb gisteren de Ballarat Cup gewonnen .	-0.29580044746398926
+Harvey , kijk naar de bal .	-0.2836558222770691
+Kijk naar de bal , Michael .	-0.33660581707954407
+Spring op de bal .	-0.2586480975151062
+Je bedoelt op de bal ?	-0.3758290708065033
+Kijk naar de bal Petey .	-0.3447590172290802
+Kijk naar de bal , oké ?	-0.35748136043548584
+Het is makkelijker voor de ballen .	-0.35721355676651
+Iedereen , concentreer je op de bal .	-0.24571146070957184
+Laten we op de bal gaan .	-0.5264648199081421
+Hield je oog op de bal .	-0.3152977228164673
+Op de ballen van je voeten .	-0.24647246301174164
+Hij op de bal , uit Dunbar .	-0.33867403864860535
+Mijn naam op de bal schrijven ?	-0.36457183957099915
+Zet meer druk op de bal .	-0.3350398540496826
+Er zaten uitwerpselen op de bal .	-0.21209771931171417
+Zet je racket op de bal .	-0.4597419202327728
+Laten we samenkomen op de bal .	-0.6665841937065125
+Ingangsspanning gemarkeerd op de ballast .	-0.50277179479599
+Op de ballen van je voeten .	-0.24647246301174164
+Ze zijn zeker op de bal .	-0.5160344243049622
+Laten we op de bal gaan .	-0.5264648199081421
+Kom op , terug op de bal .	-0.3757235109806061
+Ze neemt de ballroomjurk aan .	-0.46554622054100037
+Terug op de bal , laten we gaan .	-0.5355163812637329
+Oog op de bal .	-0.6205012202262878
+Hou je ogen op de bal .	-0.2924259901046753
+... en ze stapte op de bal .	-0.3262079358100891
+Ik kan maar beter op de bal gaan .	-0.522426962852478
+- Ja , precies op de ballen .	-0.54329913854599
+Op de ballen van je voeten .	-0.24647246301174164
+Je moet op de bal zijn .	-0.5096181035041809
+Je zit toch in de Ballantine jury ?	-0.31838560104370117
+- Hij stopte op de bal .	-0.5568507313728333
+Doe meer klei op de ballen .	-0.31357690691947937
+We blijven op de bal .	-0.424594908952713
+Er zaten uitwerpselen op de bal .	-0.21209771931171417
+En ze stapt op de bal .	-0.29044342041015625
+- Staat dat op de stembus ?	-0.4845068156719208
+Hou de bal in de gaten , Maren .	-0.2876507341861725
+Mijn naam staat niet op het stembiljet !	-0.3648759126663208
+Hou je ogen op de bal .	-0.2924259901046753
+Ogen op de bal .	-0.335096538066864
+- Knowledge is altijd op de bal .	-0.5122113227844238
+U bent op de bal , Mr Smith .	-0.4386175870895386
+Een beetje meer boog op de bal .	-0.3101405203342438
+Gooi wat varkensbloed op de ballerina 's ...	-0.222431942820549
+Het was mijn shit op de bal .	-0.37958618998527527
+Laten we hopen dat hij nog steeds op de bal is .	-0.4322866201400757
+Klik op de ballon voor meer info	-0.19635041058063507
+Pivot op de bal van je voet .	-0.37823036313056946
+- Ja , shit recht op de bal	-0.45817261934280396
+- Hou de bal in de gaten .	-0.36161017417907715
+Haar naam staat niet eens op de stembiljetten .	-0.3018603026866913
+Op de bal van je voet .	-0.4121655523777008
+Ik zie je op het balveld .	-0.23456011712551117
+Bel een ambulance .	-0.1855081170797348
+Je moet je ogen op de bal houden .	-0.3969169855117798
+We hebben prop 128 op de stemming .	-0.4670446813106537
+Ik ben niet eens op de stemming vanavond .	-0.49058735370635986
+Er is geen kandidaat , iedereen staat op de stembus .	-0.5053870677947998
+Op de ballen van je voeten .	-0.3613368570804596
+Je hebt veel op de bal .	-0.5096936225891113
+Hé , amigo , zet de wedstrijd aan .	-0.3824986517429352
+Je komt niet op de stembus .	-0.6587371826171875
+Morgen gaan we aan het bal werken .	-0.27399879693984985
+- Kom op , terug op de bal .	-0.42320746183395386
+achteruit op de ballen van je voeten . ''	-0.5269067883491516
+Voor mijn geld , we zijn op de bal .	-0.4991086721420288
+Ik zat op de ball gag .	-0.5204437375068665
+Laten we het nog een keer doen .	-0.5168072581291199
+Ik heb de bal gehouden , meneer .	-0.5893659591674805
+Mijn naam staat niet op de stembus .	-0.3123895525932312
+Klik twee keer op de bal om hem te schieten .	-0.33267122507095337
+`` en beval hem om op de stembus te blijven . ''	-0.5821729898452759
+Ogen op de bal .	-0.3797864615917206
+Wacht , ik stond niet eens op de stembus .	-0.46222734451293945
+Hoe kom je op de stembus ?	-0.5721580386161804
+Je kunt ze ook op de bal zetten .	-0.40452951192855835
+Jake , hou je ogen op de bal .	-0.30727580189704895
+Ze houden de bal goed in de gaten .	-0.2270515263080597
+Op de bal van je voet , kom op .	-0.2427009642124176
+Oh , kijk naar de spanning op de ballon !	-0.32894739508628845
+Je meent het , veel dingen op de bal .	-0.5035367608070374
+Het was mijn shit op de bal .	-0.4531872570514679
+Meneer , u zou morgen op de stemming moeten zijn .	-0.4593338966369629
+DNA op de ballon kwam niet overeen met Jordan Stokes .	-0.21959061920642853
+Concentreer je op de bal .	-0.371112197637558
+Chris zegt dat je het haalt op het stembiljet .	-0.4918748140335083
+We krijgen je glasvezel op de bal !	-0.5230136513710022
+Gewicht op de bal van de achtervoet .	-0.21855096518993378
+Wow , kijk jou eens , je bent op de bal .	-0.6746305227279663
+Kijk , probeer op de bal te springen en te vangen .	-0.5269220471382141
+Er stond een bord op de balzaaldeur .	-0.3088582754135132
+Murray , als je op de ballistiek kunt komen .	-0.532711923122406
+Klik op de bal om hem weer te plaatsen .	-0.2794627845287323
+Hou de bal in de gaten , Benny .	-0.3168540894985199
+Mulletts was op de bal tijdens mijn afwezigheid .	-0.40905535221099854
+Hou de bal in de gaten .	-0.2762853801250458
+En jij ... je hield de bal in de gaten .	-0.4309021234512329
+We hebben mannen nodig die op het bal zijn .	-0.46678149700164795
+Ik ga het niet eens over de ball gag hebben .	-0.45887500047683716
+- Whoa , ze is op de bal , die ene .	-0.5099776983261108
+Hij wil iemand in de Ballard jongens zaak .	-0.370712548494339
+Weet je , je bent echt op het spel , Maggie .	-0.5207101106643677
+Je hebt zelfs je naam op de stembus gehouden .	-0.4408092200756073
+- Kom op , Junior , ga op de bal .	-0.4792367219924927
+- De naam van de man blijft op de stembus .	-0.46623557806015015
+Ik sla de ballerina 's over .	-0.40427008271217346
+Wie gaat ze pakken ?	-0.7907559871673584
+Zeg dat ze prop 128 op de stembus krijgen .	-0.6572484970092773
+We hebben gewoon `` gewoonlijk bekend als '' op de stemming gezet .	-0.5198880434036255
+Inderdaad , Mr Martin , u bent absoluut op het spel .	-0.7324246168136597
+- Jij gaat weer aan de slag .	-0.721211314201355
+Hou de bal in de gaten .	-0.4043583273887634
+Ga op de bal zitten .	-0.34183868765830994
+We moeten de bal in de gaten houden .	-0.23769143223762512
+Hou de bal in de gaten .	-0.31328174471855164
+Blij te zien dat jullie op het bal zijn .	-0.5539188981056213
+Hodgins , kunnen we ons concentreren op de kogellagers ?	-0.246372252702713
+Wij krijgen uw glasvezel op de bal ! - Europa	-0.305174857378006
+Hou je gewicht op de ballen van je voeten .	-0.3331867456436157
+Hou je ogen op de bal en vooral ..	-0.36842358112335205
+Ik moet vanavond het ballet afzeggen .	-0.3660803735256195
+Kom op , Reggie , ga op de bal rond de ...	-0.4979362189769745
+Dat jij je naam op het stembiljet zet .	-0.47160837054252625
+Om je naam op de Ball of Fame te krijgen ?	-0.28716063499450684
+Jij , op de bal , op de bal .	-0.33845412731170654
+Zeg hem dat hij de bal in de gaten moet houden .	-0.32211968302726746
+Hij zal ergens gevestigd zijn , hij is op de bal .	-0.5005956888198853
+Hoe kan hij de bal in de gaten houden ?	-0.2537495791912079
+Er is een afvoer op de Ballard School bewakingscamera 's .	-0.32324883341789246
+Dus je wilt landen op de bal van je voet .	-0.3141120672225952
+Ik wil dat je op de bal schijt , Donnie .	-0.22459837794303894
+Zelfs de schaduw op de bal wordt zijn eigen object .	-0.2686569392681122
+Ik hoor dat je wat rotzooi op de bal hebt gegooid .	-0.5892283916473389
+Zijn naam mag dus niet op het stembiljet staan .	-0.4410754442214966
+Jij diende , ik kwam laag terug , jij gleed uit op de bal .	-0.3949512541294098
+Deze kinderen zijn meer op de bal dan de sheriff .	-0.3877701163291931
+Toots , wat dacht je van een mooie rit op de bal ?	-0.4208013415336609
+Jij blijft op de bal , jij op de muur .	-0.46742725372314453
+Man , hey , ik kan dat niet uitleggen op de bal ,	-0.4758301377296448
+De kandidaten staan in alfabetische volgorde op het stembiljet .	-0.4624105989933014
+Op de ballen van je voeten .	-0.31625330448150635
+Jij bent de enige naam op de stembus die president wordt .	-0.4775424897670746
+Al het gewicht op de ballen van je voeten , oké ?	-0.2880070209503174
+Maar Mrs. Florrick was niet de enige naam op het stembiljet .	-0.2763369679450989
+Kom op , iedereen .	-0.4608748257160187
+Concentreer je op de bal , schat .	-0.3765319585800171
+Ik verzamel handtekeningen zodat ik kan stemmen .	-0.43889176845550537
+Helaas , Steve komt neer op de bal , scheurde zijn milt .	-0.4591774642467499
+Niets . Ik antwoord op de bal , behalve dat het rijmt !	-0.3864752948284149
+Niet als de chef hier op de bal staat .	-0.5675761103630066
+Ja , Brady , je staat op het spel .	-0.7138198018074036
+Het is goed om te weten dat jullie op de bal zijn .	-0.43984556198120117
+Dus zonder de patroon , zijn we genaaid op de ballistiek front .	-0.5516446232795715
+Jackie zegt dat ze dat initiatief op de stemming krijgen .	-0.45842245221138
+Nee , mijn borg op de balzaal was 3000 dollar .	-0.46642592549324036
+Dubbelklik op de muis op de bal om een doelpunt te scoren .	-0.1998469978570938
+Ik heb nog maar 120 handtekeningen nodig , en ik sta op de stemming .	-0.4533654451370239
+Maar ik ben blij te zien dat jij ook meedoet .	-0.4618222415447235
+Hoeveel handtekeningen hebben we nodig voor de stemming ?	-0.3901293873786926
+Handleiding : Dubbelklik op de muis op de bal om het te schoppen .	-0.26611053943634033
+Ze was altijd op de bal , geweldig hoofd op die vrouw .	-0.6189022064208984
+Als hij op jou leek , zou hij nooit stemmen .	-0.4192122519016266
+Op de ballen van je voeten .	-0.5865753293037415
+Op de ballen van je voeten , ballen van je voeten .	-0.39656561613082886
+Ik zie de waarde van het houden van je oog op de bal .	-0.37676483392715454
+Maar als je donderdag beter bent , is het Colum op de bal .	-0.39299026131629944
+Je gaat op de bal , Carlene , en je beschermt je gemeenschap .	-0.45042747259140015
+Ik neem het ballet wel .	-0.8347536325454712
+We moeten de bal nu in de gaten houden .	-0.3679540455341339
+Ze zijn slechts 800m verwijderd van Armadillo en op de bal .	-0.36023494601249695
+Kort daarna stond Tom Dobbs op de stembus in 13 staten .	-0.38571178913116455
+Om iemand te vangen , maar , Benson , je lijkt mooi op de bal .	-0.5075653791427612
+Je moet het gewicht op de ballen van je voeten houden .	-0.37334999442100525
+Nee , ik moest de bal in de gaten houden .	-0.2850069999694824
+Er is tenminste iemand op de bal .	-0.5440494418144226
+En ten derde moeten we de bal in de gaten houden .	-0.30172768235206604
+Rechts heeft Fabienne van Uden haar ogen op de bal gericht .	-0.36555755138397217
+Bij tennis moet je de ballen stevig onder controle krijgen .	-0.5697395205497742
+Oog op de bal . Voeten op het veld . Richten om te winnen ! ...	-0.20846694707870483
+- Het studentenlichaam heeft je naam niet op het stembiljet gezet .	-0.5374906659126282
+Ik ga morgenvroeg naar de ballistische rapporten .	-0.7865773439407349
+Hij was op de stemming in Wisconsin en vijf andere staten .	-0.33321964740753174
+Ik kan geen man bedenken met meer op de bal .	-0.4518684446811676
+Snel denken , comfortabel op de bal , visie en bewustzijn - prachtig .	-0.242511585354805
+Ik ben meestal erg op de hoogte van deze dingen .	-0.910376250743866
+Als je soldaten op het plein waren geweest ...	-0.4370141625404358
+Je mag één keer stemmen , hij staat twee keer op de stembus .	-0.5083279609680176
+Ik leg mijn handen op de bal en jij zegt :	-0.3286568224430084
+We vragen om een snelle ontdekking van de ballistiek van de nieuwste kogel .	-0.4392925500869751
+Dit land kan maar beter aan de slag gaan voor het te laat is .	-0.38310930132865906
+Kom op , draai op de bal van beide voeten en stap ...	-0.39012807607650757
+Ik heb de bal toch niet in de gaten gehouden ?	-0.3978405296802521
+Is die vriendin een echte knappe meid ?	-0.4661438763141632
+7 te zijn op de bal Dit jaar zijn de vragen variëren	-0.9369479417800903
+Als je arm bent , als je niet op de bal zit , word je genaaid .	-0.3067570924758911
+Lindsey Meadows heeft haar ogen op de bal in de 1e inning	-0.14906063675880432
+Natuurlijk heb ik geen $ 500 inzet op het ballet .	-0.38047024607658386
+Het elektrische gedrag van een xenoncircuit hangt vooral af van de ballast .	-0.3482809066772461
+Giet wat te drinken en zet de wedstrijd aan ?	-0.6167138814926147
+Hij viel terug op de bal , stootte zijn hoofd op de bank ?	-0.3031001389026642
+Om afleidingen tegen te gaan , dringen tennisleraren er bij spelers op aan zich op de bal te concentreren .	-0.44715988636016846
+Kijk naar de bal , hou je ogen op de bal .	-0.4373760223388672
+Ik hoorde dat jullie meer op de bal waren dan de 527 's .	-0.38777899742126465
+We hebben een dood met waardigheid wet op de stemming , hier in Colo .	-0.4297087490558624
+Ja , je bent echt op de bal , nietwaar , Luke ?	-0.6318737268447876
+Het belangrijkste is , ze hebben hun eigen lijn op de stembus .	-0.488211989402771
+De linkerarm blijft recht .	-0.5048539042472839
+Oké , ogen op de bal en zorg ervoor dat je doorgaat .	-0.33499184250831604
+Ja , shit recht op de bal en dan lopen naar Radon .	-0.43093934655189514
+Of dat ze op de ballen van mij rijden en in beweging zijn ?	-0.6890662312507629
+Als ze de alternatieven op de stemming zien , worden ze snel ontvankelijk .	-0.4016522169113159
+De keeper was op de bal , maar de kracht , reed hem erheen .	-0.4083642363548279
+Oog op de bal , elleboog omhoog , oog op de bal , elleboog omhoog .	-0.29573845863342285
+En het gaat een schoenpoetsafdruk op de bal achterlaten .	-0.5675854086875916
+En soms worden ze vergezeld door zombies die op de ballonnen afdalen .	-0.2895718812942505
+Toen , in 2004 , kwam `` On the Ballot in Louisiana , '' een persoonlijk avontuur verhaal .	-0.3172737658023834
+Um , Dalton is niet op de stemming vanwege de slechte loser wet , toch ?	-0.4196294844150543
+Brian Moore was niet op de stemming in Minnesota voor de november verkiezingen .	-0.23160243034362793
+Ze heeft veel meer aan haar hoofd dan de jongens van Hoover .	-0.5045400261878967
+Bovendien waren er geen Groene Partij-kandidaten bij de stemming voor dat bureau .	-0.5083001852035522
+Ik heb geprobeerd je te leren : Hou de bal altijd scherp in de gaten .	-0.48836761713027954
+Net als Vince en hij hebben iemand nodig die op de bal komt .	-0.4341094493865967
+Ik ken Marissa en ze is op het bal .	-0.5059381127357483
+Je hebt je punt gemaakt , het is tijd om je ogen op de bal te richten .	-0.36264336109161377
+De assen hebben'muilbesturing ' , hetzelfde principe als op de ballastaanhanger .	-0.40021762251853943
+Je bent veel meer op het spel dan Alan , die aardig is maar niet inspirerend .	-0.45075589418411255
+Het partijlabel dat kandidaten op de stemming werden toegewezen , gaf dat feit niet aan .	-0.6855948567390442
+Je krijgt dat ding pas bij de verkiezingen van november .	-0.5118339657783508
+Bartlet is op de stemming voor de Democratische Partij en voor de Statenpartij .	-0.43721872568130493
+We hebben wat handtekeningen nodig om onze rekening op de stemming te krijgen .	-0.4840239882469177
+Nou , niet het goede deel , dus laten we gewoon op de bal letten .	-0.4436827600002289
+Casey is de man met zijn oog op de bal .	-0.34006476402282715
+We moeten de ballonnen plaatsen en dan opblazen .	-0.3445124924182892
+Man , hey , ik kan dat niet uitleggen op de bal , maar ik lieg niet .	-0.3793089687824249
+Oh , je moet op de bal zijn in deze wedstrijd , nietwaar ?	-0.6293137073516846
+Ze was meer op de bal dan elke vakbondsvertegenwoordiger waar ik ooit mee te maken heb gehad .	-0.4849887192249298
+Dit alles is gebaseerd op het feit dat de bal deel uitmaakt van Duncan 's landgoed .	-0.3531753122806549
+Het lijkt erop dat er een of andere gekke draai aan de bal zit .	-0.5501565933227539
+Het is belangrijk om op de bal te blijven en heel snel te reageren op veranderingen .	-0.2961476147174835
+Zo kwam het haar op de bal ... en uiteindelijk in Novotny 's truck .	-0.29009467363357544
+Ik heb de DNA resultaten van de wimpers op de ballon .	-0.3156905174255371
+Danny 's vingerafdrukken zaten niet op de ballen of ergens op de kar , alleen op zijn caddy 's .	-0.37861666083335876
+Als ik op de stembus kom als Jeff Johnson , zal niemand het weten .	-0.46220043301582336
+Maak je geen zorgen over als , meneer , met Lewis op de bal zoals hij is .	-0.4045077860355377
+We moeten Casey 's naam op de stembus zetten .	-0.46640512347221375
+Ik heb maar één handtekening nodig en ik kan stemmen .	-0.5166633725166321
+Oké , ga nu op de ballen van je voeten staan als je kunt .	-0.5343679785728455
+Dus we hebben genoeg handtekeningen nodig om de wet op de stemming te krijgen .	-0.4534653425216675
+Oké , het is tweede en 12 , zoals de Cougars op de bal staan .	-0.5112544298171997
+Teken deze , je staat op de stembus in elke staat .	-0.5286357998847961
+En de ballistiek op zijn geweer komt overeen met de zes slachtoffers .	-0.3908930718898773
+Misschien hebben sommige lezers 'het spel ' ... ik denk niet dat ik op de bal was !	-0.4526909589767456
+We staan achter de Galicische vissers , maar we moeten de bal in de gaten houden .	-0.42451542615890503
+In The Prodigal Son ziet de balletganger heel duidelijk waar de kwade krachten liggen .	-0.28949952125549316
+De partijregels in South Carolina staan niet toe dat mijn naam op de stembus komt .	-0.4220331609249115
+Waar ging je heen nadat je afscheid nam van Miss Henderson op de Ballarat trein die dag ?	-0.3625803291797638
+Harold , mag ik de rest van de dossiers over de balletzaak ?	-0.32686707377433777
+U wedt dat geen van de nummers die u selecteert tonen op de ballen .	-0.3676811158657074
+... ik denk dat de niet-bewapenende versie van `` Alsjeblieft zet President Dalton op de stemming in Ohio . ''	-0.5367723107337952
+En Bhura hier gooit op de bal zoals hij zijn weggelopen kippen pakt .	-0.4953329563140869
+De rotor is uitgebalanceerd om rustig draaien en lage slijtage op de kogellagers te bereiken .	-0.4863590896129608
+We zouden kandidaten moeten hebben voor ten minste drie verschillende bureaus op de stemming .	-0.5287886261940002
+Hij was onderweg om emmers te schieten , geen ID , geen naam op de bal .	-0.4037584662437439
+Als ze die route nemen , kunnen kandidaten zichzelf op de stembus krijgen ... en maximaal $ 5.000 uitgeven .	-0.7405917644500732
+Je hebt veel te veel op de bal om voor deze oplichter te vallen .	-0.48582780361175537
+Het was Elins bloed op de bal , maar het komt niet overeen met het pistool op Jari .	-0.25500980019569397
+Je hebt Ohio senators gelobbyd om Dalton te laten stemmen , ondanks hun slechte loser wet .	-0.5104482769966125
+Je moet op de bal zijn om zoveel vrouwen te verkrachten en ermee weg te komen .	-0.33700063824653625
+Ze kunnen de druk verlichten op de bal van je voet , eeltknobbels , en gezwollen voeten en gewrichten .	-0.30120372772216797
+Ik heb zoveel dromen zien uitkomen en sterven ... op de balvelden van de Kaap .	-0.32291263341903687
+Kies een karakter , klik op de bal en geef kracht en richting voordat u de knop vrijgeeft .	-0.23946358263492584
+Dat was een hele verrassing voor hen , want ze hadden maar 15 kandidaten op de stembus .	-0.5374904274940491
+Treinen hebben het recht van de Europese Unie bewezen : meer concurrentie houdt u alert en op de bal .	-0.40688860416412354
+Wat de voorbereiding van de getuige betreft , Cary , Alicia , moeten we de ballistiek expert vertragen .	-0.45829740166664124
+Als een bal achter of voor de lijn hangt af van het centrum van de bal .	-0.37085631489753723
+Je denkt dat je je oog op de bal hebt , en dan mis je alles .	-0.41468918323516846
+Een van de burgemeesterskandidaten op de stembus was Joey Lombard , wiens stembus-identiteit `` Is Awesome ' was .	-0.394501268863678
+Achteraf gezien , Donnie , denk je dat de coach je zei om op de bal te spugen , niet stront ?	-0.35408875346183777
+Hij wordt behandeld sinds zijn derde , en onze huidige dokter is gewoon niet op de bal .	-0.4953109920024872
+Alan , je eerste aanraking is verder gaan dan ik het kon schoppen .	-0.49987760186195374
+Nou , om eerlijk te zijn , Haley begon haar misdaad ring ... toen je oog nog steeds op de bal was .	-0.3694767951965332
+Ik stop , ik eet en deel , Clap komt maar was helemaal op de bal , was luid crashen .	-0.38284769654273987
+Als je in flats loopt , zet dan alle druk op de ballen van je voeten .	-0.3404136598110199
+Ik wil echter dat Europa modern is , technologisch op het spel staat , letterlijk de wereldwijde Nummer Een .	-0.5553728938102722
+Gisteravond op tv stond haar naam op het stembiljet met een telefoonnummer om te bellen .	-0.41573479771614075
+Kijk vooruit en blijf op de bal Wegmarkeringen De Groote begon in Gent en verhuisde daarna naar Nazareth .	-0.22167769074440002
+Zijn campagneleider had mijn boek `` On the Ballot in Louisiana '' gelezen over mijn eigen presidentiële campagne van 2004 .	-0.29318416118621826
+Veel belangrijke kwesties staan dit jaar op het spel , maar alle ogen zijn gericht op de race om burgemeester te worden .	-0.5206807851791382
+Rory , ik wilde je vertellen ... dat we die geweldige recensie hebben gelezen die je op het ballet hebt geschreven .	-0.44045722484588623
+Wolfraam legering bal kan worden gemarkeerd woorden op de bal , maar pure wolfraam bal heeft geen dergelijke eigenschappen .	-0.2363850325345993
+In verband met BSE hebben wij er zeker vaak op gewezen dat de Commissie niet helemaal op het spel stond .	-0.7085436582565308
+Emily en ik hebben een toekomst , we hebben een plan .	-0.2916635572910309
+De huidige nationale wetgeving staat niet toe dat op de stembiljetten namen en/of logo 's van Europese partijen worden vermeld .	-0.3428448438644409
+Handleiding : Richt de muis en klik op de bal , om de snelheid en richting van de bal in te stellen .	-0.21361897885799408
+Ja , we wachten nog op de ballistiek , maar het bloed op Howard 's geweer komt overeen met Haynes .	-0.2783672511577606
+Als ik te veel met je praat , kan ik me niet concentreren op de ballen .	-0.4810851812362671
+Dus , als er iets is waar je bang voor moet zijn , is het dat je de bal niet in de gaten houdt .	-0.350385844707489
+En ik moet scherp zijn voor mijn werk , ik moet de hele tijd op de bal zijn .	-0.5627896189689636
+Van Beem & Van Haagen is al vele jaren op het bal in deze tak van handel .	-0.44472193717956543
+We wachten op de worp , we houden de bal in de gaten .	-0.4089023768901825
+We zijn momenteel met kandidaten die zullen verschijnen op de stemming in de 2016 Presidential Caucuses en Primaries .	-0.32112476229667664
+Cyber-fysiek systeemVirtuele scheidsrechter is een cyber-fysiek systeem dat bestaat uit sensoren op de bal , het veld en de spelers .	-0.18435385823249817
+Propositie 41 , over de stemming in oktober , voorziet in een nieuwe aanknopingspunt om snelwegen 710 en 88 samen te voegen .	-0.4696902334690094
+Enkele van de ideeën op het stembiljet zijn een carwash of een bakverkoop of een modeshow !	-0.40856412053108215
+- Volgens het nieuws , wordt meer dan 80 miljoen dollar uitgegeven om prop 128 op de stemming te krijgen .	-0.5151834487915039
+Luister , ik heb je misschien 10 minuten gegeven , minder als SCIU op de bal is .	-0.5514028072357178
+We wachten op de ballistiek , maar het wapen dat gevonden werd op de plaats delict is geregistreerd op Colin 's vader .	-0.35299810767173767
+- Mijn team en ik verzamelen handtekeningen ... om een belangrijke wet op de stemming te krijgen en ...	-0.4984353482723236
+Concentreer je nu op de piep , zwaai zo hard als je kunt en hou je oor op de bal .	-0.3088186979293823
+Weet je , met alles wat we hebben op de bal , kunnen we iets van onszelf maken . Iets fatsoenlijks , iets dat	-0.4228244423866272
+In feite , het centrum van de uitbreiding is helemaal niet op de ballon , maar eerder in de ballon .	-0.3780604600906372
+Ik schreef een boek , `` Op de Ballot in Louisiana , '' wat een soort reisverslag was over de plaatsen die ik bezocht .	-0.34297341108322144
+Ik ben zeer verheugd dat de commissaris deze zaak in de gaten heeft gehouden .	-0.6606948971748352
+Ik ben eerder naar een feest geweest waar mensen hun hoofden op de ballonnen zaten .	-0.5030304789543152
+Jouw handtekening zal me helpen bij de stemming , zorg ervoor dat we een echte keuze hebben in de stemhokje .	-0.5438480973243713
+Het is waar dat de heer Herman u de gelegenheid heeft geboden om te laten zien dat u werkelijk op het spel staat .	-0.5224818587303162
+De meisjes van Tater zijn familie , dus als één van jullie niet op de bal zit , dan heeft dat gevolgen voor de hele familie .	-0.5207347869873047
+Hij lag op de bal , het was een ongeluk , dat is niet wat de scheidsrechter zei , of de video .	-0.4100482761859894
+* Een aanval op de ballon door condors , die leidt tot een dramatische actie als Joe springt uit de ballon .	-0.3072511851787567
+Ik wist niet dat de helft van de dingen gedaan moest worden .	-0.5409859418869019
+Terug in quarterback is Brucie , die zal proberen om een handvat te vinden op de bal deze keer .	-0.38241106271743774
+Meestal gaat hand-in-hand met obsessief-compulsieve stoornis , maar wat ik niet begrijp is hoe Jake 's wimpers belandden op de ballonnen .	-0.28101471066474915
+De cardioloog verplaatst de stent ( gekrabbeld op de ballon ) naar de aangetaste plaats in de kransslagader via een ballonkatheter .	-0.258293479681015
+Moore 's eigen uitdaging was nu om in zoveel mogelijk staten te stemmen voor de algemene verkiezingen .	-0.421623557806015
+Nou , er zijn geen strepen op de kogellagers op deze foto die je stuurde , dus er is geen bewijs dat ze zijn neergeschoten .	-0.35040026903152466
+Nou , de sleutelkaart die we vonden op de ballon man , de fabrikant traceerde het naar een magazijn in Allston .	-0.39878806471824646
+Vanaf dat moment zal de bal in de rechtbank van de Raad liggen , zodat ik geen voorspellingen kan doen en niemand meer kan beloven .	-0.6155731081962585
+Jammer van Mrs Murphy , maar Petey heeft alles , want jij hield de bal in de gaten .	-0.3821505606174469
+We krijgen uw glasvezel op de bal ! - Europaweit Umweltdreck , UV-licht , zout water en zure regen maakt uw boot onaangenaam .	-0.3090308904647827
+We weten dat Mac erbij betrokken was , maar zijn situatie verandert niet .	-0.3414287865161896
+Christenen moeten stemmen zoals geleid door gebed en studie van zowel Gods Woord als de realiteit van de keuzes op de stemming .	-0.32648763060569763
+Dat betekende dat de kandidaten in de toekomst op de stemming konden komen zonder een verzoekschrift in te dienen , maar alleen door het betalen van een indieningsvergoeding .	-0.6296068429946899
+Er zijn ook extra prijzen voor verschillende combinaties gebaseerd op de ballen in het spel en op welke nummers je een match krijgt .	-0.2578887939453125
+Een onregelmatige slijtagepatroon op de zool van de linker schoen , betekent dat hij of zij loopt op de ballen van hun voeten .	-0.2827626168727875
+Hij en Consuela vestigden zich in Talpa , Mexico , waar George werd geïnformeerd dat hij tot burgemeester was gekozen zonder te weten dat hij op de stemming was .	-0.3624293804168701
+Christenen moeten stemmen zoals geleid door gebed en studie van zowel Gods Woord als de realiteit van de keuzes op de stemming .	-0.3318953216075897
+Om in 2010 op de stembus te komen voor het hele staatsbureau , zouden kandidaten voor deze partij minstens 2.000 handtekeningen moeten verzamelen .	-0.6249152421951294
+Ik heb dit debat gezien als een oproep om op dit gebied actie te blijven ondernemen en op de voet te blijven .	-0.5310807824134827
+Ik hou de bal in de gaten en bid tot God dat we geen extra innings krijgen .	-0.4160858690738678
+Mooi schot , ik kende een jongen die opgroeide met een naam , ze noemden hem zo omdat hij zoveel spullen op de bal legde .	-0.6441822052001953
+Achter de foute lijn is een `` nadering '' ongeveer 15 voet lang gebruikt om snelheid en hefboomwerking op de bal te krijgen voordat het te leveren .	-0.46330562233924866
+Het komt erop neer dat deze jongen blij was om rond te stuiteren op de ballon , terwijl ik wegreed met zijn gloednieuwe , misleide helikopter .	-0.47324639558792114
+We waren gewoon mensen die $ 20 administratiekosten hadden betaald om onze namen op de stemming te krijgen en die daarom weinig aandacht verdienden .	-0.41214343905448914
+Met jou werken betekent de hele tijd op de bal zijn omdat je extreem intelligent en fysiek harder bent dan wie dan ook die ik ken .	-0.4247756600379944
+Bij sommige zeldzame gelegenheden komt de bal met een ander speeltje : een hoepel zoals in Costa Rica of een springtouw zoals in Bulgarije .	-0.37001681327819824
+De Onafhankelijkheidspartij heeft de status van grote partij , wat betekent dat kandidaten die zich kandidaat stellen geen petitie hoeven te doen om op de stemming te komen .	-0.5325927734375
+Christelijke conservatieven hebben je op de stemming , ze geven je een podium op het debat podium , en dan , je zult ze verlaten .	-0.48275572061538696
+Plaats onmiddellijk licht klevende plakband op de stip van de balpen ( de stip van de balpen mag niet zijn gedroogd en moet onmiddellijk worden verwijderd ) .	-0.5646021366119385
+Harvey zei dat hij geen reis hierheen hoefde te verspillen voor mij om je te vertellen dat ik mijn oog op de bal heb .	-0.4062739908695221
+We wachten op het ballistisch rapport , waarvan ik bijna zeker ben dat het overeenkomt met de kogels uit de mortier in St. Julian 's .	-0.40122127532958984
+De reden voor het hebben van drie New Dignity Party kandidaten was dat de stad kiezers drie namen zouden zien op de stemming met die partij aanwijzing .	-0.49733132123947144
+( Verkiezingsregels staan niet toe dat partijaanwijzingen worden opgenomen bij de stemming voor kandidaten voor Park Board en Board of Estimation and Taxation . )	-0.4638723134994507
+De Extractor is gemonteerd op de Ball Booster met behulp van een van de meegeleverde adapters , het verbindt met de slang van een natte / droge stofzuiger .	-0.322666734457016
+Bemanningsleden mogen geen taken op de ballon uitvoeren wanneer hun geschiktheid kan worden aangetast na diepzeeduiken of na bloeddonatie .	-0.44105905294418335
+( 2 ) Indien er meerdere vragen op het stembriefje staan vermeld , worden de geldige stembiljetten op het stembriefje afzonderlijk berekend voor elke vraag .	-0.5446330308914185
+Kort nieuws VS : Cannabis op de stemming in drie staten Montana , Alaska en Oregon hebben een cannabis-gerelateerd voorstel geplaatst op de stemming van 2 november .	-0.24870148301124573
+Als de microfoon aanstaat , is er geen tijd om dingen op te zoeken in woordenboeken en encyclopedieën : de tolk moet op de bal staan .	-0.2809731960296631
+( EN ) Mijnheer de Voorzitter , ik ben dankbaar voor alles wat er over Oekraïne is gezegd , maar we moeten de bal in de gaten houden .	-0.3303237557411194
+En we boeken vooruitgang met het veranderen van die slechte verliezers wetten om hem op de stembus te krijgen in de staten die we gemist hebben in de voorverkiezingen .	-0.4692692756652832
+Het was echter een noodlottige beslissing , aangezien de verkiezingsregels niet toestaan dat een kandidaat op de stembus wordt gezet met instemming van twee partijen .	-0.5799351930618286
+Als gevolg daarvan kunnen alleen de namen van de leden die hun kandidatuur bij de verkiezingscommissie hebben ingediend , in de stembriefjes worden opgenomen .	-0.4812081456184387
+Ik kan me verhouden tot wat je geschreven hebt , maar geen van de kandidaten op de stemming ... maar je noemt je partij als New Dignity .	-0.535945475101471
+Dat betekende dat conventieafgevaardigden hun keuzes voor de Senaat zouden rangschikken op de stemming - in dit geval , aangeven hun eerste , tweede en derde keuzes .	-0.39162448048591614
+Dus , ik ... ik vraag je , alsjeblieft , neem een minuut van je dag vandaag om ons te helpen Jack 's wet op de stemming te krijgen deze herfst .	-0.45817482471466064
+Het Marihuana Re-Criminalisatie Initiatief heeft vandaag weer een stap voorwaarts gezet , omdat supporters de laatste handtekeningen verzamelden die nodig waren om het op de stemming te plaatsen voor de verkiezingen van volgende dinsdag .	-0.49543601274490356
+De vloer reageert door met dezelfde kracht op de bal te duwen , maar in de tegenovergestelde richting , omhoog , waardoor hij weer naar je toe stuitert .	-0.44305694103240967
+Wanneer jullie je focussen op de bal van het gouden licht met gevoelens van waardering of dankbaarheid , zullen jullie de effectiviteit van deze meditatie sterk versterken .	-0.3189466893672943
+Een nieuwe obligatie maatregel is geplaatst op de stemming die , indien goedgekeurd , zal verzekeren dit veld zal het nieuwe huis van Timmy Nolan Memorial Park .	-0.4301339089870453
+- En weet u of deze stembiljetten frauduleus waren of niet , of dat het zegel op de stembus per ongeluk is gescheurd of nooit is bevestigd ?	-0.4772796630859375
+Kölädret zijn , met behulp van krijt , sex geven betere grip op de bal , zodat het niet `` kixar '' dwz , de wachtrij glijden van de bal en de impact mislukking .	-0.36115288734436035
+De mensen die op de stemming zijn geplaatst , doen dat omdat ze vooraf zijn beslist om aanvaardbaar te zijn door de gevestigde financiële machten die de show daadwerkelijk leiden .	-0.6006875038146973
+Alle serienummers waren vermalen , en ik heb niets gevonden in de ballistiek databases , maar ik vond wel iets interessants in de agenda 's van onze slachtoffers .	-0.4978800415992737
+Ik gaf ook een kopie van mijn boek , `` On the Ballot in Louisiana '' aan Frank MacKay , die geïnteresseerd was in het verkrijgen van toegang tot stemmen voor Bloomberg in die staat .	-0.29569798707962036
+Bijvoorbeeld , als ik me nu te veel op de ballen richt , dan kan ik me niet ontspannen en tegelijkertijd met je praten .	-0.49646663665771484
+Is het de moeite waard te vermelden dat dit dezelfde staat is die een wetsvoorstel aanbood dat presidentskandidaten verplichtte hun geboorteakte te tonen om op de stemming te komen ?	-0.45725592970848083
+Algemene blootstelling zal je geen kwaad doen , maar jullie zijn quarterbacks , dus je likt waarschijnlijk altijd je vingers om een betere grip op de bal te krijgen , toch ?	-0.34932467341423035
+Dit houdt geen steun van de publieke politieke partij in op de stembiljetten , maar geeft de kiezers een lijst van letterlijk honderden namen waaruit ze kunnen kiezen .	-0.5790613293647766
+Komproe was lid van de lokale partij Frente Obrero Liberashon 30 di Mei ( FOL ) , en was vijfde op de stemming voor de nationale verkiezingen van 5 mei 2003 .	-0.3094075322151184
+Ik heb wat onderzoek gedaan , en hier staat dat we over acht maanden een niet-bindend voorstel kunnen krijgen zolang we 4.000 handtekeningen hebben .	-0.4363434612751007
+Zelfs bij de Europese verkiezingen zien we de naam van de Europese politieke partijen niet op de stembus staan , maar zien we een nationaal debat tussen nationale politieke partijen .	-0.3067047894001007
+Oké , de sleutel tot dit spel is je ogen op de bal houden , ongeacht of je in het veld of in de slagbeurt zit , oog op de bal , oké ?	-0.5189406871795654
+Richt de muis en klik op de bal om de snelheid en richting van de bal in te stellen . Hoe dichter je bij het midden klikt , hoe langzamer de bal beweegt .	-0.2505810558795929
+Ik schuif je voet eraf en mijn voet op , maar ... je moet dezelfde hoeveelheid gewicht op de bal van je voet houden , en er gebeurt niets .	-0.37442126870155334
+Als je roulette ( een spel waar spelers wedden op de bal landing plaats na het wiel stopt ) , zult u het concept van overgave ( ook bekend als jail ) kennen .	-0.3325738310813904
+Dus bijvoorbeeld , nu , als ik me te veel op de ballen richt , dan is er geen manier waarop ik me kan ontspannen en tegelijkertijd met je kan praten .	-0.44059455394744873
+De partijen zelf beslissen hoe ze hun kandidaten willen presenteren aan de kiezers op de stemming : of ze prioriteit geven aan bepaalde kandidaten , of laat de beslissing aan de kiezers .	-0.4490300416946411
+Als we Dalton niet op de stembus krijgen in die twee , hebben we geen hoop om Evans of Reynolds tegen te houden om naar 270 te komen , op welk punt , is het spel voorbij .	-0.5077562928199768
+Klik op de bal als het aankomt op u , als je kunt.Tennis AceTennis AceSpeel als verschillende jongedame professionals slaan de heck uit de bal op gras of klei .	-0.3184966742992401
+Gouverneur Sam Evans diende een rechtszaak tegen de staat Ohio voor het toestaan van Dalton op de stemming , met vermelding van een beetje bekende anti-lobbying wet genaamd de Vasey Act .	-0.38230085372924805
+In de regionale kiesdistricten krijgen de kandidaten op de partijlijsten mandaten in de verhouding van de uitgebrachte stemmen en in de volgorde die ze op het stembriefje ( vaste lijst ) staan .	-0.36343708634376526
+Er was maar één partij op de stemming : de NSDAP , met Hitler als leider.Verkiezingsbanner met de tekst : 'Eén volk , één leider , één 'ja ' [ 'Ein Volk , ein Führer , ein Ja ' ] .	-0.2701200246810913
+Fans in het stadion van Barcelona , het Camp Nou , gaven Messi een staande ovatie na zijn vervanging , omdat zijn composure op de bal en passerende combinaties met Ronaldinho dividenden had betaald voor Barcelona .	-0.3280368447303772
+Vind je man ! koningen van rugby 5,250 toneelstukken koningen van rugbyKies de hoek die je schopt de bal , kies waar op de bal die je schopt , en de kracht die je schopt met.VR Quarterback ...	-0.2678467631340027
+Dus als ik in deze benen sta , worden mijn hamstring en mijn billen gecontracteerd , zoals ze zouden zijn als ik voeten had en op de bal van mijn voeten stond .	-0.4242710471153259
+Er zijn veel delen van de wereld waar mensen geen stemrecht hebben of , als ze dat wel doen , er is maar één plek op het stembriefje om hun kruis te plaatsen .	-0.4953118860721588
+De speler markeert van 1 tot 15 spots op het ticket en wordt betaald volgens de nummers die uitrollen op de ballen en de weddenschap die hij of zij koos .	-0.27005448937416077
+Mensen zullen niet in staat zijn om de bal snel te knijpen , maar de honden zullen dit graag doen en een positief gevoel krijgen wanneer ze op de bal tussen hun tanden bijten .	-0.2826377749443054
+Ik zou ook op de stemming voor het Amerikaanse Congres in het 5e district ; maar , met minder dan een week te gaan voor de algemene verkiezingen , de MySpace lijst weggelaten mijn naam .	-0.3603954017162323
+Samen met mijn zogenaamde vrienden , raakte ik betrokken bij circulerende petities om marihuana te legaliseren , en wij , samen met anderen , kregen eigenlijk het marihuana initiatief op de stemming in Californië .	-0.3759327232837677
+Zorg ervoor dat het gemonteerde materiaal door de fabrikant is goedgekeurd voor gebruik op het kogelgewricht . Als u ongeschikte apparatuur monteert , kan dit schade aan de trekhaak veroorzaken .	-0.3765859305858612
+Wat de individuele burger betreft , moet het voornemen van de Commissie om zich op jongeren te richten worden toegejuicht ; volgens het Comité is deze groep echter al redelijk .	-0.5654840469360352
+Hij scoorde 31 goals en werd verkozen tot de beste speler in de hardste competitie in de wereld , zei hij .	-0.508754551410675
+Een bastaard van twee ton slaat je neer , gaat op je gezicht zitten , bijt je op je ballen , en het kan hem geen reet schelen of het bi-nieuwsgierig man speelt , je bent klaar .	-0.5229380130767822
+`` Dirty Harry '' was ook op de stemming voor verschillende andere AFI 's 100 series lijsten waaronder 100 Years ... 100 Films , 100 Years ... 100 Films ( 10th Anniversary Edition ) , en 100 Years of Film Scores .	-0.24541975557804108
+Ik wil iedereen nog een keer bedanken en ik hoop dat er morgen een positief resultaat komt : we houden de bal in de gaten en zullen de situatie ter plaatse volgen .	-0.4842587113380432
+Daarnaast is er een overvloed aan kandidaten die alleen op de stembiljetten in een paar staten . Augé opent Joe Exotic 2016	-0.4278848469257355
+Kunnen we de overhangende plank op de bal of de koelkast niet zien als kant-en-klare schaalmodellen van een mogelijke architectuur , respectievelijk van een brug en een blok flats ?	-0.3205192983150482
+Rusland zou opnieuw de sterkste impact kunnen hebben op de balletwereld wanneer de danseres van het Kirov-theater , die in Parijs is , weigert aan boord van het vliegtuig op te stijgen , op weg naar Rusland .	-0.46636730432510376
+We houden vooral van de actieve rol van Domain Broker : Hij is altijd op de bal en is erg overtuigend geweest , wat voor ons heeft betaald - in de ware zin van het woord !	-0.41624435782432556
+Altijd op het bal , met een dorst naar kennis en reizen , wilde Tina Gerlach meteen verder gaan : naar Dublin , waar ze het beheer van een klein gastenverblijf zou overnemen .	-0.38684892654418945
+Het geluid van de knuppel op de bal vertelt hem hoe hard het is geraakt , zijn oog merkt zijn baan en snelheid op , en zijn hersenen berekenen het algemene gebied waar het zal landen .	-0.34334564208984375
+Zoals bepaald in het Verdrag heeft de Europese Raad vijf gebieden afgebakend waarop gemeenschappelijke maatregelen zullen worden genomen : de bevordering van de stabiliteit in Europa , dat wil zeggen de onderhandelingen over het plan-Balladur .	-0.3665800392627716
+Vlak na de val van het communistische regime in Bulgarije in 1989 werd hij verkozen tot lid van de 7e Grote Nationale Assemblee van Bulgarije bij de stemming van de rechtse Unie van Democratische Krachten .	-0.3686557114124298
+Precies , en de enige manier om kiezers te laten zien dat er een betere manier is om dingen te doen is om een ander wetsvoorstel op de stemming te zetten , en ze noemen het Jack 's Law .	-0.34783753752708435
+Kies een karakter , klik op de bal en geef kracht en richting voordat je de knop vrijgeeft.Opgestuurd door jpVertaald door jp SpelletjesDe laatste berichten Geen berichten . : ( Je moet ingelogd zijn en geregistreerd om hier te kunnen posten .	-0.15882115066051483
+Het vergt iemand op de bal om een verenigd team van deze bonte bemanning te smeden : een Europese regering die in staat is om het verlies aan prestige van de Commissie , dat al jaren gaande is , een halt toe te roepen .	-0.4939148426055908
+- De verbindingsstang voor de zuiger moet goed uitgelijnd zijn zodat hij niet in de zuigerpen en/of op de kogellager aan de andere kant van de krukpen wringt .	-0.4084656238555908
+Dat is heel belangrijk en het moet bekend zijn dat de Britse conservatieve partij een van de partijen was die voor de bepaling stemden dat namen op de stemming zouden moeten staan , niet van de stemming .	-0.5287305116653442
+We moeten ook te allen tijde op de bal blijven , zodat we gebruik kunnen maken van de nieuwe mogelijkheden die zich ongetwijfeld over 5 , 10 of zelfs 20 jaar zullen presenteren .	-0.40575671195983887
+De stemcode wordt gegenereerd uit random-data ( /dev/ [ u ] random ) , en opgeslagen zowel in een menselijk leesbaar/bewerkbaar platte tekstbestand ( database , zo u wilt ) , als op de stembiljetten ( in het bovengenoemde stemgebied , of waar u denkt dat u het nodig hebt ) .	-0.36744698882102966
+Een populair Amerikaans magazine wijdde vele pagina 's aan de dans en zei : Aan het liedje ... sloeg volhardend de partners rock heen en weer op de ballen van hun voeten terwijl ze hun heupen wrongen .	-0.5468093752861023
+De realiteit Ik ben de kandidaat voor burgemeester van Minneapolis die onder de auspiciën van New Dignity Party - in feite , de enige kandidaat die zal verschijnen met de aanwijzing van die partij op de stemming dit jaar .	-0.284628301858902
+Het is in een aantal lidstaten al een vaste praktijk dat sommige of alle nationale partijen bij de verkiezingen voor het Europees Parlement aangeven dat zij betrokken zijn bij een Europese politieke partij .	-0.46548810601234436
+Om het Fonds op de rails te houden en de weg te effenen voor toekomstige acties , zijn innovatieve maatregelen ontworpen om nieuwe concepten te testen met betrekking tot de inhoud , de methoden of de organisatie van de beroepsopleiding en de bevordering van de werkgelegenheid .	-0.47188881039619446
+Naast John Charles Wilson 's `` Edgertonite National Party '' - die volgens de meeste kiezers niet te onderscheiden was van mijn eigen `` New Dignity Party , '' zonder twijfel - hadden we Joey Lombard met zijn `` is geweldig '' politieke benaming op de stemming .	-0.307075560092926
+We zetten het gevouwen vliegtuig op de ballon -- het duurde ongeveer drie uur om daar te komen -- en toen lieten we het op commando vrij op 103.000 voet , en we zetten het vliegtuig in en alles werkt perfect .	-0.40156975388526917
+Op de stemming is een maatregel om de Zwitserse Nationale Bank ( SNB ) te verbieden om verder goud te verkopen , om het Zwitserse goud naar Zwitserland te repatriëren en om dat goud ten minste 20 procent van de activa van de SNB uit te geven .	-0.4420263171195984
+Op de stemming voor overweging dit jaar , hoewel , is de premier remmen tandem van Hawk Brake Pads en Power Slot Rotors . Zal Hawk en Power Slot maken het in een van de meest beperkende groepen aller tijden ?	-0.27244147658348083
+Bob Anderson , die op de stemlijst stond als kandidaat van de Onafhankelijkheidspartij in het 6e district , kreeg 40.663 stemmen - 1.700 meer stemmen dan Dillon - maar zijn percentage van het totaal in dat district was slechts 10,04 procent .	-0.29942724108695984
+Het is de enige club test die biedt onmiddellijke feeback op de hele bal baan van lancering tot landing , en dit met een geweldige precisie , ook rekening houdend met de bal spin en de specificaties van uw golfclubs .	-0.31354397535324097
+Ondanks een zekere stress , heb ik enkele uren besteed aan de straten van het centrum van Minneapolis op zoek naar handtekeningen voor een petitie om Brian Moore en Stewart Alexander op de stemming voor president en vice-president in de november 2008 verkiezingen .	-0.3004956841468811
+Opmerking : Voor een vollediger verslag van deze campagne , zie een 399 pagina 's tellende softcover boek getiteld `` On the Ballot in Louisiana '' ( Thistlerose Publications , 2004 ) ISBN : 0-9605630-6-7 Zie volledige online tekst van dit boek in het Engels onder de `` books '' sectie .	-0.3168473243713379
+Draai de motor met een handboormachine en schroef in het draaipunt op de kogelklep totdat er geen bubbels in de jampot voorkomen ; dan is de compressiedruk lager dan de veerdruk op de bal .	-0.38320285081863403
+Negen lidstaten stonden nationale partijen toe om hun banden met Europese partijen op stembriefjes aan te geven door wetten in te voeren15 ( indien een dergelijke wet nog niet van kracht was16 ) , waardoor de naam of het logo van de Europese partij op het stembiljet kon worden opgenomen .	-0.4679584503173828
+Senator John Briggs is Anita Bryant 's go-to guy in Californië zeker . Hij diende een petitie voor een staatsbrede referendum om alle homo leraren te ontslaan en iedereen die hen steunt . Hoeveel handtekeningen heeft hij nodig om op de stembus te komen ?	-0.4739156663417816
+( EN ) Mevrouw de Voorzitter , mag ik voorstellen dat degenen in dit Parlement uit andere lidstaten dan Ierland die voor het Ierse volk willen spreken over het Verdrag van Lissabon hun naam op het stembriefje in Ierland zetten voor de Europese verkiezingen !	-0.38228487968444824
+Dankzij een andere aanpak van de software ontwikkeling , met SeoLinkPro kan je een jaar of zo , als de jongens bij Syndk8.net zijn op de bal met constante updates en toe te voegen ons , zodat wie weet , het kon blijven evolueren en leven voor altijd .	-0.3109855651855469
+Kinderen in veel landen en voordat M. Bich verbeterde op de balpen om het een betrouwbaar hulpmiddel te maken , moest hun pen met inkt ploeteren . Zo om onaangename scènes met ouders te voorkomen , moesten de leraren , tot de jaren 1950 , hun leerlingen een stofjas dragen .	-0.4173385202884674
+Het is niets meer dan een willekeurige reeks karakters en getallen , die je kunt gebruiken om je stem te vinden tussen alle andere stemmen . Een stemcode wordt gegenereerd per stem : voor elke stemronde is er een nieuwe stemcode .	-0.420135498046875
+De Pulcinella suite bestaat uit acht delen : # Sinfonia # Serenata # a : Scherzino b : Allegretto c : Andantino # Tarantella # Toccata # Gavotta ( con due variazioni ) # Vivo # a : Minuetto b : Finale==Suite italienne==Stravinsky heeft de volgende werken gebaseerd op het ballet : * 1925 : `` Suite d'après des thémes , fragmenten et morceaux de Gimbattista Pergolesi '' voor viool en piano ( in samenwerking met Paul Kochanski ) .	-0.18077215552330017
+Daarom vrees ik dat het beter is vooruit te kijken en samen te werken aan het voorkomen van problemen in de toekomst , maar tegelijkertijd onze ogen te richten op de bal van de ratificatie van het Protocol van Montreal .	-0.5950261354446411
+Je vraagt je misschien af waarom ik de nadruk leg op de ballads , maar het antwoord is heel eenvoudig : dit is wat ze het beste doen.De meeste nummers zijn standaard American Hard Rock , maar alleen als Keith St.John de ballads zingt , wordt het volledige potentieel van zijn stem duidelijk .	-0.322611927986145
+Black Holes Black Holes transporteert de bal naar hun uitgang , en gooit deze met een snelheid in direct verband met de snelheid die uw bal reisde . Kies Hole- > Toon Informatie om te zien welke Black Hole gaat naar welke uitgang en de richting de bal zal komen .	-0.46825310587882996
+In artikel 77 wordt de hoofdelijke stemming niet toegepast , omdat dit geen hoofdelijke stemming is , en in artikel 79 wordt de stemming bij geheime stemming in het tweede streepje verwezen naar een tijd waarin er geen technologie beschikbaar was , toen de namen niet op de stembriefjes werden gedrukt .	-0.6417794227600098
+Om een map te delen , klikt u met de rechtermuisknop op het ballonpictogram en verschijnt er een pop-upmenu , dat slechts één item bevat , Nieuwe Server ... Als u dit item selecteert , zal een wizard verschijnen , die u een paar eenvoudige vragen zal stellen . Het voltooien van de vragen zal een map voor het delen instellen .	-0.326908141374588
+De grote uitdagingen waarmee de motor en machineontwikkelaars worden geconfronteerd in termen van uitlaatgas nabehandelings blijven daarom . We bij Weidemann blijven op de bal , altijd streven naar het ontwikkelen van machines die het dagelijks werken gemakkelijker en aangenamer voor u en dat tegelijkertijd het milieu te beschermen .	-0.4621380567550659
+Zoals u allen weet , was onze fractie zeer sceptisch over de status van kandidaat-lidstaat van Turkije , maar wij zijn verheugd , nu Turkije de status van kandidaat-lidstaat heeft , dat het op het spel staat en heeft besloten een hervormingsproces aan te gaan om aan de eisen van de Europese Unie te voldoen .	-0.3871594965457916
+Black Holes Black Holes transporteert de bal naar hun uitgang , en gooit deze met een snelheid in direct verband met de snelheid die uw bal reisde . Kies Hole- > Toon Informatie om te zien welke Black Hole gaat naar welke uitgang en de richting de bal zal komen .	-0.4769357740879059
+Als je ooit naar een sprinter kijkt , is de bal van hun voet het enige dat ooit het spoor raakt . Dus als ik in deze benen sta , worden mijn hamstring en mijn billen gecontracteerd , zoals ze zouden zijn als ik voeten had en op de bal van mijn voeten stond .	-0.32406458258628845
+Ik heb die dag niet in het hotel gestaan omdat ik me ziek begon te voelen.Aan de slag met de campagne Op donderdag 7 januari bracht ik literatuur en boeken ( Op het Ballot in Louisiana ) af bij een radiostation , universiteit en televisiestation ( WMUR-TV ) in Manchester .	-0.3929251730442047
+De lidstaten moeten het verstrekken van informatie aan de kiezers over de banden tussen nationale partijen en Europese politieke partijen vóór en tijdens de verkiezingen voor het Europees Parlement aanmoedigen en vergemakkelijken , onder meer door het toestaan en aanmoedigen van de vermelding van een dergelijke band met de bij die verkiezingen gebruikte stembiljetten .	-0.37184688448905945
+Hij vertelde dat de Katholieke Kerk in Polen vreesde dat bij de verkiezingen van januari 1957 het gemoedsrust van het volk hen ertoe zou brengen een enorme proteststem in te schrijven en hij beval alle katholieke geestelijken hun kuddes te laten stemmen op de atheïstische communistische kandidaten die op de stembiljetten stonden .	-0.5128185153007507
+Wanneer de zuiger in zijn bovenste positie aankomt en van richting verandert zal de kogel in de klep waarschijnlijk enigszins stuiteren waardoor de compressiedruk onmiddellijk wordt geëlimineerd tot normale druk.Er zal dan een vonk zijn maar ook een `` miss '' omdat het niet-ontvlambare gas niet kan ontbranden en de atmosferische druk zal blijven .	-0.4365115165710449
+Een paar uur na de [ Major League All - Star ] spel het Stadion was zo spic - en - span als de dag werd geopend .... 's Nachts , ongeveer 2.000 leden van Jehovah ... Getuigen daalde op het balpark en veegde het schoon naar de laatste hoek en cranny .	-0.4073966145515442
+In winkelwagen Merk : Genesis Gear Artikelnummer : D123332 Levertijd : Op voorraad / 3 dagen Neem contact op over dit product Zet op verlanglijst Toevoegen aan vergelijking Informatie Specificaties Reviews ( 0 ) Tags Genesis Base IR 55QR Panoramische Rotator Genesis koppen werken op basis van de ballen klemkracht verstelsysteem waardoor nauwkeurige aanpassing van een camera positie .	-0.22207170724868774
+Achter de foute lijn is een ...... ongeveer 15 voet lang gebruikt om snelheid en hefboomwerking op de bal voordat het leveren van het . 60 voet van de foute lijn , waar de rijstrook eindigt , wordt verbonden met een ruwweg 24-inch , 41.5-inch breed oppervlak van duurzaam en slagvast materiaal genaamd de ... pin deck . waar elk rek van spelden is ingesteld .	-0.5382834672927856
+Een grote scheidingssnelheid betekent niet dat de bron met die snelheid beweegt ten opzichte van zijn omgeving , maar alleen dat de afstand tussen de bron en ons zo snel toeneemt , net zoals de afstand tussen twee markeringen op een ballon toeneemt wanneer je de ballon opblaast , ook al bewegen de markeringen niet in vergelijking met hun omgeving op de ballon .	-0.3140732944011688
+Wat wij in dit uitstekende verslag zouden moeten nastreven , als wij werkelijk oog hebben voor de bal , is het recht van ieder individu om op zijn of haar eigen voorwaarden de sport van zijn of haar eigen keuze te beoefenen op het niveau van zijn of haar eigen bekwaamheid en dat alle obstakels voor een dergelijke vervulling moeten worden getoond met de rode kaart .	-0.5387742519378662
+De president is beperkt tot twee termijnen van zes jaar Het verstrekken van de rechterlijke macht zal toezicht houden op de verkiezingen De president is verplicht om een plaatsvervanger aan te wijzen Om de stemming te krijgen , zullen presidentskandidaten worden verplicht 30.000 handtekeningen te verstrekken uit ten minste 15 provincies , 30 leden van een kamer van de wetgever , of nominatie door een partij die ten minste één zetel in de wetgevende macht heeft .	-0.44942545890808105
+Door de informatieverstrekking aan de kiezers aan te moedigen en te vergemakkelijken over de aansluiting van nationale partijen bij Europese politieke partijen bij campagnes voor de verkiezingen voor het Europees Parlement en , waar mogelijk , ook over de stembiljetten die bij die verkiezingen worden gebruikt , zouden de lidstaten de zichtbaarheid van de Europese politieke partijen en de platforms die zij tijdens het hele Europese verkiezingsproces voorstellen , vergroten .	-0.35872364044189453
+Alfa Laval - Alfa Laval PureBallast 3 eerste op de markt voor ballastwaterzuivering met een herzien G8 certificaat } 2018-02-05 Productnieuws Alfa Laval PureBallast 3 eerste op de markt voor ballastwaterzuivering met een herzien G8 certificaat Alfa Laval PureBallast 3 , de derde generatie van de toonaangevende ballastwaterzuiveringstechnologie van de markt , is de eerste oplossing om te voldoen aan de herziene IMO G8 testvereisten .	-0.22438664734363556
+De verkiezing van 2015 is voorbij ! Na een kleine technische hik met de stemsoftware , ging de verkiezing zonder problemen af , en kiezers kozen twee nieuwe bestuursleden uit een keuze van een ongekende zes kandidaten op de stemming ! Gefeliciteerd aan onze nieuwe directeuren , Atiya Hakeem en Matty Bowers , die hun voorwaarden begonnen op 1 december ! Hun overwinning werd oorspronkelijk aangekondigd in een publieke post , 2015 Verkiezingsresultaten .	-0.3148525357246399
+De uitspraken van de rechtbank zijn echter niet gevolgd in een aantal belangrijke zaken , en met name in de follow-up van de zaak , die in het advies werd vermeld , van een parlementslid wiens mandaat in december 1996 werd ingetrokken , en van een ander lid van de SNS-partij , die werd beroofd van de zetel waarop hij recht had na de dood van een lid van het Parlement en in het geval van het besluit van het ministerie van Binnenlandse Zaken om de vraag over de rechtstreekse verkiezing van de president van de Republiek op het stembiljet in het referendum van mei 1997 niet op te nemen .	-0.3805687725543976
+De flux meet de snelheid van de stroom van energie die door elke cm^2 ( of een oppervlakte per eenheid ) van het oppervlak van een object per seconde gaat . De gedetecteerde flux is afhankelijk van de afstand van de bron die de energie uitstraalt . Dit is omdat de energie zich moet verspreiden over een volume van ruimte voordat het ons bereikt . Laten we aannemen dat we een denkbeeldige ballon hebben die een ster omsluit . Elke stip op de ballon vertegenwoordigt een eenheid van energie die wordt uitgezonden uit de ster . Aanvankelijk zijn de stippen in een gebied van één cm^2 in de nabijheid van elkaar en de flux ( energie per vierkante centimeter per seconde ) hoog . Na een afstand d , is het volume en de oppervlakte van de ballon toegenomen waardoor de puntjes zich uit elkaar verspreiden . Bijgevolg is het aantal puntjes ( of energie ) ingesloten in een cm^2 afgenomen zoals geïllustreerd in figuur 1 .	-0.35534095764160156
+Wie wil proberen om een wonder te maken zou letterlijk.gooi het gevoel , dat wil zeggen , ze moeten goed zijn om weg te breken van als , maar , wie weet , misschien ; en als je zou kunnen proberen dit vreemde gevoel een beving in zijn hart voelen , niet een adem of tachycardie cursus , iets anders en je merkt het omdat op hetzelfde moment waarnemen iets uit zijn hoofd , Het is de energie geest die vanwege de kracht van het gevoel hem verlaten voor een fractie van een seconde , en dit zal toestaan de energie van het hart uit te stralen . Het is dat proces al genoemd .	-0.41087472438812256
+Deze keer zag je de stier van de verticale referentielijn vallen zoals het deed in het geval van constante snelheid , maar stel dat je in de zes teleraat een referentiekader had , hoe kon je verklaren dat deze zwaartekracht de enige kracht is die op deze val werkt , dus zou hij recht naar beneden moeten vallen , maar bij de wet van traagheid moet er een farce zijn die zijwaarts duwt op de bal in deze richting die wordt toegekend om af te wijken van het verticale pad , maar wat voor soort kracht is het niet gravitatief of een elektrische of nucleaire kracht in feite is het in de kracht , omdat we weten welk verhaal er nog over is om af te sluiten maar het krijgt sensor is geen kracht die in deze richting op de bal zou kunnen duwen , maar de wet gouvernement houdt dit niet als een vreemd referentiekader waarin de wet van traagheidsgaten en traagheid de wet de wet noemt hoe de verpleegster of houdt in het derde frame van referentie , dus het is een traagheidsframe van de auto die bij constante snelheid ten opzichte van de aarde een traagheidsframe is , maar de auto die een gespecificeerd is , dat is niet een traagheidsframe dat we gebruiken om in traagheid te	-0.6125013828277588

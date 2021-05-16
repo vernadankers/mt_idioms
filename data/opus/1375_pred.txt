@@ -1,0 +1,500 @@
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.45673665404319763
+Blijf zitten !	-0.590524435043335
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten !	-0.590524435043335
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Zitten ?	-0.7708228826522827
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten ... ''	-0.5912046432495117
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Zitten ?	-0.7708228826522827
+Zitten ?	-0.7708228826522827
+Blijf zitten .	-0.4132959544658661
+Blijf zitten !	-0.590524435043335
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+Blijf zitten !	-0.590524435043335
+Blijf zitten .	-0.4132959544658661
+Blijf zitten .	-0.4132959544658661
+- Zit goed .	-0.5968206524848938
+Blijf zitten .	-0.4132959544658661
+Blijf zitten ...	-0.4408242702484131
+Blijf zitten .	-0.4132952392101288
+Blijf zitten .	-0.4132952392101288
+Blijf zitten .	-0.4132952392101288
+Blijf zitten .	-0.4132952392101288
+Blijf zitten .	-0.4132952392101288
+Blijf zitten .	-0.5846134424209595
+- Blijf zitten .	-0.459049791097641
+Blijf zitten , Gabe .	-0.3146896958351135
+Oké , blijf zitten .	-0.433964341878891
+Blijf zitten .	-0.6152662634849548
+Oké , blijf zitten .	-0.41202929615974426
+- Blijf zitten .	-0.459049791097641
+Blijf zitten .	-0.6152662634849548
+Zit gewoon goed .	-0.8010568022727966
+Blijf zitten .	-0.6152662634849548
+Blijf zitten , jongen .	-0.5216313004493713
+Blijf zitten , Zachary .	-0.287108838558197
+Oké , blijf zitten .	-0.43469589948654175
+Blijf zitten .	-0.6152662634849548
+- Blijf zitten .	-0.6037349700927734
+Blijf zitten , Marcy .	-0.31594347953796387
+Blijf zitten .	-0.6152662634849548
+Oké , blijf zitten .	-0.4004431962966919
+Blijf zitten , pap .	-0.49507179856300354
+Blijf zitten , Pete .	-0.31128427386283875
+Blijf zitten .	-0.5846134424209595
+Blijf zitten .	-0.6152662634849548
+Blijf zitten .	-0.6152662634849548
+Ja , blijf zitten .	-0.4814133644104004
+Ja , blijf zitten .	-0.4504576027393341
+Blijf zitten .	-0.5846134424209595
+Blijf zitten .	-0.6152662634849548
+Blijf zitten .	-0.5846134424209595
+Blijf zitten .	-0.6152667999267578
+Blijf zitten .	-0.6152667999267578
+Blijf zitten , zuster .	-0.4608592092990875
+Blijf zitten , ida .	-0.5737109780311584
+Kensi , blijf zitten .	-0.31295347213745117
+Blijf zitten , Farrell .	-0.2980136573314667
+Blijf zitten .	-0.5846134424209595
+Blijf zitten .	-0.6152667999267578
+Oké , blijf zitten .	-0.4541323184967041
+We blijven hier .	-0.4741927981376648
+Blijf zitten .	-0.6152667999267578
+Blijf zitten .	-0.6152667999267578
+Blijf zitten .	-0.5846134424209595
+Blijf zitten .	-0.6152667999267578
+Blijf zitten , oké ?	-0.40983790159225464
+- Blijf zitten .	-0.4590499997138977
+Blijf zitten , broeder .	-0.5739232897758484
+Blijf zitten .	-0.6152667999267578
+Blijf zitten .	-0.6152667999267578
+Oké , blijf zitten .	-0.412029892206192
+Blijf zitten , kinderen .	-0.43516138195991516
+We blijven hier .	-0.4741927981376648
+Blijf zitten .	-0.6152667999267578
+Blijf zitten . Wat ?	-0.5433828830718994
+Blijf zitten .	-0.6152667999267578
+We blijven hier .	-0.5241645574569702
+- Blijf zitten .	-0.6379302740097046
+Blijf zitten , Thayer .	-0.28644120693206787
+Blijf zitten .	-0.6152667999267578
+Blijf zitten .	-0.6152667999267578
+We blijven hier .	-0.4741927981376648
+Blijf zitten , oké ?	-0.4098377227783203
+- Blijf zitten .	-0.459049791097641
+Blijf rustig zitten , oké ?	-0.4837511479854584
+Blijf hier zitten .	-0.5490328669548035
+Blijf rustig zitten , oké ?	-0.5037517547607422
+Oké , blijf zitten , rust uit .	-0.43278560042381287
+Ik kan blijven zitten .	-0.46959546208381653
+Oké , blijf dan zitten .	-0.4116023778915405
+Mrs Briggs , blijf zitten .	-0.3370204567909241
+Blijf maar zitten .	-0.7507489323616028
+Oké , blijf zitten .	-0.4438319206237793
+Gewoon , uh , blijf zitten .	-0.6770003437995911
+Blijf zitten , jongen .	-0.5031033158302307
+Dus ... blijf rustig zitten .	-0.5701301097869873
+Alle eenheden , blijf zitten .	-0.4570104479789734
+Ja , blijf rustig zitten .	-0.6451154947280884
+- Blijf zitten .	-0.6207455992698669
+Blijf zitten , oké ?	-0.41938385367393494
+Nee , blijf zitten .	-0.5459139347076416
+Tot dan , blijf zitten .	-0.48767611384391785
+Oké , blijf rustig zitten .	-0.4890466332435608
+Blijf zitten .	-0.6269803643226624
+Blijf zitten , Jason .	-0.4273836314678192
+Dus blijf rustig zitten .	-0.5639404654502869
+Pete , blijf zitten .	-0.325436532497406
+Oké , blijf zitten , Leo .	-0.3759815990924835
+Blijf maar zitten .	-0.7507489323616028
+Jullie twee blijven hier .	-0.5042761564254761
+Het moet blijven zitten .	-0.6480843424797058
+Jij blijft zitten .	-0.6224241256713867
+Blijf zitten , soldaat .	-0.42257803678512573
+Blijf zitten , Mike .	-0.40118518471717834
+Ik zei wacht even .	-0.5889492630958557
+Kun je hier blijven zitten ?	-0.48384207487106323
+Voor nu , blijf zitten .	-0.5849294066429138
+Blijf zitten , Adam .	-0.4668389856815338
+Meisjes , blijf zitten .	-0.5371821522712708
+Blijf rustig zitten , ja ?	-0.6108902096748352
+Blijf zitten , Riley .	-0.3051898777484894
+`` Blijf hier . Blijf zitten . ''	-0.5230082869529724
+Gewoon , uh , blijf zitten .	-0.6770003437995911
+Oké , blijf zitten .	-0.4551018178462982
+Grish , blijf rustig zitten .	-0.5285434126853943
+- Blijf zitten .	-0.6059889197349548
+Blijf zitten , Miss Creighton .	-0.23752126097679138
+Nou , blijf rustig zitten .	-0.6310593485832214
+Nou , blijf dan zitten .	-0.4978017210960388
+Oké , iedereen blijven zitten ...	-0.5872606635093689
+- Blijf zitten .	-0.6207455992698669
+Blijf rustig zitten , oké ?	-0.4851175546646118
+Blijf rustig zitten , oké ?	-0.47729581594467163
+Jullie twee blijven hier .	-0.5042761564254761
+Kun je hier blijven zitten ?	-0.48384207487106323
+Niets , blijf zitten !	-0.5391808748245239
+Oké , blijf zitten .	-0.4438319206237793
+Jullie twee blijven hier .	-0.5042761564254761
+Blijf maar zitten .	-0.7507489323616028
+Waarvoor ?	-0.548960268497467
+Ja , blijf rustig zitten .	-0.5864495635032654
+Oké , blijf zitten .	-0.4438319206237793
+- Blijf zitten .	-0.6207455992698669
+Blijf zitten , Andy , ik kom eraan .	-0.34699323773384094
+En blijf hier zitten .	-0.47231677174568176
+We moeten hier blijven , oké .	-0.5191482305526733
+Je moet hier blijven zitten .	-0.6253352165222168
+Oké , blijf zitten .	-0.5128530859947205
+Wil je even blijven zitten ?	-0.6633257865905762
+Tot die tijd blijven we zitten .	-0.5832504630088806
+Hou je gedeisd .	-0.7781869769096375
+Wacht even voor me .	-0.76876300573349
+Nee , mam , jij blijft hier .	-0.42908838391304016
+Wacht even .	-0.8719562292098999
+Blijf zitten , klootzak .	-0.4834783971309662
+Oké , blijf zitten .	-0.4810413718223572
+Blijf zitten , Mrs Morse .	-0.3348536789417267
+Waarom blijf je niet zitten ?	-0.3829168677330017
+Blijf zitten , Jamie , oké ?	-0.4020865261554718
+Ja , mevrouw , we blijven hier .	-0.5751292705535889
+Blijf zitten en observeer alleen .	-0.36993181705474854
+Zeg dat iedereen moet blijven zitten .	-0.5839309692382812
+De man zei dat je moest wachten .	-0.6083374619483948
+Op dit moment blijven we zitten .	-0.6315639019012451
+Blijf zitten , grote jongen .	-0.5153254866600037
+Jij en Chad blijven hier .	-0.3643091022968292
+Oké , Kenzi , blijf rustig zitten .	-0.36692407727241516
+Je moet hier blijven zitten .	-0.6592299342155457
+Hou je gedeisd .	-0.6863183379173279
+- We blijven hier .	-0.6408399939537048
+Jij blijft hier , ik ga wel .	-0.5512193441390991
+Blijf rustig zitten , oké ?	-0.5206283926963806
+Voor nu , blijf rustig zitten .	-0.677268922328949
+Blijf zitten en blijf kalm .	-0.5338487029075623
+Blijf rustig zitten , oké ?	-0.5206283926963806
+Blijf zitten , ik kom terug .	-0.453058123588562
+Oké , blijf zitten .	-0.5507674217224121
+Blijf zitten , daar komen ze .	-0.43873313069343567
+Laat onze mannen wachten .	-0.5906305909156799
+Hou de wielen in de gaten .	-0.4025939702987671
+Kun je even blijven zitten ?	-0.5561509132385254
+- Dus blijf zitten en ...	-0.6775064468383789
+Blijf rustig zitten , oké ?	-0.49642032384872437
+Oké , Mac , blijf zitten .	-0.42448893189430237
+Blijf zitten , meisje .	-0.4908122718334198
+Zeg Lou dat hij moet wachten .	-0.45198923349380493
+Oké , blijf zitten , jongens .	-0.4456161856651306
+Ontspan je , blijf zitten .	-0.5953293442726135
+Blijf zitten , ik kom terug .	-0.453058123588562
+Blijf allemaal zitten , ik moet ...	-0.5312294960021973
+Zeg dat ze moet blijven zitten .	-0.49935880303382874
+Ik stel voor dat we blijven zitten .	-0.6991565227508545
+Blijf zitten en doe niets .	-0.2726452648639679
+Wat is er gebeurd ?	-0.2619338035583496
+Blijf rustig zitten , oké ?	-0.5206283926963806
+Ik ben zo terug .	-0.25595226883888245
+We blijven hier tot het donker is .	-0.3854910135269165
+Oké , wacht even , ik stuur hulp .	-0.4601156413555145
+Gaan we hier blijven zitten ?	-0.5360603332519531
+Hou me op de hoogte .	-0.26358649134635925
+Oké , blijf rustig zitten , oké ?	-0.47630053758621216
+Oké , jij en profeet blijven zitten .	-0.41061100363731384
+Pak wat te eten en blijf zitten .	-0.4194399118423462
+Je weet dat je nu moet blijven zitten .	-0.6274669766426086
+- Kom op , blijf zitten .	-0.6094035506248474
+Tot dan , laat hem blijven zitten .	-0.5846728682518005
+Blijf rustig zitten , oké ?	-0.540136456489563
+Blijf even zitten .	-0.583551824092865
+Ik zei dat ze moesten blijven zitten .	-0.5018585324287415
+Blijf zitten , ik kom terug .	-0.5861349701881409
+Oké , Mr Pitt , blijf zitten .	-0.377903014421463
+Ik ben zo terug .	-0.3174872100353241
+Oké , blijf rustig zitten .	-0.6650359630584717
+We moeten hier blijven zitten , sorry .	-0.4966273605823517
+- Mevrouw , hij zei : `` Zit goed . ''	-0.5721095204353333
+Blijf zitten , we krijgen je wel .	-0.512610673904419
+Het plan is om te blijven zitten .	-0.4535050392150879
+Zeg dat ze moeten blijven zitten .	-0.4945944547653198
+Er klopt iets niet .	-0.2727850377559662
+Blijf zitten tot het uitkomt .	-0.5754256248474121
+We moeten gewoon blijven zitten .	-0.524768590927124
+Wacht tot dan , oké ?	-0.5388159155845642
+Oké , blijf zitten .	-0.6095669269561768
+Blijf zitten , vriend , ik volg hem .	-0.6259257197380066
+Blijf rustig zitten .	-0.682218074798584
+Blijf zitten , Claire .	-0.4623253643512726
+Nou , we blijven hier rustig zitten .	-0.5200231671333313
+Blijf zitten , luister naar de telefoon .	-0.4502779245376587
+Zeg niet dat ik moet blijven zitten .	-0.5015947818756104
+Dat is niet iets waar ik goed in ben ... zit strak .	-0.48788711428642273
+Geweldig .	-0.7424681782722473
+Tot we antwoorden hebben , blijven we zitten .	-0.515214741230011
+Oké , wacht even , oké ?	-0.4556749761104584
+We wachten tot hij vrij is .	-0.7242543697357178
+Ik hou van je .	-0.3676040470600128
+Blijf zitten .	-0.561154305934906
+Blijf zitten en geef ze de tijd .	-0.5140893459320068
+Nee , blijf zitten , ik neem contact op .	-0.5672059655189514
+Maak je daar geen zorgen over .	-0.49841341376304626
+Maar ik wil niet blijven zitten !	-0.36199328303337097
+Blijf zitten , ik kom eraan .	-0.5039570331573486
+Je zult moeten blijven zitten .	-0.6313048005104065
+Misschien moet je even blijven zitten .	-0.6538987159729004
+- Hou vol , ze zijn onderweg .	-0.46120378375053406
+Blijf zitten , je moet hier veilig zijn .	-0.4712682366371155
+Jullie gaan nergens heen .	-0.22136162221431732
+Als je even kan blijven zitten ...	-0.6530865430831909
+Oké , blijf rustig zitten .	-0.5802287459373474
+Die vent beweegt zich niet .	-0.6841259002685547
+Blijf zitten , ik kom terug voor je .	-0.4388442635536194
+Nee , luister , ik stel voor dat we blijven zitten .	-0.7265586256980896
+Steve , blijf zitten en wacht op EMS .	-0.44346046447753906
+- Ik weet het niet , blijf zitten tot ...	-0.48253628611564636
+Blijf zitten ... ik zal het voor je halen .	-0.5048601627349854
+Zeg dat ze moeten blijven zitten .	-0.6013786792755127
+Je moet gewoon blijven zitten , oké ?	-0.4697856605052948
+Dus , blijf zitten , ontspan , en het belangrijkste ...	-0.5602937340736389
+Ik bel je rond middernacht .	-0.19967642426490784
+Zeg hem dat hij moet blijven zitten .	-0.5420964360237122
+Wacht even , wacht even .	-0.4909202754497528
+Probeer rustig te blijven en rustig te blijven zitten .	-0.5290194153785706
+Sorry , blijf rustig zitten , oké ?	-0.5539392232894897
+Bel voor een inbeslagname en blijf rustig zitten .	-0.5832769870758057
+Blijf zitten , de wereld moet dit zien .	-0.37322983145713806
+Wacht even .	-0.5818787217140198
+Ik ben er over tien minuten .	-0.40161409974098206
+Probeer geen zwerfhond te vangen .	-0.4103417694568634
+We blijven hier , kijken hoe het werkt .	-0.7097821831703186
+Maar ik wil niet blijven zitten .	-0.3307075798511505
+Ik dacht dat Dylan zei dat we moesten blijven zitten .	-0.4311615526676178
+Laten we wachten tot de patrouille komt .	-0.5194178819656372
+Ik weet zeker dat we hem zullen vinden .	-0.7082812786102295
+Blijf zitten en dit zal snel voorbij zijn .	-0.48667091131210327
+Blijf zitten , Robbie , dan vinden we wel iets .	-0.40028053522109985
+Nee , blijf zitten , Andy , ik regel deze .	-0.4800426661968231
+Ik ben het zat om te zitten .	-0.35099896788597107
+Als een stel bange konijnen ?	-0.42017093300819397
+Oké , blijf zitten , we zijn onderweg .	-0.44473540782928467
+Boden zegt dat je even moet wachten .	-0.5997626781463623
+Wacht even , ik ga even weg .	-0.6977511644363403
+Ik denk dat we gewoon moeten blijven zitten .	-0.5002820491790771
+We blijven hier tot versterkingen er zijn .	-0.516755223274231
+Vidar , blijf zitten , zoals we zien , wat er gebeurt .	-0.37238577008247375
+Eenheid nummer één in positie .	-0.5614296793937683
+Je zei dat ik moest blijven zitten , en dat deed ik .	-0.5235607028007507
+Het duurt een paar uur .	-0.5314088463783264
+Jullie twee blijven hier , we komen snel terug .	-0.6387733221054077
+Laat me naar haar toe gaan .	-0.4221018850803375
+Blijf zitten terwijl ik overleg met mijn dame .	-0.363388329744339
+Blijf zitten .	-0.7201527953147888
+We moeten wachten op versterking ...	-0.6835960745811462
+Wacht op je geld en blijf zitten .	-0.3686847686767578
+Blijf zitten en wacht tot morgenochtend .	-0.42040079832077026
+Oké , blijf zitten , maat .	-0.6614224910736084
+Waarom zei hij dat ik moest blijven zitten ?	-0.3142816424369812
+Blijf zitten , ik lok ze eraf .	-0.5432121753692627
+Ik zei haar , blijf zitten , hij komt terug .	-0.5206754803657532
+Op het perron , als er problemen zijn , blijf dan zitten .	-0.47495540976524353
+Blijf zitten , ik ben zo terug .	-0.4734743535518646
+Blijf zitten en er komt zo iemand .	-0.5905906558036804
+We moeten wachten op hulp .	-0.3882809281349182
+Ze zeiden rustig te blijven en contact met ons op te nemen .	-0.5848159790039062
+Je weet wanneer je moet verkopen , wanneer je moet wachten .	-0.3178477883338928
+Blijf zitten en we zullen er naar kijken , oké ?	-0.6071386337280273
+Blijf hier , ik ben zo bij je .	-0.6634386777877808
+Ik denk dat ik hem een tijdje laat wachten .	-0.4744987189769745
+Blijf zitten , ik bel je zo terug .	-0.3955468237400055
+Blijf zitten en laat de vampiers niet bijten .	-0.33729931712150574
+We halen je hier weg , blijf rustig zitten .	-0.4950309693813324
+We hebben vijf minuten .	-0.35985326766967773
+Blijf zitten , ik zal voor je zorgen .	-0.514196515083313
+We gaan allemaal dood .	-0.4012082815170288
+Oké , blijf rustig zitten , Elena , het was een misverstand .	-0.40934839844703674
+Blijf zitten , Tracy , ik haal je hier weg .	-0.44385918974876404
+Jij blijft hier en ik regel alles .	-0.5062547922134399
+Ik zei dat hij me moest bellen .	-0.4153665006160736
+We wachten op een evacuatie .	-0.6368523836135864
+Blijf zitten , ik ben zo in Atlanta .	-0.29965513944625854
+Als jij het goed vindt , blijf ik hier .	-0.4723588228225708
+We blijven hier en proberen radiocontact te maken .	-0.535579264163971
+Zeg dat ze op de uitkijk moeten blijven staan .	-0.5043965578079224
+We komen je wel opzoeken .	-0.6909750699996948
+Jij blijft zitten terwijl ik dit ding buiten neem .	-0.4991377294063568
+We wachten op die helikopter .	-0.5107523202896118
+Ik ben zo terug .	-0.5250037312507629
+Ik laat iemand je naar huis brengen .	-0.459477961063385
+Nou , het is een beetje moeilijk om te blijven zitten , meneer .	-0.5288574695587158
+Blijf zitten en laat me dit uitzoeken .	-0.4222419857978821
+Blijf zitten , ik moet even bellen .	-0.3704109787940979
+Dus , alsjeblieft , zoals u zou kunnen zeggen , heren , blijf zitten .	-0.4334927201271057
+- Hou vol , mevrouw . We zijn onderweg .	-0.5662788152694702
+Blijf zitten tot we verder bericht van Euro ontvangen .	-0.6899889707565308
+Blijf zitten en we zullen snel bij je zijn , oké ?	-0.5123903155326843
+Als hij dat niet doet , blijf jij maar zitten .	-0.4940216839313507
+Ik ga even bij hem kijken .	-0.4632920026779175
+Blijf zitten en zeg niets , laat me praten .	-0.3757997453212738
+Blijf zitten en raak niets aan .	-0.4311421513557434
+Ik weet alleen dat Cosima zei dat we moesten blijven zitten .	-0.44227755069732666
+Ik weet dat dit moeilijk is , maar mijn advies ...	-0.3365047872066498
+Beckman zei dat ik moest wachten .	-0.42470651865005493
+Blijf zitten , we halen je hier weg .	-0.4903790056705475
+Blijf zitten tot je iets van me hoort .	-0.5048507452011108
+Oké , ik wil dat jullie blijven zitten .	-0.39744606614112854
+Hé , meneer , blijf daar voor me zitten , oké ?	-0.4562547206878662
+Dus waarom blijf je niet zitten , laat de volwassenen praten .	-0.40055766701698303
+Blijf zitten en we krijgen het nummer dat we willen .	-0.42963889241218567
+Ik bel je als ik je nodig heb .	-0.32490652799606323
+Oké , Benny , blijf zitten en hou je mond dicht .	-0.39635610580444336
+We moeten drie minuten wachten .	-0.654466986656189
+Ik ga kijken of Miss Cotton al wakker is .	-0.2865617573261261
+Natuurlijk blijf ik hier , maar doe het snel , oké ?	-0.5028780102729797
+Kun je blijven zitten tot ik iemand kan bereiken ?	-0.4917196035385132
+Ik ga even kijken .	-0.4988001883029938
+Ik zal dit zo snel mogelijk doen .	-0.43553417921066284
+Mariniers , DEA , tot ik klaar ben , blijven we hier .	-0.5073662996292114
+Jij en Percy zoeken een veilige plek en blijven zitten .	-0.3165281116962433
+Dan wacht ik tot ik iets van je hoor .	-0.5186998844146729
+We gaan je helpen .	-0.5600130558013916
+Ik zal er snel zijn , dus blijf bij je mannetje .	-0.4258370101451874
+Andy , ga weg bij de deur .	-0.34887489676475525
+Ja , dus blijf rustig zitten , en alles komt goed .	-0.537607729434967
+Dus we boeken vooruitgang .	-0.5302830338478088
+Nee , we wachten tot Nokes weer oproept .	-0.5219924449920654
+We zoeken wel uit wat we moeten doen .	-0.4485870897769928
+Oké , blijf zitten tot ik je je signaal geef .	-0.5521902441978455
+We moeten gewoon blijven zitten en wachten op hulp .	-0.5557611584663391
+Oké , zeg dat ze moeten blijven zitten , we komen er zo aan .	-0.5413752198219299
+We blijven hier tot we later met hem kunnen praten .	-0.41943252086639404
+Blijf zitten , kleine jongen , en ze zullen hier zijn om je te pakken .	-0.48809394240379333
+Ik wil dat jullie even rustig blijven zitten .	-0.46791332960128784
+Oké , iedereen , blijf zitten tot het geld van hand verandert , oké ?	-0.5583147406578064
+We wachten tot het bedrijf in kracht aanvalt .	-0.5524054169654846
+Hou je adem in en bid als je ze hebt .	-0.32381558418273926
+Ondertussen hoeven we alleen maar te wachten .	-0.5185774564743042
+Ik blijf hier tot het thuis geregeld is .	-0.6369972229003906
+We gaan een tijdje nergens heen , dus blijf rustig zitten .	-0.4169227182865143
+Je wordt misschien gevraagd om terug te gaan , dus blijf zitten .	-0.6056645512580872
+Blijf zitten terwijl ik rond ruik ... en bereid wat warm water voor .	-0.4468900263309479
+Waarom blijf je niet zitten terwijl we je laten verwerken ?	-0.6859908699989319
+Ik bel je als ik de kans krijg .	-0.40252023935317993
+Nolan zei dat we moesten wachten , dus dat gaan we doen .	-0.4396185576915741
+Captain , we kunnen nu geen medivac sturen .	-0.5611342191696167
+Luister naar me , ik wil dat je daar blijft zitten .	-0.36470314860343933
+Je hebt penicilline nodig , dus blijf zitten .	-0.5264173746109009
+Als een meermin die blijft zitten hoeveel weten ze ?	-0.6524136662483215
+Je wilt op één plek blijven zitten , relaties ontwikkelen , de afspraken winnen .	-0.5422634482383728
+Jules , wacht even , ik kom zo snel mogelijk terug .	-0.4010158181190491
+Ik kwam alleen zeggen dat we een plan hebben .	-0.37070322036743164
+Ik wacht nog steeds op de uitslagen van het lab , dus voor nu , blijf zitten .	-0.5587782859802246
+U ziet uw cliënt als we het zeggen .	-0.6127466559410095
+We doen een gunst voor een vriend van Lucious .	-0.3169102072715759
+Blijf zitten en laat ze elkaars ogen eruit krabben .	-0.42886093258857727
+Dit is Saxon 4-3 , blijf zitten , Sierra 2-0 , we zijn onderweg .	-0.46803492307662964
+De captain zegt dat we deze loopgraaf moeten vasthouden .	-0.4865263104438782
+Kun je even wachten tot we er zijn ...	-0.6702861785888672
+Ik kom van deur tot deur , net als die verdomde Avon dame .	-0.38828015327453613
+Blijf zitten en ik ben hier over 30 seconden weg .	-0.46979668736457825
+Dan blijven we zitten ... en raakt Jesse de boerderij hoe dan ook kwijt .	-0.4553193151950836
+Ik krijg net last van m ' n symptomen .	-0.6123166680335999
+Harvey zei dat ik moest blijven zitten , dat is precies wat ik ga doen .	-0.3910497725009918
+Als je vijf minuten wacht , bel ik een ambulance .	-0.4033782184123993
+Als we hier sterven zullen de Tokugawa niet blijven zitten .	-0.42596107721328735
+Oké , dan wachten we tot Pratt hier is , oké ?	-0.41141477227211
+Als we blijven zitten , is er een goede kans dat Bauer ons vindt .	-0.33985498547554016
+Als je blijft zitten , bel ik je terug .	-0.5473155379295349
+Jullie blijven hier en ik pak het geld , oké ?	-0.4263972342014313
+Hey , uh , jij en je zoon blijven zitten , en ik pak ze .	-0.46993523836135864
+Zoals ik al zei , we gaan dit oplossen .	-0.3987025320529938
+Nee , te gevaarlijk , we blijven allemaal zitten en denken aan snoeprepen .	-0.5720880031585693
+Maak je geen zorgen , kerel , blijf rustig zitten , en ik ga hulp voor je halen .	-0.524804413318634
+Blijf zitten , schatje , en kijk hoe we de rest van je vrienden neerhalen .	-0.41830548644065857
+Ik moet dit afhandelen , dus ... blijf rustig zitten .	-0.5279594659805298
+Waarom blijf je niet hier , geef me alles wat er gebeurt , oké ?	-0.46162664890289307
+Dat betekent dat we gewoon wachten tot de politie komt .	-0.4747059643268585
+Ik stuur een professional om de situatie op te lossen .	-0.3969312906265259
+Goed bedacht voor de limochauffeur , we zijn onderweg .	-0.5183587670326233
+De tweede golf moet hier blijven tot je partner deze lijn oversteekt .	-0.5954679846763611
+Ik ben onderweg , we komen er wel uit .	-0.46894049644470215
+Dezelfde werkwijze als de recente sms die Bains kreeg , die hem vertelde om te blijven zitten .	-0.651749312877655
+Onze koning vindt dat we moeten wachten tot hij terug is .	-0.40460509061813354
+We wachten tot de gesprekken voorbij zijn , en dan is het een simpele extractie .	-0.42393070459365845
+Ik ben over een paar minuten opgelucht , dus hou je mond en blijf zitten .	-0.4322449564933777
+Dus het veiligste wat we kunnen doen is afwachten .	-0.47007986903190613
+Ga naar het Hotel de la Plaza , wacht daar op me , oké ?	-0.412947416305542
+Ik hoefde alleen maar te wachten op zijn telefoontje .	-0.3353983461856842
+Blijf rustig en probeer warm te blijven , oké ?	-0.46543440222740173
+Oké , nu denkt hij dat ik alleen kom , dus ik wil dat je blijft zitten .	-0.3647020757198334
+Blijf zitten en we halen je hier zo weg .	-0.5669897794723511
+Hoe dan ook , het ding om te doen is om te blijven zitten totdat ik de dingen uit te zoeken .	-0.7197807431221008
+Amerika 's beste en slimste zijn op de zaak , dus je kunt blijven zitten .	-0.36529916524887085
+Hou m ' n verloofde in de gaten en verminder z ' n morfine-infuus .	-0.33315157890319824
+Ik moet blijven zitten en naar Afrika en dan zal alles veranderen .	-0.4422411620616913
+De zaak verhuist over een paar minuten , dus blijf rustig zitten .	-0.6975551843643188
+Blijf in leven en wacht tot de cavalerie er is .	-0.4322161078453064
+Ik denk dat onze beste kans is om te blijven zitten en te zien wat onze opties zijn .	-0.5246171951293945
+Hou vol , zodat we een plan kunnen maken ...	-0.6082566380500793
+Nee , ik zei dat ze Berko in de gaten moesten houden tot we er waren .	-0.5288133025169373
+Ik blijf hier en hou m ' n mond , zonder problemen voor je te veroorzaken .	-0.6900604367256165
+Helaas zal hij moeten wachten tot we dit opgelost hebben .	-0.6021474003791809
+Ik heb over 30 minuten een afspraakje met Sloan .	-0.45655757188796997
+Maar nu is het tijd om rustig te blijven ... totdat we zien wat er gaat gebeuren .	-0.36628100275993347
+We blijven tien minuten zitten en dan gaan we ervandoor .	-0.5083975195884705
+De media wordt gek over dit ding , dus laten we gewoon blijven zitten en kijken wat er gebeurt .	-0.4832681119441986
+Nee , jij blijft zitten en ik gebruik de slang in de achtertuin .	-0.4588250517845154
+Blijf alsjeblieft zitten , tenminste totdat ik het leger daar kan krijgen om je te steunen .	-0.6412621140480042
+Nou , als jullie even blijven zitten , ik kom zo bij jullie , oké ?	-0.44834813475608826
+Fi brengt je naar een leuk motel .	-0.4085084795951843
+Ik zal er even over nadenken .	-0.6143286824226379
+Als je geduld hebt , zijn we hier weg voordat je het weet .	-0.46432846784591675
+Nu dat ik heb wat ik nodig heb , ga ik zitten wachten om gered te worden .	-0.3730735182762146
+De luitenant wil je nog wat vragen stellen .	-0.37742647528648376
+Ze pakten je kind en zeiden dat je 48 uur moest blijven zitten en je mond houden .	-0.5610450506210327
+We wachten tot de advocaat belt en dan zijn we vrij .	-0.45622482895851135
+En , hoezeer het mij persoonlijk ook raakt , ik denk dat we de bonussen niet mogen missen .	-0.5945749878883362
+Arlington , Virginia , onthoud het adres en blijf daar tot iemand contact met je opneemt .	-0.4250711500644684
+Luister , blijf zitten en ik zoek uit waar Vargas dit bestuurt en ik laat het je weten .	-0.41377320885658264
+Wacht dan , dan stuur ik een verpleegster langs om Tara op te halen .	-0.48778679966926575
+Ik heb DiNozzo gebeld in z ' n hotel .	-0.5008190274238586
+Als deze wezens fobisch zijn over licht , dan blijven we zitten en laten we de zon opkomen .	-0.3449174761772156
+Oké , ik weet dat ik het verpest heb , maar blijf zitten ... ik heb een kleine verrassing voor je .	-0.36591315269470215
+Je moet wachten tot Hakeem genoeg vuil heeft over Mimi , dan is Dre klaar om toe te slaan .	-0.5256737470626831
+Ze zegt dat ze geen kaneel toast heeft , maar als je blijft zitten , zal ze wat scones ritselen .	-0.44141796231269836
+Ze zou over 20 minuten op school moeten zijn , jij blijft hier , we hebben een gelukkig einde hier .	-0.5407001972198486
+Blijf zitten en laat me kijken of iemand je kan halen .	-0.6434563398361206
+Jullie drie , neem een positie in , blijf zitten tot je een signaal hoort , en open dan alles wat beweegt .	-0.4307587146759033
+Bel de advocaten van justitie . Zeg dat ze moeten blijven zitten . Laat ze geen vluchten naar huis boeken .	-0.5256334543228149
+Als we dit gaan winnen , doen we het in een rechtbank van publieke opinie .	-0.5236368775367737
+Dit is wat ik wil dat je doet , hoewel ik wil dat je blijft zitten en me in de gaten houdt .	-0.3991948068141937
+Walker en McQuaid zullen een paar uur moeten wachten , maar we hebben ze zo thuis .	-0.37595057487487793
+Waarschijnlijk een goed idee om gewoon te blijven zitten , denk je niet , weet je , en zien waar de hoofden van deze jongens zijn ?	-0.4757039546966553
+Kathy Finn belde ook over de overname , dus stuurde ik haar de laatste specificaties , en ik zei dat ze moest blijven zitten .	-0.40357908606529236
+Als we Henry en Moloch willen pakken , kunnen we geen oorlog voeren op twee fronten .	-0.34696751832962036
+Er is eerst behoefte om elke houding van zelfgenoegzaamheid of idee dat , als je blijft zitten , alles zal goed komen .	-0.5066839456558228
+Ik weet dat jullie allemaal bezorgd zijn , maar wacht even , ik weet zeker dat Castillo een verklaring heeft waarom de trein niet is aangekomen .	-0.37387362122535706
+Ik kreeg één bericht van mijn begeleiders ... om te blijven zitten omdat er een intern probleem was ... en toen niets .	-0.5210773944854736
+Jerry staat voor die deur , ik ga Miss Summers ophalen .	-0.5190014243125916
+Je neemt posities in , je blijft zitten , wacht op het signaal , je beweegt niet , je maakt geen geluid totdat de put ontploft .	-0.37900620698928833
+Interpol en FSB zoeken haar nu , dus we kunnen alleen maar wachten tot ze weer op de radar verschijnt .	-0.41180619597435
+De kinband hoort niet vast te zitten - , maar zorgt er alleen voor dat het masker goed rond het gezicht sluit zonder het te beperken .	-0.4088638722896576
+Hij zal hier moeten blijven voor een wapenaanklacht , dus hoe dan ook , hij moet hier blijven tot we dit kunnen oplossen .	-0.688400149345398
+Nou , op dit moment blijven we zitten , kijken hoe hij reageert op het medicijn , laat hem een paar dagen rusten , krijg zijn kracht terug , dan kunnen we opereren .	-0.42595601081848145
+Ik moet blijven zitten en naar Afrika en dan zal alles veranderen . Langzaam , heel langzaam , de km pass en ik nader het einde van de Special .	-0.34647390246391296
+En omdat je getraind bent om rustig te blijven zitten en geen woord te zeggen , dan word je waarschijnlijk voor zonsopgang vrijgelaten , want dat is waar onze huidige regering ons allemaal laat handelen .	-0.5159652233123779
+Normaal gesproken heb je een scène als deze , met een gewapende dader gebarricadeerd in een huis met een gijzelaar , het is een studieboek zaak om ESU en HNT te bellen en te wachten tot ze er zijn .	-0.3520638048648834
+Een meer proactieve aanpak van de omzetting was ook nodig op nationaal niveau , zodat Europa als geheel het groeipotentieel beter kan benutten in plaats van vast te zitten en te wachten op de gevolgen van de externe vraag .	-0.43006834387779236
+Dus blijf rustig zitten , geniet van je muffin , en als ik je iets anders hoor zeggen dan `` alsjeblieft '' of `` dank je '' tegen Carly , dan sleep ik je naar het herentoilet en was je mond uit met zeep .	-0.33138513565063477

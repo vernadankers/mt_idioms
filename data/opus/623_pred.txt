@@ -1,0 +1,3 @@
+We hebben een tijger bij de staart .	-0.216359943151474
+We zouden een tijger bij de staart hebben .	-0.28938615322113037
+Maar ze hebben een tijger bij de staart .	-0.22883254289627075

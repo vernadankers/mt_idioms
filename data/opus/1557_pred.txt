@@ -1,0 +1,4 @@
+Moet ik koud water over jullie gooien ?	-0.3221779465675354
+Ik wil geen koud water op je gooien .	-0.42923036217689514
+Als een patiënt flauwvalt , gooi ik er normaal koud water op .	-0.31359779834747314
+Of moet ik koud water over jullie gooien ?	-0.32591161131858826

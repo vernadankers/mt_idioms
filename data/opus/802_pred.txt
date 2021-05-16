@@ -1,0 +1,500 @@
+Hou je hoofd erbij .	-0.5128719806671143
+Hou je hoofd erbij .	-0.323040634393692
+Hou je hoofd erbij .	-0.5128719806671143
+Hou je hoofd erbij .	-0.36471718549728394
+Hou je hoofd laag .	-0.5855902433395386
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd erbij , Vila !	-0.4101705551147461
+Hou je hoofd laag .	-0.4973878264427185
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.49886903166770935
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd omhoog .	-0.3230796754360199
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4973878264427185
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4973878264427185
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4973878264427185
+Hou je hoofd laag .	-0.4146336019039154
+Houd je hoofd rechtop .	-0.2647800147533417
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.5855902433395386
+Hou je hoofd laag .	-0.29266905784606934
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.5855902433395386
+Hou je hoofd laag .	-0.4973878264427185
+Hou je hoofd laag .	-0.49886903166770935
+Hou je hoofd laag .	-0.4973878264427185
+Hou je hoofd helder .	-0.4346277415752411
+Hou je hoofd laag .	-0.49886903166770935
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd erin .	-0.4449059069156647
+Hou je hoofd koel .	-0.2427898496389389
+Hou je hoofd erbij .	-0.3643706738948822
+Hou je hoofd hoog .	-0.3346707820892334
+Hou je hoofd omhoog .	-0.3230796754360199
+- Hou je hoofd omlaag .	-0.43567606806755066
+Hou je hoofd laag .	-0.5855902433395386
+- Hou je hoofd omlaag .	-0.43567606806755066
+Hou je hoofd omhoog .	-0.3230796754360199
+Hou je hoofd laag .	-0.4973878264427185
+Hou je hoofd stil .	-0.25254714488983154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.49886903166770935
+Hou je hoofd omhoog .	-0.3230796754360199
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.5855902433395386
+Hou je hoofd laag .	-0.5855902433395386
+Hou je hoofd laag .	-0.4973878264427185
+Hou je hoofd achterover .	-0.3715363144874573
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.5855902433395386
+Hou je hoofd stil .	-0.25254714488983154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd erbij .	-0.5869069695472717
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd laag .	-0.4146336019039154
+Hou je hoofd recht .	-0.3118569850921631
+Hou je hoofd laag .	-0.4988691806793213
+Hou je hoofd laag .	-0.4988691806793213
+Hou je hoofd laag .	-0.4146333336830139
+Hou je hoofd stil .	-0.25254717469215393
+Hou je hoofd laag .	-0.4146333336830139
+Hou je hoofd laag .	-0.4988691806793213
+Hou je hoofd laag .	-0.4146333336830139
+Hou je hoofd omhoog .	-0.3230794072151184
+Hou je hoofd omhoog .	-0.3230794072151184
+Hou je hoofd omhoog .	-0.3230794072151184
+Hou je hoofd laag .	-0.4988691806793213
+Hou je hoofd laag .	-0.4146333336830139
+Hou je hoofd omhoog .	-0.3230794072151184
+Hou je hoofd laag .	-0.4146333336830139
+Hou je hoofd omhoog .	-0.4051983058452606
+Hou je hoofd erbij .	-0.32549387216567993
+Hou je hoofd laag .	-0.4146333336830139
+Hou je hoofd laag .	-0.49738749861717224
+Hou je hoofd laag .	-0.49738749861717224
+Hou je hoofd laag .	-0.5855898261070251
+Hou je hoofd stil .	-0.29408183693885803
+Hou je hoofd laag .	-0.4146333336830139
+Hou je hoofd laag .	-0.4988691806793213
+Hou je hoofd omhoog .	-0.3230794072151184
+Hou je hoofd laag .	-0.4146333336830139
+Hou je hoofd laag .	-0.4988691806793213
+Hou je hoofd laag .	-0.4146333336830139
+- Hou je hoofd omlaag .	-0.5333199501037598
+Hou je hoofd omlaag .	-0.4920925796031952
+Hou je hoofd omhoog .	-0.3506106734275818
+Hou je hoofd naar achteren .	-0.4645548462867737
+Nee , jij houdt je hoofd erbij .	-0.4374259412288666
+Hou je hoofd naar beneden gebogen !	-0.5101578831672668
+Hou je gedeisd .	-0.44091764092445374
+Hou je hoofd omhoog , oké ?	-0.4373913109302521
+- Hou je hoofd laag .	-0.4526483118534088
+Hou je hoofd stil .	-0.33611705899238586
+Houd je hoofd naar beneden kinderen .	-0.44683149456977844
+- Hou je hoofd laag .	-0.4526483118534088
+Nou , hou je hoofd laag .	-0.48686498403549194
+Hou je hoofd omhoog , trut .	-0.3347632884979248
+Hou je hoofd stil .	-0.29888859391212463
+- Hou je hoofd laag .	-0.4526483118534088
+Hou je hoofd laag , Adam .	-0.33825981616973877
+Hou je hoofd erbij .	-0.3942233622074127
+Hou je hoofd laag , Tony .	-0.31028157472610474
+Hou je hoofd stil .	-0.33611705899238586
+Hou je hoofd omhoog .	-0.3596285879611969
+- Hou je hoofd omhoog .	-0.38233110308647156
+Hou je gedeisd .	-0.44091764092445374
+Hou je hoofd omhoog , broeder .	-0.39316779375076294
+Hou je gedeisd .	-0.44091764092445374
+Hou je hoofd omlaag , knul .	-0.45201513171195984
+Hou je hoofd gebogen .	-0.44331952929496765
+8 . Houd je hoofd recht .	-0.2822491526603699
+Hou je hoofd omhoog , Jaylen .	-0.2540425658226013
+- Hou je hoofd laag .	-0.4526483118534088
+Hou je hoofd in beweging .	-0.5211920738220215
+Hou je hoofd laag , Baumer !	-0.37299972772598267
+Hou je hoofd omlaag .	-0.5115959644317627
+Goed , hou je hoofd omhoog .	-0.3622114658355713
+Hou je gedeisd .	-0.4788464903831482
+Houd uw hoofd omhoog , dominee .	-0.37911203503608704
+Hou je hoofd naar beneden .	-0.5321482419967651
+En hou je hoofd laag .	-0.42945414781570435
+Hou je hoofd omhoog , huh !	-0.3914959132671356
+- Hou je hoofd omlaag .	-0.5333199501037598
+Hou je hoofd omlaag , knul .	-0.45201513171195984
+Om je hoofd naar beneden te houden .	-0.40042173862457275
+Hou je gedeisd .	-0.44091764092445374
+Tío , hou je hoofd erbij , man .	-0.34319961071014404
+Hou je hoofd laag .	-0.4642152488231659
+Hou je gedeisd .	-0.44091764092445374
+Hou je hoofd omhoog , jongen .	-0.3825501799583435
+- Hou je gedeisd .	-0.4983275830745697
+Hou je gedeisd .	-0.4788464903831482
+Hou je hoofd laag .	-0.4877799451351166
+Oké , hou je hoofd stil .	-0.3187022805213928
+Vergeet niet , houd je hoofd naar beneden .	-0.5654122233390808
+Hou je gedeisd .	-0.4297838807106018
+Hou je hoofd laag , jongens !	-0.5554165244102478
+Hou je hoofd omlaag !	-0.4988241195678711
+En hou je hoofd erbij , jongens .	-0.4526344835758209
+Hou je gedeisd , jongens .	-0.48020225763320923
+En hou je hoofd laag .	-0.42945414781570435
+Hou je hoofd erbij , Gary .	-0.25881585478782654
+- Hou je gedeisd .	-0.4983275830745697
+Hou je hoofd laag .	-0.3090004622936249
+Hou je hoofd laag .	-0.4900202453136444
+Hou je gedeisd .	-0.44091764092445374
+Hou je hoofd omhoog , schatje .	-0.39476239681243896
+Hou je hoofd laag .	-0.5497635006904602
+Nou , hou je hoofd laag !	-0.5851514339447021
+Hou je hoofd erbij , meneer .	-0.3329046964645386
+Hou je hoofd erbij .	-0.3278791010379791
+Hou je hoofd omhoog , oké ?	-0.30430838465690613
+Hou je hoofd erbij .	-0.43819719552993774
+Hou je hoofd laag , blijf bewegen .	-0.5347608327865601
+Maar hou je hoofd erbij , wil je ?	-0.38457828760147095
+Hé ... en hou je gedeisd .	-0.46973416209220886
+Hou je hoofd erbij .	-0.3278791010379791
+Hou je hoofd omhoog .	-0.3920503556728363
+Hou je hoofd omhoog en wees trots .	-0.6218394041061401
+Nou , hou je hoofd laag dan .	-0.5812314748764038
+- Denk eraan , hou je hoofd laag .	-0.5519632697105408
+- En hou je gedeisd .	-0.4974948465824127
+Ik zei , hou je hoofd laag !	-0.5564219951629639
+Hou je hoofd omhoog .	-0.4064636826515198
+- Hou je gedeisd .	-0.43042775988578796
+- Hou je hoofd omlaag .	-0.6210684776306152
+Hou je hoofd omlaag , niet kijken !	-0.43596604466438293
+Draai je om en hou je hoofd omlaag .	-0.3913329243659973
+Oké , Hall , hou je hoofd laag .	-0.37638580799102783
+Hou je hoofd erbij , idioot .	-0.4499453902244568
+Houd je hoofd naar beneden , deur op slot .	-0.36304906010627747
+Hou je hoofd uit de fles .	-0.25537586212158203
+Hou je hoofd omlaag .	-0.4945715069770813
+Hou je gedeisd , jongen .	-0.3702060282230377
+Nate , hou je hoofd erbij .	-0.31716352701187134
+Je moet je hoofd omhoog houden .	-0.3386089503765106
+Wil je liever je hoofd boven water houden ?	-0.39835047721862793
+En hou je hoofd laag , Fathead .	-0.3521166443824768
+Houdt het je hoofd erbij ?	-0.4895232319831848
+Hou je hoofd boven water .	-0.31022730469703674
+Hoofd naar beneden , hoofd naar beneden !	-0.37871918082237244
+Niet uit elkaar vallen , hou je hoofd .	-0.4667067527770996
+Hou alsjeblieft je hoofd omlaag .	-0.45525631308555603
+Dezelfde plek waar jij je hoofd houdt .	-0.48100796341896057
+Hou je hoofd laag .	-0.4835751950740814
+Ga zitten , hou je hoofd stil .	-0.33159998059272766
+Kun je je hoofd omhoog houden ?	-0.3183216154575348
+Hou je hoofd in de koffer .	-0.3595902621746063
+Hou je hoofd omlaag .	-0.5814414024353027
+Blijf hier , hou je hoofd laag !	-0.45214298367500305
+Hou je hoofd erbij .	-0.3978739380836487
+Hou je gedeisd .	-0.5284587144851685
+Oké , hou je hoofd stil .	-0.3395755887031555
+Hou je hoofd erbij .	-0.41784361004829407
+Oké jongens , hou je gedeisd .	-0.5325554013252258
+Hou je hoofd erbij .	-0.3921815752983093
+- Hou je hoofd omlaag , vriend .	-0.5124320983886719
+Hou je hoofd laag .	-0.5301216840744019
+- Oké , maar hou je gedeisd .	-0.3948479890823364
+Kom op , Matty , hou je hoofd laag .	-0.3577958345413208
+Hou je hoofd omlaag , kijk niet om .	-0.43571460247039795
+Hou je hoofd erbij , man .	-0.33959734439849854
+Q , hou je hoofd omhoog , oké ?	-0.2878239154815674
+Hou je hoofd omlaag , zet je schrap .	-0.6040971875190735
+Hou je hoofd laag , oké ?	-0.36215928196907043
+Oké , hou je hoofd naar beneden .	-0.4667511284351349
+Denk eraan , probeer je hoofd stil te houden .	-0.33246681094169617
+Kom op man , hou je hoofd omhoog .	-0.43724218010902405
+Hou je hoofd laag en blijf werken .	-0.3889603018760681
+Hou je hoofd omhoog en kijk vooruit .	-0.2665536403656006
+Oké , Yoshi , hou je hoofd laag .	-0.380840927362442
+Doe je werk , hou je hoofd laag .	-0.38015204668045044
+Blijf in de buurt en houd je hoofd laag .	-0.43121835589408875
+Blijf in de buurt en hou je hoofd laag .	-0.3674484193325043
+Hou je hoofd stil , gebruik je vingers .	-0.27245375514030457
+Hou je hoofd zo stil .	-0.4510563611984253
+Maar hou je hoofd erbij .	-0.438304603099823
+Hou je hoofd erbij , kerels .	-0.46896418929100037
+Hou je hoofd omhoog , meisje , oké ?	-0.3653320074081421
+Hou je hoofd boven water .	-0.24916833639144897
+Hou je hoofd erbij .	-0.3797152638435364
+Hou je hoofd omhoog .	-0.4919470250606537
+- Hou je gedeisd .	-0.4492851495742798
+Hou je hoofd erbij .	-0.35002925992012024
+Blijf hier en hou je hoofd laag .	-0.39718636870384216
+Hou je hoofd erbij , Mark .	-0.2843009829521179
+Dat zou echt je hoofd droog houden .	-0.5131759643554688
+Hou je hoofd erbij .	-0.35002925992012024
+Baker , hou je hoofd laag .	-0.31884679198265076
+Hou je hoofd op een draai , oké ?	-0.4155474305152893
+Hou je hoofd naar beneden en beweeg .	-0.5289344191551208
+Hou je hoofd uit de goot .	-0.2671762704849243
+Houd je zenuwen in bedwang .	-0.5914791226387024
+Houd je hoofd naar voren .	-0.39418667554855347
+Hé , Danny , luister , hou je hoofd erbij .	-0.363420307636261
+Hou je hoofd in dit beoordelingsboek .	-0.3512378931045532
+Hou je kop en hou je hoofd laag !	-0.4689931571483612
+Hou je kop , trut .	-0.3944227993488312
+Hou je hoofd op een draai , meisje .	-0.4731420576572418
+Oké , nou , hou je hoofd dan omhoog .	-0.47964832186698914
+Harder dan het lijkt , lieverd .	-0.5505788326263428
+Hou je hoofd omhoog en bekijk je omgeving .	-0.3398294746875763
+Nummer twee , hou je hoofd rond de nummers .	-0.4620493948459625
+Als je vrij bent , hou je hoofd laag .	-0.5417510867118835
+Je kunt beter je hoofd op een draaibank houden .	-0.6140010356903076
+Hou je hoofd naar beneden .	-0.4453152120113373
+Hou je gedeisd , hij zal het nooit weten .	-0.4234851002693176
+Je kunt beter je hoofd leeg houden .	-0.722105860710144
+Hou je gedeisd , daar hou ik van .	-0.47018277645111084
+Houd je hoofd naar beneden en je neus schoon .	-0.3607438802719116
+Waarom hou je je hoofd laag ?	-0.5711619853973389
+Leer om je hoofd te houden . Probeer oefeningen te doen .	-0.3485413193702698
+En jij , hou je hoofd erbij .	-0.35862109065055847
+Ga naar de wc en hou je hoofd laag .	-0.4618140459060669
+Dus ontspan je en hou je hoofd erbij .	-0.40519601106643677
+Hou je hoofd op het werk , jij .	-0.45811784267425537
+Ik meen het , hou je gedeisd .	-0.43893468379974365
+Je hebt dat gemaakt . `` Hou je hoofd omlaag . ''	-0.5581870675086975
+Ja , hou je hoofd op een draai .	-0.5784257054328918
+Hou je hoofd omhoog en ren door me heen .	-0.3687313497066498
+Hou je hoofd laag , jullie allemaal .	-0.6642986536026001
+En kijk , hou je hoofd op je hoofd , oké ?	-0.4628128409385681
+Hou je hoofd naar beneden .	-0.45180168747901917
+Hou je hoofd erbij .	-0.3578494191169739
+Ik zei dat je je gedeisd moest houden .	-0.40212640166282654
+- Hou je hoofd naar beneden en hou je mond .	-0.5116245150566101
+Papa zei dat je je gedeisd moest houden .	-0.41876229643821716
+Uh , houd je hoofd naar beneden en blijf bewegen .	-0.524915337562561
+Hou je hoofd omhoog en je klootzakken pucked .	-0.5940477848052979
+Hou je hoofd omlaag en volg mij .	-0.43595126271247864
+Hou de volgende keer je hoofd omhoog , nummer 12 .	-0.3957583010196686
+En hou je hoofd erbij , we hebben hem misschien nodig .	-0.4622068405151367
+Hou je hoofd laag , ga naar de kade .	-0.4583369493484497
+Hou je hoofd omlaag , brave jongen .	-0.4767761826515198
+Land op je ellebogen , houd je hoofd naar beneden .	-0.3911709785461426
+En jij houdt je hoofd op een draai .	-0.5190066695213318
+Hou je hoofd omhoog , wat er ook gebeurt .	-0.36510252952575684
+Hou je hoofd omhoog .	-0.36054280400276184
+Hou je kop en hou je hoofd laag .	-0.4086413085460663
+Hou je hoofd laag en blijf bij ons .	-0.32076847553253174
+En hou je hoofd laag .	-0.5823162794113159
+Hou je hoofd bij elkaar en kijk niet naar beneden .	-0.41707277297973633
+Oké , jongens , hou je hoofd erbij .	-0.4427594840526581
+Hou je hoofd laag en kijk niet naar ze .	-0.42010995745658875
+Oké , hou je hoofd omhoog .	-0.571983277797699
+Hou je gedeisd , wij praten wel verder .	-0.5399473309516907
+Hou je hoofd omlaag , maar kijk me aan .	-0.4030574560165405
+Kijk niet zo somber .	-0.4932957589626312
+Je doet je werk , houdt je hoofd naar beneden ...	-0.4200829565525055
+Hou je hoofd omhoog .	-0.41367071866989136
+Hou je hoofd omhoog , wil je ?	-0.44155412912368774
+Hou je hoofd omlaag , auto .	-0.5174827575683594
+Hou je hoofd omhoog , oké ?	-0.35266920924186707
+Je moet je hoofd omhoog houden , hè ?	-0.44601336121559143
+Hou je hoofd naar beneden en je mond dicht .	-0.40357258915901184
+Hou je hoofd op een draai voor een bermbom .	-0.44911012053489685
+Hou je hoofd stil .	-0.38948631286621094
+Hou je hoofd omlaag en je zegels strak , jongens .	-0.5673589706420898
+Hou je hoofd naar beneden terwijl je de achten sleept .	-0.4347859025001526
+Hou je gedeisd , Pete , mijn jongen .	-0.4086357653141022
+Hou je hoofd stil anders doe je jezelf pijn .	-0.462691992521286
+Met gaten om je hoofd koel te houden .	-0.27380213141441345
+Je moet je hoofd naar beneden houden tot ze vertrekken .	-0.47877177596092224
+Je hoeft alleen maar je hoofd naar beneden te houden .	-0.4216056764125824
+Hou je gedeisd , ik zie je nog wel .	-0.34836310148239136
+Hou je hoofd laag , er is geen haast bij .	-0.5167299509048462
+Maar tot dan , hou je hoofd laag en leer het .	-0.4111013114452362
+Het was een tijd om je gedeisd te houden .	-0.2934550940990448
+Je moet je ook gedeisd houden .	-0.39834922552108765
+Sahin , hou je hoofd laag .	-0.3467104434967041
+Op m ' n knieën , engel .	-0.4888419508934021
+Hou je hoofd omhoog en hou het doelwit in de gaten .	-0.41430094838142395
+Zelfs als je ze niet ziet .	-0.380576491355896
+Ik wil dat je je gedeisd houdt .	-0.48272058367729187
+Ja , maar hou je hoofd toch laag , oké ?	-0.5096600651741028
+Houd je hoofd naar beneden gericht alsof je je concentreert , oké ?	-0.44373056292533875
+Als je je hoofd wilt houden , moet je eten .	-0.3182893395423889
+Mijn advies ... Hou je hoofd laag en blijf laag .	-0.49851685762405396
+Blijf bij me en hou je hoofd op een draai .	-0.42020320892333984
+Houdt u uw hoofd stil , mevrouw .	-0.5590506792068481
+Oké , hou je hoofd omhoog .	-0.6457509994506836
+Je moet je hoofd omhoog houden , Arlene .	-0.34216976165771484
+Een beetje advies ... Hou je hoofd omhoog en je borst naar buiten .	-0.5010549426078796
+Ja , vijf stukjes als je je hoofd niet naar beneden houdt !	-0.44703394174575806
+Ik zei , hou je hoofd naar beneden , houd je ogen open .	-0.41519686579704285
+Houd je hoofd laag , dien de klanten en blijf koel .	-0.35770532488822937
+Ik zei , hou je hoofd laag .	-0.5255074501037598
+Blijf je benen bewegen , hou je hoofd omhoog .	-0.4757746756076813
+Hou je hoofd naar beneden Twill en zeg hallo tegen me .	-0.3540860116481781
+Oké , hou je hoofd laag , spaar je batterij .	-0.5006102323532104
+Wil je je hoofd wat langer houden ?	-0.48728445172309875
+Hou je hoofd op een draaischijf terwijl je bezig bent .	-0.5888463258743286
+Dus hou je gedeisd en doe je werk .	-0.2706698775291443
+Je weet hoe je je gedeisd moet houden , hè ?	-0.44311630725860596
+Ik wou dat ik dood was .	-0.3006379306316376
+Je houdt je hoofd naar beneden en je haast je .	-0.610524594783783
+Hou je gedeisd en concentreer je daarop .	-0.4602077007293701
+Hij is degene die zegt : `` Hou je hoofd naar beneden . ''	-0.3425355851650238
+Houd je hoofd in het spel , blijf gefocust en Godspeed .	-0.3230612277984619
+Mijn advies aan jou , John , is om je gedeisd te houden .	-0.3743681013584137
+Gezien wat er aan de hand is , hou je hoofd laag , oké ?	-0.4860866963863373
+Goed , want ik wil dat je je hoofd erbij houdt .	-0.34383806586265564
+Ik zei , hou je hoofd omhoog en doe je hoofd naar beneden .	-0.5714224576950073
+Volg me , loop waar ik loop , en hou je hoofd omhoog .	-0.31549420952796936
+En je moet je hoofd erbij houden en kalm blijven .	-0.3359401226043701
+Houd je hoofd naar beneden en controleer je kleuren voordat je schiet .	-0.27763473987579346
+Hou je gedeisd en volg de leider .	-0.4805963933467865
+Bel als er iets veranderd is .	-0.6186932921409607
+Wees een goede soldaat , hou je gedeisd .	-0.4458615183830261
+Hou je hoofd omlaag als je draait en kijk naar de puck .	-0.376543790102005
+Luister , als je daar bent , hou je hoofd laag , oké ?	-0.41323432326316833
+Rechtdoor , Saracen , je moet je hoofd omhoog houden .	-0.480474054813385
+Als je je hoofd kunt houden terwijl de mensen om je heen niet kunnen ...	-0.5282273292541504
+Je had goede ideeën .	-0.5386749505996704
+Als je daar bent , hou je hoofd laag en schrijf naar huis .	-0.43659818172454834
+Hou je hoofd laag en wees voorzichtig met wie je vertrouwt .	-0.34905973076820374
+Maar blijf uit het zicht en houd je hoofd laag , oké ?	-0.3581561744213104
+Hou je hoofd helder , oké ?	-0.6063529849052429
+Hou je hoofd of je verliest het , begrepen ?	-0.537704586982727
+Dames en heren , houd uw hoofd naar beneden en uw mond dicht .	-0.3666340708732605
+Als ik jou was , zou ik je hoofd in je schild houden .	-0.3405817151069641
+Ga terug naar de universiteit en hou je gedeisd , oké ?	-0.3053988814353943
+`` Hou je hoofd laag voor jezelf en voor je familie . ''	-0.4035426080226898
+Dus volg je huidige orders op en hou je gedeisd .	-0.43466997146606445
+Wil je je hoofd erbij houden ?	-0.523764967918396
+Hou je hoofd draaien alsof het op een draaibank is gemonteerd .	-0.5672538876533508
+Ik hoopte dat je mijn advies volgde om je gedeisd te houden .	-0.38350486755371094
+Hou je hoofd naar beneden en hou je ogen op de bal .	-0.37146860361099243
+Hou je gedeisd , Taylor .	-0.4761260151863098
+Hou je hoofd naar beneden en je mond dicht , het komt wel goed .	-0.45636773109436035
+Hou je hoofd omlaag , ik let op je bal .	-0.5753774046897888
+Ik wil dat je je hoofd zo laag mogelijk houdt .	-0.3730446398258209
+Dat komt door de Zionisten .	-0.4846656024456024
+Houd je hoofd op een draai , teams van twee , geen afdwalen .	-0.48957332968711853
+Schat , hou je hoofd stil , alsjeblieft .	-0.3341708779335022
+Nee , je moet je hoofd naar beneden houden en je mond dichthouden .	-0.3370272219181061
+Iedereen terug naar de hoek en houd je hoofd naar beneden nu !	-0.4831630289554596
+Mrs Preston , houd uw hoofd stil , volg mijn vinger met uw ogen .	-0.2495441734790802
+Spring in de dichtstbijzijnde die je ziet en houd je hoofd naar beneden .	-0.4009181559085846
+Om je hoofd boven water te houden en het er niet af te krijgen .	-0.3565223515033722
+Dus laat jullie tranen vallen , mijn vrienden , maar houd jullie hoofden hoog .	-0.3571925163269043
+- Houd je hoofd naar beneden , armen recht , laat je schouder vallen , concentreer je , concentreer je .	-0.3161627948284149
+Ik bewaar het waar ik wil .	-0.503503143787384
+Nou , hou dan je hoofd naar beneden en zet je hoed over je gezicht .	-0.47964367270469666
+Houd je hoofd naar beneden , blijf klaar , en onthoud dat dit gewoon een gereedschap is .	-0.4855864644050598
+Nee , ik wil dat je je gedeisd houdt , tot dit voorbij is .	-0.3138309419155121
+Houd je hoofd gehelmd met de juiste hoop die leidt tot geen teleurstelling .	-0.34417104721069336
+Zolang je je gedeisd houdt , komen ze niet achter je aan .	-0.30540305376052856
+Ja , nou , het houdt je hoofd er niet van af gebeten te worden hier beneden .	-0.47739022970199585
+Blijf bewegen , hou je hoofd laag , en ik zie je in het vliegtuig .	-0.44538283348083496
+Maar Oliver wil dat je je hoofd erbij houdt .	-0.46580496430397034
+Ik wil dat jullie elkaar omhelzen en je hoofd naar beneden houden .	-0.4685360789299011
+Als ze je een vraag stellen , hou je hoofd laag .	-0.4937354326248169
+Hou je gedeisd en let op wat Kron zegt .	-0.4229077994823456
+Een koele zomerse dop die je hoofd koel houdt . Gestructureerde 5 paneelkap .	-0.3921465277671814
+Ik wil dat je je hoofd omlaag houdt en doet alsof je me niet kent .	-0.33483946323394775
+Het is het beste om het te negeren , je hoofd naar beneden te houden en weer aan het werk te gaan .	-0.40895137190818787
+Houd je hoofd in deze positie totdat je gezicht op het punt staat de oppervlakte te breken .	-0.4453125
+Houd je hoofd naar beneden als je wilt hoe het aan je schouders zit .	-0.5334588289260864
+Hou je hoofd laag en probeer niet neergeschoten te worden .	-0.3978061378002167
+We hebben net een man opgelicht uit miljoenen .	-0.5400823354721069
+Ga naar de andere kant van je cel , Castiel , en houd je hoofd laag .	-0.2659347653388977
+Hou je hoofd naar beneden een paar minuten en je bent uit dit .	-0.516441285610199
+En als het op de kerstsfeer aankomt ...	-0.461031436920166
+Houd je hoofd naar beneden , en je dromen klein , en je kunt bijna onzichtbaar worden .	-0.2962527275085449
+Je gaat hard werken , je houdt je hoofd naar beneden en je mond dicht .	-0.36945751309394836
+Als je je hoofd kunt houden als je die van hen verliest , heb je geluk .	-0.5428372621536255
+Waarom laat je je hoofd zakken ?	-0.5084453225135803
+Je moet gewoon je hoofd erbij houden , oké ?	-0.45896580815315247
+Je bent veilig , alles komt goed .	-0.5051093697547913
+Houd je hoofd naar beneden , en verspreid het gerucht dat je sluitspier tanden heeft .	-0.31597352027893066
+Hou je hoofd laag en doe precies wat ik zeg , oké ?	-0.330825537443161
+Ja , ik weet nooit wat er nu gaat gebeuren .	-0.6240549683570862
+Hou je gedeisd en verdien een paar Bob , daar geloof ik in .	-0.3533228933811188
+Nee , blijf zitten en houd je hoofd naar beneden of het wordt waarschijnlijk eraf geblazen .	-0.5584923028945923
+Hou je hoofd naar beneden en niemand kijkt ze in de ogen of ze vermoorden je .	-0.39837610721588135
+Scheiden & delen met Nathan : Wanneer negativiteit gebeurt , houd je hoofd omhoog en wees creatief !	-0.4429212808609009
+Je houdt je hoofd boven water in New York en laat deze aardige mensen met rust .	-0.22033186256885529
+- Houd je hoofd naar beneden en blijf stil totdat je ziet dat de trein weg is .	-0.45828327536582947
+Eén , twee , één , twee .	-0.3947228193283081
+Ondertussen begrijp je vast wel dat je je gedeisd moet houden .	-0.5330089330673218
+Hou je hoofd even achterover , oké ?	-0.5228437781333923
+Hou je hoofd laag vandaag , er zijn veel VIP 's in het grote huis .	-0.4459930956363678
+Ja , maar je moet je hoofd erbij houden .	-0.46256113052368164
+Je hebt een goede reden om je hoofd recht te houden en de kranten nogal laag ( lees trots ) .	-0.3419555127620697
+Oh ja , dus hou je hoofd naar beneden en houd de wijze scheuren tot een minimum .	-0.5128986239433289
+Dus als je je gedeisd houdt , denk ik dat ze goed fooi geven .	-0.4115010201931
+En maak het haar niet gemakkelijk .	-0.6483736634254456
+Het moet een echte uitdaging zijn om je hoofd omhoog te houden in een situatie als deze .	-0.3156917095184326
+Blijf waar je bent , hou je hoofd laag en beweeg je niet en je raakt niet gewond .	-0.5558243989944458
+Hoe denk je vijf mijl te rennen als je nauwelijks je hoofd omhoog kunt houden ?	-0.5885189175605774
+Ik moet zeggen dat je je gedeisd moet houden , als je weet wat goed voor je is .	-0.3623163104057312
+En Leitz , hou je gedeisd als we binnenkomen .	-0.5109926462173462
+Want je hield je hoofd niet in het midden van het bord zoals ik al zei .	-0.4576486349105835
+Alles wat ik je kan vertellen is dat je je hoofd op het rechte pad houdt en je je werk doet .	-0.44711557030677795
+Als je je hoofd wilt houden , stel ik voor dat je me meeneemt waar ik heen wil .	-0.41415169835090637
+Je bent onsterfelijk zolang je je hoofd op je schouders kunt houden .	-0.4110342264175415
+Tot dan , houd je hoofd naar beneden , je handen naar jezelf en je lul in je broek , oké ?	-0.28314217925071716
+Als je je bestelling doet , kijk je van de zwakke kant af ... wat betekent dat je je hoofd links houdt .	-0.6195080876350403
+Doe je schouder omlaag , hou je hoofd omhoog en ren door me heen .	-0.5046558976173401
+Ik wil dat je je hoofd houdt en zorgt voor je moeder , je broer en je zus .	-0.3449252247810364
+`` Als je je hoofd kunt houden als alles over je verliest ... dan begrijp je de situatie niet . ''	-0.6229839324951172
+Phonak Sky V helpt u uw teamgenoten te horen , zodat u uw hoofd in het spel kunt houden .	-0.30174359679222107
+Mijn naam is RJ Berger , en dit is allemaal mijn schuld .	-0.19432973861694336
+Houd je hoofd naar beneden , zet je tijd in , ga met pensioen en hopelijk sterf je voordat het spaargeld opraakt .	-0.330192893743515
+Je moet je hoofd op een draaibank houden want daar beneden , geloof me , kun je alles tegenkomen .	-0.4998672306537628
+Als je 's nachts naar bed gaat , hoe kan je dan voorkomen dat je hoofd van het kussen glijdt ?	-0.3577810823917389
+Homer , je moet je hoofd erbij houden .	-0.35269054770469666
+Maar als je je hand omhoog steekt , is er misschien iemand om je te helpen je hoofd boven water te houden .	-0.4088556170463562
+Het spijt me zo , maar hou je gedeisd en we komen hier wel doorheen .	-0.4063762128353119
+En hou je hoofd naar beneden . Hou je ogen op de bal en zwaai er gewoon doorheen .	-0.48278728127479553
+Jongen , je kunt beter je hoofd terug in het spel houden of je gaat ons allebei in de pokey zetten .	-0.6001822352409363
+Oké , nu wil ik dat je je hoofd omhoog houdt , en ik wil dat je je been recht houdt .	-0.29377490282058716
+Hou je hoofd op een draai , en als ik word gepakt , weet je waar het geld is , toch ?	-0.47155138850212097
+Hou je hoofd omhoog en houd die klootzak voor de deur alsof het een pistool is .	-0.35750579833984375
+Hoe kun je je hoofd rustig houden ? ' 'Je went eraan . ' Lam kijkt naar zijn Facebook-profiel .	-0.30093324184417725
+Ik weet niet hoe legitiem het is , maar hou je hoofd in een bocht en noem me zo snel mogelijk .	-0.38589975237846375
+Hou je gedeisd en doe wat ik je zeg , en ... we kunnen goed met elkaar opschieten .	-0.4996800720691681
+Kies Explorer 110 of Explorer 120 voor in-car accessoires om uw headset binnen handbereik te houden.Multipoint Verbind en bestuur twee Bluetooth apparaten .	-0.2409740686416626
+Grammer won MTV 's `` O Music Awards '' voor de meest innovatieve video voor zijn `` Keep Your Head Up '' video op 25 april 2011 .	-0.2568913996219635
+Maar Kipling had waarschijnlijk gelijk ... `` als je je hoofd kunt houden terwijl alles over jou/het hunne verliest en het jou de schuld geeft ... ''	-0.49595701694488525
+Beroerde formatie , houd je hoofd op een draaibare , 360 te allen tijde , let op uw overhead en zet rondes in alles dat beweegt .	-0.5107355713844299
+Eigenlijk wil ik dat je je gedeisd houdt voor een tijdje ... want dit gaat erger worden voordat het beter wordt .	-0.393839567899704
+Probeer je hoofd omhoog te houden zodat we je gezicht kunnen zien .	-0.41318631172180176
+Wees dapper en houd je hoofd omhoog en steek je kin uit , en marcheer doelbewust langs het pad dat je voor jezelf hebt gecreëerd .	-0.32833215594291687
+Het volgende 'Out Of These Streets ' is een heavy nummer - probeer je hoofd stil te houden - gevarieerd met lekker rustige passages .	-0.2355824112892151
+Voor zover ik me herinner , is er een camera hier , hier , en een in de lift , dus je moet je hoofd naar beneden houden .	-0.3457866311073303
+Je moet je hoofd op een draaibank houden tot we je hier weg kunnen krijgen .	-0.6059534549713135
+Oké , laat je kin hier rusten en hou je hoofd stil terwijl we een paar foto 's maken , oké ?	-0.4400252401828766
+Ze houden je hoofd niet warm of beschermen je tegen de zon of verbergen je gezicht voor mensen die je niet wilt ontmoeten .	-0.278181791305542
+Als je je hoofd kunt houden terwijl je ze kwijtraakt ... dan heb je het waarschijnlijk niet gecontroleerd bij je antwoordapparaat .	-0.5977721810340881
+Ik heb geen idee wat je gedaan hebt ... maar je hebt wel iets gedaan , want je kunt je hoofd nu niet omhoog houden .	-0.397950679063797
+Ga naar binnen , houd je hoofd naar beneden , doe je werk , en laat agent Rader het zijne doen .	-0.39742806553840637
+Ik ben SaLuSa van Sirius , en ik hoop dat jullie je hoofd hoog houden en zien hoeveel jullie levens ten goede zullen veranderen .	-0.28483524918556213
+Waar ik echter bang voor ben , is deze schijnbaar redelijke benadering die in feite waanzin is en die ervoor zorgt dat je je hoofd in het zand houdt .	-0.5546921491622925
+In Europese landen is het moeilijk om je hoofd boven water te houden , vooral als je moderne metal speelt , en deze band doet het al meer dan tien jaar .	-0.31969189643859863
+Hoofdband : Bevestig uw clip of buidel om Neptunus op uw hoofd te dragen . Ook helpt het om uw kopstuk op zijn plaats te houden terwijl het geluid door uw microfoon kan gaan .	-0.4474535286426544
+Eerst wilde ik niet geloven wat iedereen over hem zei , maar je kunt je hoofd maar zo lang in het zand houden .	-0.3339385986328125
+Pas daarna kunnen ze afspraken maken , [ ... ] Lees verder -- > 02/15/2015 Gescheiden & Delen met Nathan : 'Wanneer negativiteit gebeurt , houd je hoofd omhoog en wees creatief ! '	-0.301145076751709
+Houd gesprekken binnen handbereik Sluit de Explorer 500 aan op de magnetische USB-riem en loop deze rond uw tas of sleutelhanger om uw headset binnen handbereik te houden .	-0.2911803424358368
+Als je in staat bent om je hoofd te houden en na te denken over wat er gebeurt , zou deze tijd enorm creatief kunnen zijn in het ontdekken van nieuwe doelen en nieuwe hoop .	-0.3647576570510864
+Ga naar huis , houd je hoofd naar beneden ... en ik zou kunnen proberen te vergeten dat jij en je mol de Highway Code breken ... en de Official Secrets Act op dezelfde dag .	-0.35621803998947144
+Hou je hoofd in het spel Je moet je hoofd in het spel houden We moeten ons hoofd in het spel houden Je moet je hoofd in het spel zetten	-0.557858407497406
+Maar Kipling had waarschijnlijk gelijk - `` als je je hoofd kunt houden terwijl alles over jou/het verliezen van hun en het geven van de schuld op jou ... '' Ik verloor mijn vader in de tussenliggende jaren ; Miriam verloor haar man en haar broer .	-0.41468921303749084
+Met een hoela hoepel is de instructie om je hoofd precies in het midden van de hoela hoepel te houden terwijl je de hoepel zo richt dat het zowel de Zon als de Maan bedekt .	-0.34782493114471436
+Haal AIDS , of spring op een bus met een rugzak vol explosieven , de overheid zal je uitdelen een gratis auto , maar houd je hoofd naar beneden , wees goed en lopen zonder een mank , en je krijgt rits .	-0.3712921142578125
+Bevestiging van retour U ontvangt een creditnota per e-mail op het moment dat wij uw retour hebben verwerkt.Uw geld komt binnen 24 uur terug op uw account , zodra u deze e-mail heeft ontvangen.Meer informatie Details Omschrijving Houd uw hoofd omhoog !	-0.3595099151134491
+Houd uw hoofd omhoog , houd uw hart sterk . Nee , nee , nee , nee , houd uw hoofd ingesteld , houd uw haar lang . Oh mijn , mijn schat , houd uw hoofd omhoog , houd uw hart sterk . Nee , nee , nee , nee , nee , nee , houd uw gedachten ingesteld in uw wegen .	-0.3642846643924713
+Houd uw hoofd omhoog , houd uw hart sterk . Nee , nee , nee , nee , houd uw hoofd ingesteld , houd uw haar lang . Oh mijn , mijn schat , houd uw hoofd omhoog , houd uw hart sterk . Nee , nee , nee , nee , nee , nee , houd uw gedachten ingesteld in uw wegen .	-0.3642846643924713
+Oh oh-oh , ik ben blij om je thuis te hebben . Oh ja , houd je hoofd omhoog , houd je hart sterk . Nee , nee , nee , nee , nee , hou je geest ingesteld , houd je haar lang . Oh mijn liefste , houd je hoofd omhoog , houd je hart sterk . Nee , nee , nee , nee , nee , nee , hou je geest ingesteld in je wegen .	-0.3413902819156647
+Oh oh-oh , ik ben blij om je thuis te hebben . Oh ja , houd je hoofd omhoog , houd je hart sterk . Nee , nee , nee , nee , nee , hou je geest ingesteld , houd je haar lang . Oh mijn liefste , houd je hoofd omhoog , houd je hart sterk . Nee , nee , nee , nee , nee , nee , hou je geest ingesteld in je wegen .	-0.3413902819156647
+De prachtige collectie van NLLeather bestaat uit : Bondage , mooie Padded Manchetten , Professional Suspension Manchetten voor handen en voeten , Medical Bondage - Padded Hospital hand en Ankel Manchetten , Hospital Leather Straightjacket.Heavy Bondage maskers , de beroemde Sensory Deprivation Leather Hood Speciale halsbanden als Corset halsbanden , Neck Corsetten , lederen halsband met roestvrij staal , zelfs met een Pin om je hoofd recht omhoog te houden , Slave Collar ' O ' Whips met roestvrijstalen handvatten in hard & soft leather , Paddles , Riding gewassen , Deens Design unbreakable Leather Canes .	-0.27615490555763245
