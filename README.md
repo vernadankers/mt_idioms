@@ -18,6 +18,7 @@ Other non-standard libraries are `spacy==3.0.1` with the `"en_core_web_sm"` mode
 `sacrebleu`, `dutch_words`, and `wordfreq`.
 
 ### Experiments
+For results from the paper's sections, visit the following folders, that have their own README.
 - Section 4: See the `data` folder.
 - Section 5: See the `attention` folder.
 - Section 6.1: See the `probing` folder.
