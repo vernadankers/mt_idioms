@@ -32,7 +32,7 @@ if __name__ == "__main__":
 
     hidden_states = defaultdict(list)
     attention = defaultdict(list)
-    batch_size = 64
+    batch_size = 32
 
     with open(args["source"], 'r', encoding="utf-8") as f_in:
         lines = f_in.readlines()
@@ -67,13 +67,13 @@ if __name__ == "__main__":
                     # Find an index to mask in the context
                     if args["mode"] == "mask_context":
                         indices = [
-                            k for k in range(batch["attention_mask"].shape[-1] - 1)
+                            k for k in range(len(tok_annotations[j]))
                             # The index should not be in the idiom
                             if tok_annotations[j][k] == 0
                             # The index should be from a noun
                             and extended_pos_tags[j][k] in ["NOUN"]
                             # The index should have the idiom in its neighbourhood
-                            and 1 in tok_annotations[j][k - 10: k + 10 + 1]
+                            and 1 in tok_annotations[j][max(0, k - 10): k + 10 + 1]
                             # The index should be from a token's first subtoken
                             and u'▁' in tok_src[j][k]]
 
@@ -84,7 +84,7 @@ if __name__ == "__main__":
                     # Find an index to mask in the idiom
                     elif args["mode"] == "mask_idiom":
                         indices = [
-                            k for k in range(batch["attention_mask"].shape[-1] - 1)
+                            k for k in range(len(tok_annotations[j]))
                             # The index should be from an idiom
                             if tok_annotations[j][k] == 1
                             # The index should be from a noun
