@@ -52,10 +52,13 @@ class SKlearnClassifier(object):
         """
 
         self.model.fit(X_train, Y_train)
-        score = self.model.score(X_dev, Y_dev)
+
+        predictions = np.argmax(self.model.predict_proba(X_train), axis=-1)
+        train_f1 = f1_score(Y_train, predictions, average="macro")
+
         predictions = np.argmax(self.model.predict_proba(X_dev), axis=-1)
-        score = f1_score(Y_dev, predictions, average="macro")
-        return score
+        dev_f1 = f1_score(Y_dev, predictions, average="macro")
+        return train_f1, dev_f1
 
     def get_weights(self) -> np.ndarray:
         """
@@ -133,7 +136,7 @@ def get_debiasing_projection(
 
     for i in range(num_classifiers):
         clf = SKlearnClassifier(LogisticRegression(**cls_params))
-        f1_macro = clf.train_network(
+        _, f1_macro = clf.train_network(
             X_train_cp, Y_train,
             X_dev_cp, Y_dev)
         f1s.append(f1_macro)
