@@ -32,7 +32,7 @@ if __name__ == "__main__":
 
     hidden_states = defaultdict(list)
     attention = defaultdict(list)
-    batch_size = 16
+    batch_size = 64
 
     with open(args["source"], 'r', encoding="utf-8") as f_in:
         lines = f_in.readlines()
