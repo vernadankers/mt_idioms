@@ -1,19 +1,19 @@
-Heb jij een cent uitgegeven ?	-0.6035401821136475
-We geven geen cent uit .	-0.28936195373535156
-Je hebt geen cent uitgegeven .	-0.25760599970817566
-Ik moet een cent uitgeven .	-0.3084104657173157
-Ik moet eerst een cent uitgeven .	-0.29873746633529663
-Ze laat ons nooit een cent aan haar uitgeven .	-0.33975112438201904
-Als je een cent uitgeeft , zal het je opwarmen .	-0.388689786195755
-Mike , wat als we een cent willen uitgeven ?	-0.22452853620052338
-Ik geef geen cent uit aan de fondsen van het ziekenhuis .	-0.44532981514930725
-Hoe dan ook , waar je heen gaat , geef je geen cent uit .	-0.46166062355041504
-Als we er een cent van uitgeven , brengt het ons in gevaar .	-0.4349771738052368
-Brewer heeft hem ingehaald , maar hij gaat een cent uitgeven .	-0.39524322748184204
-Je zult geen cent van die miljoenen kunnen uitgeven .	-0.4743577837944031
-Denk je dat ze een cent uitgeven om je naar het oosten te sturen ?	-0.391452431678772
-En op het moment dat je een cent meer uitgeeft dan je zou moeten , raad eens ?	-0.3777899742126465
-Daar gaat Burt om een cent uit te geven en daar gaat Gurdich van Oostenrijk ,	-0.29180800914764404
-Maar ze geven geen cent uit om je te leren hoe je de onbevreesde vrouw van een testpiloot moet zijn .	-0.32216590642929077
-Als je iemand vertelt wie je ingehuurd heeft , krijg je geen kans om dat uit te geven .	-0.43406885862350464
-Het is absoluut waar dat mevrouw Thatcher hier geen cent van zal uitgeven aan enige kwestie van regionaal beleid of openbare werken waaraan zij in de eerste plaats nog niet had willen besteden .	-0.6653932929039001
+Heb jij een cent uitgegeven?
+We geven geen cent uit.
+Je hebt geen cent uitgegeven.
+Ik moet een cent uitgeven.
+Ik moet eerst een cent uitgeven.
+Ze laat ons nooit een cent aan haar uitgeven.
+Als je een cent uitgeeft, zal het je opwarmen.
+Mike, wat als we een cent willen uitgeven?
+Ik geef geen cent uit aan de fondsen van het ziekenhuis.
+Hoe dan ook, waar je heen gaat, geef je geen cent uit.
+Als we er een cent van uitgeven, brengt het ons in gevaar.
+Brewer heeft hem ingehaald, maar hij gaat een cent uitgeven.
+Je zult geen cent van die miljoenen kunnen uitgeven.
+Denk je dat ze een cent uitgeven om je naar het oosten te sturen?
+En op het moment dat je een cent meer uitgeeft dan je zou moeten, raad eens?
+Daar gaat Burt om een cent uit te geven en daar gaat Gurdich van Oostenrijk,
+Maar ze geven geen cent uit om je te leren hoe je de onbevreesde vrouw van een testpiloot moet zijn.
+Als je iemand vertelt wie je ingehuurd heeft, krijg je geen kans om dat uit te geven.
+Het is absoluut waar dat mevrouw Thatcher hier geen cent van zal uitgeven aan enige kwestie van regionaal beleid of openbare werken waaraan zij in de eerste plaats nog niet had willen besteden.

@@ -1,16 +1,16 @@
-Hou je poeder droog .	-0.42938756942749023
-Hou je poeder droog .	-0.42938756942749023
-Hou je poeder droog , jongen .	-0.3233548700809479
-Hou je poeder droog , Pope .	-0.2891886234283447
-Heren , hou uw poeder droog .	-0.3179400563240051
-Je moet je poeder droog houden .	-0.22532247006893158
-Soms is het goed om je poeder droog te houden , Tosh .	-0.17897431552410126
-Heeft je vader je nooit geleerd om je poeder droog te houden ?	-0.2615521252155304
-Hou je poeder droog als ik deze mensen aan je voorstel .	-0.40364426374435425
-Oké mannen , hou je poeder droog en hou je wapens klaar .	-0.5159462094306946
-We hebben nog een lange weg te gaan , dus hou je poeder droog .	-0.4038671851158142
-Ik wist niet dat je het letterlijk meende toen je zei : `` Hou je poeder droog . ''	-0.32934123277664185
-Natuurlijk hebben ze je vernederd , hou je poeder droog , onze tijd om te schieten zal komen .	-0.5619470477104187
-Als je bij je dochter wilt zijn voordat ze opgroeit , hou je je poeder droog .	-0.3267862796783447
-Mijn autopsierapport is genaaid , dus tot dan , hou je poeder droog , oké ?	-0.4331631362438202
-Ik ben ervan overtuigd dat u , mijnheer Chanterie , in mijn plaats ook uw poeder droog wilt houden in plaats van uw hand te laten zien .	-0.3420017659664154
+Hou je poeder droog.
+Hou je poeder droog.
+Hou je poeder droog, jongen.
+Hou je poeder droog, Pope.
+Heren, hou uw poeder droog.
+Je moet je poeder droog houden.
+Soms is het goed om je poeder droog te houden, Tosh.
+Heeft je vader je nooit geleerd om je poeder droog te houden?
+Hou je poeder droog als ik deze mensen aan je voorstel.
+Oké mannen, hou je poeder droog en hou je wapens klaar.
+We hebben nog een lange weg te gaan, dus hou je poeder droog.
+Ik wist niet dat je het letterlijk meende toen je zei: "Hou je poeder droog."
+Natuurlijk hebben ze je vernederd, hou je poeder droog, onze tijd om te schieten zal komen.
+Als je bij je dochter wilt zijn voordat ze opgroeit, hou je je poeder droog.
+Mijn autopsierapport is genaaid, dus tot dan, hou je poeder droog, oké?
+Ik ben ervan overtuigd dat u, mijnheer Chanterie, in mijn plaats ook uw poeder droog wilt houden in plaats van uw hand te laten zien.

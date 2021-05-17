@@ -1,13 +1,13 @@
-Slaap als een blok .	-0.2795567512512207
-Je slaapt als een blok .	-0.39478978514671326
-Hij slaapt als een blok .	-0.3559514582157135
-Denny , je slaapt als een blok .	-0.23367880284786224
-Hij slaapt als een blok vannacht .	-0.46259793639183044
-Dan slaap je als een blok .	-0.5171635150909424
-Het probleem is dat ik slaap als een blok .	-0.39419400691986084
-Je slaapt als een blok in dat verenbed .	-0.3916128873825073
-Ik slaap als een blok in de buurt van Vittoria , je weet maar nooit .	-0.41007500886917114
-Als ik thuiskom , slaap ik als een blok .	-0.33412277698516846
-Ze kunnen me niet wakker maken in het midden van de nacht voor alles . Ik slaap als een blok .	-0.400054007768631
-Het hotel is gemakkelijk te vinden , net als een plek om te eten , en na het diner val ik als een blok in slaap .	-0.31916865706443787
-Wij slaven vielen in slaap als een blok om de volgende ochtend wakker te worden met een slag van de zweep op het doek van de tent .	-0.31957921385765076
+Slaap als een blok.
+Je slaapt als een blok.
+Hij slaapt als een blok.
+Denny, je slaapt als een blok.
+Hij slaapt als een blok vannacht.
+Dan slaap je als een blok.
+Het probleem is dat ik slaap als een blok.
+Je slaapt als een blok in dat verenbed.
+Ik slaap als een blok in de buurt van Vittoria, je weet maar nooit.
+Als ik thuiskom, slaap ik als een blok.
+Ze kunnen me niet wakker maken in het midden van de nacht voor alles. Ik slaap als een blok.
+Het hotel is gemakkelijk te vinden, net als een plek om te eten, en na het diner val ik als een blok in slaap.
+Wij slaven vielen in slaap als een blok om de volgende ochtend wakker te worden met een slag van de zweep op het doek van de tent.

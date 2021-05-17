@@ -1,4 +1,4 @@
-Als een beer met een zere kop .	-0.24063415825366974
-Hij is als een beer met een zere kop .	-0.2634810209274292
-Hij was als een beer met een zere kop .	-0.25632062554359436
-Je had hem moeten zien klimmen ... op de tafels .	-0.3882509768009186
+Als een beer met een zere kop.
+Hij is als een beer met een zere kop.
+Hij was als een beer met een zere kop.
+Je had hem moeten zien klimmen... op de tafels.

@@ -1,3 +1,3 @@
-Je eet als een paard .	-0.2940802276134491
-Dat meisje kan eten als een paard .	-0.32704222202301025
-Dat komt omdat je eet als een paard .	-0.31140249967575073
+Je eet als een paard.
+Dat meisje kan eten als een paard.
+Dat komt omdat je eet als een paard.

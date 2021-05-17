@@ -1,500 +1,500 @@
-Doe het juiste .	-0.26387277245521545
-Doe wat juist is .	-0.3839317858219147
-Doe het juiste ding .	-0.5726729035377502
-Doe wat juist is . ''	-0.38967078924179077
-Doe het juiste , Joey .	-0.19530244171619415
-Doe dan het juiste .	-0.2849457859992981
-Doe het juiste , Oswald .	-0.17488807439804077
-Doe gewoon het juiste .	-0.32389020919799805
-Doe het juiste , Fez .	-0.20786967873573303
-Doe gewoon het juiste .	-0.32389020919799805
-Doe dan het juiste .	-0.2849457859992981
-Je zult het juiste doen .	-0.3515830934047699
-Ja , het juiste doen ?	-0.5349171757698059
-- `` Doe het juiste . ''	-0.4324372410774231
-Doe het juiste , Stephen .	-0.1853882521390915
-Doe het juiste , maatje .	-0.3230248987674713
-Doe het juiste , Frank .	-0.21797072887420654
-Doe het juiste , Mark .	-0.21525496244430542
-Hij zal het juiste doen .	-0.29168790578842163
-Je zult het juiste doen .	-0.3515830934047699
-Eindelijk het juiste doen !	-0.42166948318481445
-Je doet het juiste .	-0.38382336497306824
-Ze zal het juiste doen .	-0.30300530791282654
-En het juiste doen ?	-0.28492575883865356
-Laten we het juiste doen .	-0.2680555284023285
-Doe het juiste ... voor één keer .	-0.3817537724971771
-Doe dan het juiste , begrepen ?	-0.36122992634773254
-Je moet het juiste doen .	-0.3806939423084259
-Soms doen mensen het juiste .	-0.22989295423030853
-En je doet het juiste .	-0.3438345789909363
-Heb ik het juiste gedaan ?	-0.2544284462928772
-Ik probeer het juiste te doen .	-0.34555304050445557
-Heeft Daniel het juiste gedaan ?	-0.2163630574941635
-Ik doe altijd het juiste .	-0.25279679894447327
-Doe wat juist is , laat Mohammed zien .	-0.4835189878940582
-Doe gewoon het juiste , Art .	-0.274441123008728
-Ik doe altijd het juiste .	-0.25279679894447327
-Je kunt het juiste doen .	-0.30720871686935425
-En ik doe altijd het juiste .	-0.2513839602470398
-Heb ik het juiste gedaan , Gideon ?	-0.1879660040140152
-Ik probeer het juiste te doen ...	-0.23875470459461212
-Dus je gaat het juiste doen ?	-0.31987717747688293
-Je wilt het juiste doen .	-0.2816379964351654
-Ik probeer gewoon het juiste te doen .	-0.31691253185272217
-Of heb ik het juiste gedaan ?	-0.23538358509540558
-Ik probeer het juiste te doen .	-0.20144681632518768
-Ik weet zeker dat je het juiste zult doen .	-0.3286266326904297
-We gaan het juiste doen .	-0.26581987738609314
-Je zei dat je het juiste zou doen .	-0.18648387491703033
-De kracht om het juiste te doen .	-0.173060804605484
-Ik besloot het juiste te doen .	-0.2798632085323334
-Ik denk dat je het juiste zult doen .	-0.32444432377815247
-Je overtuigen om het juiste te doen .	-0.33034923672676086
-Ik moet het juiste doen .	-0.19234010577201843
-Hij wil het juiste doen .	-0.24477842450141907
-Ik moest het juiste doen .	-0.3093421459197998
-Ik probeer het juiste te doen .	-0.280121773481369
-Je probeerde het juiste te doen ?	-0.339486688375473
-Ik wil het juiste doen .	-0.22763870656490326
-Ik wil het juiste doen .	-0.1863356977701187
-Hij wil het juiste doen .	-0.20078162848949432
-Ik weet zeker dat hij het juiste zal doen .	-0.26604485511779785
-Je kunt nog steeds het juiste doen .	-0.2559063732624054
-Je moet het juiste doen .	-0.2260112315416336
-Je moet het juiste doen .	-0.26337823271751404
-Maar we moeten het juiste doen .	-0.250152051448822
-Oké , ik zal het juiste doen .	-0.33192598819732666
-Jack zal het juiste doen .	-0.3970746099948883
-Ik wil het juiste doen .	-0.1863356977701187
-We zijn Smurfen , we doen het juiste .	-0.35182633996009827
-Ik wil het juiste doen .	-0.1863356977701187
-`` Waarom doe je niet het juiste ...	-0.33268073201179504
-Ik probeer het juiste te doen .	-0.19969362020492554
-Ik dacht dat hij het juiste zou doen .	-0.20416903495788574
-Je wilt het juiste doen .	-0.2816379964351654
-Ik wil gewoon het juiste doen .	-0.2070840299129486
-Ik weet zeker dat je het juiste zult doen .	-0.3286268711090088
-Maar je kunt het juiste doen .	-0.2871873676776886
-Ik wil gewoon het juiste doen .	-0.2070840299129486
-Ik wil nog steeds het juiste doen .	-0.23886047303676605
-Maar als je niet het juiste kunt doen ,	-0.3331306576728821
-Ik wil het juiste doen .	-0.3813522160053253
-Ik denk dat ik het juiste heb gedaan .	-0.343500018119812
-Byz Lats wilde het juiste doen .	-0.16801443696022034
-Probeer niet het juiste te doen .	-0.3572643995285034
-Ik wist dat je het juiste zou doen , broer .	-0.2656290829181671
-Doe het juiste en maak er een eind aan .	-0.3627971410751343
-Ik heb iemand nodig om het juiste te doen .	-0.2747920751571655
-Zullen die kerels altijd het juiste doen ?	-0.4313911199569702
-Ga je het juiste doen ?	-0.3736732006072998
-Je probeert altijd het juiste te doen .	-0.20235003530979156
-Om het juiste te doen , om het goed te maken .	-0.328936368227005
-Ze probeerden het juiste te doen .	-0.21551969647407532
-We probeerden het juiste te doen .	-0.231233149766922
-Help me alsjeblieft het juiste te doen .	-0.2918727695941925
-Ik had plannen om het juiste te doen .	-0.21502728760242462
-En ik vertrouw erop dat je het juiste zult doen .	-0.30247920751571655
-Ik weet dat je het juiste zult doen .	-0.24171867966651917
-Omdat ik het juiste wil doen ?	-0.19415569305419922
-Nee , maar je moet het juiste doen .	-0.26739731431007385
-Ik blijf proberen het juiste te doen .	-0.2748546600341797
-Heb ik het juiste gedaan , Ames ?	-0.2933903634548187
-Ik probeerde het juiste te doen .	-0.22525113821029663
-- Hoe durf je het juiste te doen !	-0.37066346406936646
-Heb ik het juiste gedaan ?	-0.3330865204334259
-We moeten het juiste doen .	-0.2796018719673157
-Hij probeerde het juiste te doen .	-0.2162400335073471
-Hij voedde haar op om het juiste te doen .	-0.20401212573051453
-Daarom ga je het juiste doen .	-0.27795761823654175
-Ik ga het juiste doen .	-0.2711634933948517
-- Ik probeerde het juiste te doen .	-0.35756921768188477
-Er is nog tijd om het juiste te doen .	-0.21154026687145233
-Soms is het belangrijk om het juiste te doen .	-0.1812952607870102
-Waarom kun je niet gewoon het juiste doen ?	-0.305769681930542
-Zet de politiek opzij en doe wat juist is .	-0.3940795660018921
-Doe het juiste voor je familie .	-0.3396994471549988
-Ik vertrouwde hem om het juiste te doen .	-0.23722733557224274
-Ik hoopte dat je het juiste zou doen .	-0.1722642332315445
-Omdat ik het juiste wilde doen .	-0.23212946951389313
-Ik probeer het juiste te doen .	-0.2587130665779114
-Ik probeer gewoon het juiste te doen .	-0.25003987550735474
-Doe het juiste en red haar leven .	-0.1807761788368225
-Ik zal het juiste voor je doen .	-0.3021475672721863
-- We proberen het juiste te doen .	-0.31086215376853943
-We moeten het juiste doen .	-0.2980155050754547
-Doe het juiste en kom vanavond naar voren .	-0.29630571603775024
-Je doet altijd het juiste ... soort van .	-0.3252461850643158
-Ik probeerde het juiste te doen .	-0.31457996368408203
-Soms is het moeilijk om het juiste te doen .	-0.18779581785202026
-Hij gaat hier het juiste aan doen .	-0.5115660429000854
-Hij probeert gewoon het juiste te doen .	-0.24643553793430328
-Ik weet dat je het juiste gaat doen .	-0.24620655179023743
-Je kunt ervoor kiezen om het juiste te doen .	-0.35240861773490906
-Maar nu moet ik het juiste doen .	-0.19447916746139526
-Ik probeer het juiste te doen .	-0.2587130665779114
-Ik vertrouw erop dat je het juiste doet .	-0.21438047289848328
-Ik juich je verlangen toe om het juiste te doen .	-0.37864574790000916
-Ik wil gewoon het juiste doen .	-0.48221707344055176
-Ik weet dat je dit keer het juiste zult doen .	-0.35786083340644836
-Het is nooit te laat om het juiste te doen .	-0.16942276060581207
-Omdat je altijd het juiste doet .	-0.2527439594268799
-Heb ik het juiste gedaan door hier te komen ?	-0.2933425307273865
-Het is nog niet te laat om het juiste te doen .	-0.19483524560928345
-Ik probeer gewoon het juiste te doen .	-0.291101336479187
-Om te zeggen dat hij het juiste wil doen ?	-0.2203708291053772
-Je zoekt mensen om het juiste te doen .	-0.26298782229423523
-Ik probeerde gewoon het juiste te doen .	-0.3008652925491333
-Zal hij altijd het juiste doen ?	-0.24616393446922302
-Ik vraag je om het juiste te doen .	-0.25820186734199524
-Ik probeerde het juiste te doen , en dat deed ik niet .	-0.4523587226867676
-Ik wilde geloven en het juiste doen .	-0.31129220128059387
-- Ik wil gewoon het juiste doen .	-0.31089434027671814
-Hij moest proberen het juiste te doen .	-0.2886863946914673
-Ik probeer gewoon het juiste te doen .	-0.291101336479187
-Oh , dus wat , u Mr. Doe het juiste ding ?	-0.5722920298576355
-En ik weet dat je het juiste gaat doen .	-0.2594860792160034
-Je doet of het juiste , of je doet het niet .	-0.41369467973709106
-Ik wil het juiste doen voor haar .	-0.3254832923412323
-Je zegt altijd dat ik het juiste moet doen .	-0.297804057598114
-Heb ik het juiste gedaan met mijn leven ?	-0.2924966812133789
-Je kunt iemand niet dwingen om het juiste te doen .	-0.3142050802707672
-Je oma wil alleen maar het juiste doen .	-0.3406764268875122
-En we kunnen nu het juiste doen .	-0.2830239236354828
-En dat ik het juiste moet doen .	-0.31638601422309875
-Help me het juiste te doen , Don Maroni .	-0.24600675702095032
-Je hebt je kans gemist om het juiste te doen .	-0.21674971282482147
-Je probeerde gewoon het juiste te doen .	-0.28210264444351196
-Ik moet gewoon het juiste doen .	-0.3205645680427551
-Omdat je wist dat Sterling het juiste zou doen .	-0.20702534914016724
-We zijn achterover gebogen om het juiste te doen .	-0.4044795334339142
-Voor een keer besloot ik het juiste te doen .	-0.3939289152622223
-- We proberen altijd het juiste te doen .	-0.298514187335968
-Ik dacht dat hij het juiste zou doen .	-0.17809875309467316
-Voor één keer in je leven , doe het juiste .	-0.3992849886417389
-Ik probeer het juiste te doen .	-0.27282074093818665
-Ik kan rekenen op het juiste doen .	-0.5281073451042175
-Om het juiste te doen of om het makkelijke te doen ?	-0.38554027676582336
-Je hebt een kleine kans om het juiste te doen .	-0.23842287063598633
-Nou , dat is iets anders , we doen nooit het juiste .	-0.4536941647529602
-Je hebt eindelijk de kans om het juiste te doen .	-0.2131764143705368
-We leggen het uit , laten ze het juiste doen .	-0.4634873569011688
-Altijd zo loyaal , altijd proberen om het juiste te doen .	-0.2639949917793274
-Maar ik wil dat je nu het juiste doet .	-0.2829601466655731
-Ik wil gewoon het juiste doen , weet je ?	-0.27061957120895386
-Ik wil dat we allebei het juiste doen , Curtis .	-0.23719282448291779
-Misschien is dat het probleem . Je doet altijd het juiste .	-0.31238678097724915
-Nee , dat hoeft niet , oké ?	-0.4569805860519409
-Het punt is , je moet het juiste doen .	-0.2707591950893402
-Ja , ik weet zeker dat hij nu het juiste zal doen .	-0.3392588198184967
-Je doet het juiste of ik vermoord je zelf .	-0.410712331533432
-Het punt is , soms moet je het juiste doen ,	-0.3702179193496704
-Naomi , Coop probeert gewoon het juiste te doen .	-0.2568472921848297
-Hij laat me de juiste dingen doen .	-0.3350926637649536
-Maar ik moet het juiste aan je doen .	-0.30134817957878113
-Probeerde het juiste te doen en werd zelf gedood .	-0.5608376264572144
-Doe het juiste , maar weet je wat dat is ?	-0.36670351028442383
-Je hebt een kans om het juiste te doen , Adrian .	-0.22784587740898132
-Mijn hele leven probeer ik het juiste te doen .	-0.26588189601898193
-Dan weet ik dat jullie allebei het juiste doen .	-0.37011680006980896
-Mijn moeder zei dat ik altijd het juiste moest doen .	-0.2693382799625397
-Je hebt nog steeds de kans om het juiste te doen .	-0.27076956629753113
-Doe het juiste , weet je wat je bent ?	-0.3706354796886444
-Lake was , ze ... ze probeerde het juiste te doen .	-0.3167312443256378
-Je bent een slimme jongen , je zult het juiste doen .	-0.4238864779472351
-Cliff , alsjeblieft , doe het juiste en laat hem gaan .	-0.20841149985790253
-Ik wacht tot je het juiste doet .	-0.3292211890220642
-Soms moet je je opofferen om het juiste te doen .	-0.25028693675994873
-Hij probeerde tenminste het juiste te doen .	-0.34287166595458984
-Ik weet dat je het juiste wilt doen .	-0.20893137156963348
-Kapitein , gaat u het juiste doen ?	-0.36959871649742126
-Omdat je probeert het juiste te doen , oké ?	-0.37217023968696594
-Walter probeert het juiste te doen door zijn familie .	-0.28806599974632263
-Nee , maar ik vertrouwde hem om het juiste te doen .	-0.22340312600135803
-Ik zeg niet dat mensen denken dat ze het juiste doen .	-0.339570552110672
-Maar ik moet het juiste doen door jou .	-0.31282976269721985
-Wat als ze beslissen dat hij niet het juiste deed ?	-0.38769301772117615
-Sally , het is tijd voor mij om het juiste te doen .	-0.23955538868904114
-Ik probeer hier het juiste te doen , oké ?	-0.3708967864513397
-Heb ik het juiste gedaan , Colin met ons meeslepen ?	-0.38104143738746643
-Zac , alsjeblieft , je moet gewoon het juiste doen .	-0.28918924927711487
-`` Je bent nooit verkeerd om het juiste te doen . ''	-0.4840044379234314
-Ik dring er bij de rechtbank op aan om het juiste te doen .	-0.38523826003074646
-- Ik wil het juiste doen , toch ?	-0.40201425552368164
-Marcus , je moet echt het juiste doen .	-0.29625025391578674
-Kleine Miss Quaker Twee Schoenen gaat het juiste doen .	-0.3721522390842438
-Doe alsjeblieft het juiste en loop nu weg .	-0.38460996747016907
-Hij probeerde het juiste te doen .	-0.3785587549209595
-Je gaf ze elke kans om het juiste te doen , senator .	-0.3790549635887146
-Ik wilde het juiste doen voor hen allemaal .	-0.4746411442756653
-Dan kan ik tenminste het juiste doen .	-0.4045675992965698
-Waarschijnlijk ontdekte hij dat hij probeerde ... het juiste te doen .	-0.3678607642650604
-Alsof ze een agent was die het juiste zou doen .	-0.23944903910160065
-Ik probeer gewoon het juiste te doen , agent Gibbs .	-0.24645008146762848
-Ik vertrouw erop dat je daarmee het juiste doet .	-0.3396870791912079
-Hij wilde het juiste doen , hij liet zich meeslepen ...	-0.269673615694046
-En ik ben blij dat je het juiste wilt doen .	-0.21922717988491058
-Niemand zal me ooit vertellen dat ik niet het juiste heb gedaan .	-0.3946579396724701
-Maar ik probeer het juiste te doen .	-0.31134873628616333
-Het gaat erom dat je nu het juiste probeert te doen .	-0.3952465057373047
-Hoe hij gewoon een man was die het juiste probeerde te doen .	-0.45192623138427734
-Nu is je kans om het juiste te doen voor dit team .	-0.26154428720474243
-Hoeveel mensen moeten sterven voordat je het juiste doet ?	-0.27860668301582336
-Je moet een man zijn en het juiste doen .	-0.29037603735923767
-Niet alleen om met mij te praten , maar om het juiste te doen .	-0.239568293094635
-Als je twijfelt , doe dan het juiste .	-0.45868539810180664
-Het soort dat het juiste zou doen , hoe gevaarlijk ook .	-0.4207612872123718
-Het is nog niet te laat om het juiste te doen .	-0.2810570299625397
-Ik vraag je nog één keer om het juiste te doen .	-0.3274211585521698
-Dit is een kans voor je om het juiste te doen .	-0.2917698621749878
-We kunnen stoppen met negen miljard als we de juiste dingen doen .	-0.34532955288887024
-Ik probeer gewoon het juiste te doen .	-0.3699946403503418
-Je moet altijd het juiste doen , toch Michael ?	-0.4664088189601898
-Ben je dan te bang om op te staan en het juiste te doen ?	-0.2957550883293152
-Maar ik weet dat je gewoon het juiste probeerde te doen .	-0.3162268102169037
-Ik wil het juiste doen , maar niet zo goed .	-0.38766002655029297
-Ik maakte me altijd zorgen om het juiste te doen .	-0.3856130838394165
-De fabrikanten hebben deze wetgeving nodig om hen het juiste te laten doen .	-0.34867069125175476
-Ik deed het juiste , vertelde de garage dat ik haar tas had .	-0.3895108997821808
-We moeten het juiste doen en aan hem denken .	-0.29413488507270813
-Je moet het juiste doen voor jezelf , voor je dochter .	-0.22797347605228424
-Doe het juiste voor mij , voor jezelf en voor het land .	-0.24749207496643066
-Deze keer ga ik het juiste doen .	-0.37551966309547424
-Ik weet dat je het juiste probeert te doen .	-0.3299996554851532
-Doe gewoon het juiste en geef deze zaak aan een andere rechter .	-0.26572367548942566
-Senator , niet beledigend bedoeld , maar als je het juiste wilt doen ,	-0.29828962683677673
-Het zou moeilijk zijn om mensen te overtuigen om het juiste te doen .	-0.287456214427948
-Als je het juiste doet , leef je nog lang en gelukkig .	-0.27941733598709106
-Soms kan een man niet winnen .	-0.4040519595146179
-Als we niet het juiste doen , maakt het de dingen erger voor je .	-0.4781937003135681
-Je moet nu het juiste doen .	-0.39979931712150574
-Ik woog de kans op het beste om het juiste te doen .	-0.5513175129890442
-Hij probeerde gewoon de kost te verdienen en het juiste te doen .	-0.4444863200187683
-Maar ik ga niet eeuwig wachten tot je het juiste doet .	-0.2870471179485321
-Ja , er zal een plek zijn , want sommige mensen zullen het juiste doen .	-0.39620038866996765
-Dus , eh , ik ben officieel van plan om te proberen het juiste te doen .	-0.4978243112564087
-Luister , mijn hele leven heb ik geprobeerd het juiste te doen , weet je .	-0.3883897662162781
-Maar Kanan deed iets vreselijk verkeerd terwijl hij probeerde het juiste te doen .	-0.38411945104599
-Als we hem bij haar weghalen , weet ik dat hij het juiste zal doen .	-0.32515954971313477
-Birma geeft die leiders de kans om opnieuw het juiste te doen .	-0.3465440273284912
-Als hij dat doet , kan ik er dan op rekenen dat je het juiste doet ?	-0.3708259165287018
-Jim en ik gaan het juiste doen door jou , Eric .	-0.23597203195095062
-Ik heb mijn hele leven geleefd ... en geloofde dat de politie het juiste kon doen .	-0.3530125916004181
-Ik probeerde het juiste te doen , voor haar en onze dochter .	-0.23340806365013123
-Hoe moeilijk het ook was om de waarheid te vertellen , je hebt het juiste gedaan .	-0.4158277213573456
-Samen met anderen wil ik het juiste doen en het promoten .	-0.2462332546710968
-Ik bad regelmatig om begeleiding dat ik altijd het juiste zou doen .	-0.3666466772556305
-Ik zweer het , ik probeerde gewoon het juiste te doen , en ik ...	-0.29576537013053894
-Het lijkt echt moeilijk om de consument het juiste te laten doen .	-0.49002474546432495
-Hou op met die onzin en geef je je erfenis .	-0.5915102362632751
-Dit komt omdat kinderen niet van nature geneigd zijn om het juiste te doen .	-0.400774210691452
-En ik weet dat ik erop kan vertrouwen dat je het juiste doet .	-0.29268360137939453
-Soms moet je het juiste doen : de feiten onder ogen zien en accepteren .	-0.3178348243236542
-Ik wacht niet op de wet om dit keer het juiste te doen .	-0.35164788365364075
-Heb je ooit het juiste gedaan en je er nog steeds schuldig over gevoeld ?	-0.3927823007106781
-Er zal een grote tip voor je zijn als je de juiste dingen doet .	-0.32411184906959534
-Wanneer zou je lijden voor het nemen van een beslissing om het juiste te doen ?	-0.4198962152004242
-Nee , we moeten haar een kans geven om het juiste te doen .	-0.22867031395435333
-Ik heb mijn hele leven hard gewerkt om het juiste te doen .	-0.3762766420841217
-Ik heb me altijd afgevraagd waarom je zo je best deed om het juiste te doen .	-0.3513057231903076
-Als ik geloof dat ik onschuldig ben , moet ik het juiste doen .	-0.22369414567947388
-Wat zegt dat ? `` Doe het juiste en het komt goed met me . ''	-0.5356258749961853
-Ik denk dat je moet stoppen met mijn tijd te verspillen en het juiste doen .	-0.340963751077652
-Ik moet erop vertrouwen dat je het juiste doet .	-0.41849783062934875
-Kelso , man , dit is wat je krijgt als je probeert het juiste te doen .	-0.3497561812400818
-Dus , grote broer , ik geef je een kans om het juiste te doen .	-0.29024413228034973
-Deze kogel zal me er altijd aan herinneren om het juiste te doen bij mijn Deborah .	-0.3067209720611572
-Dus ik wil gewoon dat je het juiste doet en de waarheid vertelt .	-0.27081298828125
-Ze brengen je naar de juiste plek en laten je het juiste doen .	-0.3785952031612396
-Kunnen we nu stoppen met elkaar de schuld te geven en het juiste doen ?	-0.3348771929740906
-Ik hoopte dat je ons dilemma zou zien en het juiste zou doen .	-0.22276583313941956
-Met al haar mysteries en misstappen , probeert ze altijd het juiste te doen .	-0.27902889251708984
-Ik wil gewoon het juiste doen en het aan jou teruggeven .	-0.3718327581882477
-Je zou hier het juiste kunnen doen , of je zou een ijsbeer kunnen doden .	-0.36445286870002747
-Denk je dat je een stel politici kunt overtuigen om het juiste te doen ?	-0.30313023924827576
-Toen we elkaar voor het eerst ontmoetten , dacht ik dat je echt het juiste wilde doen .	-0.32875698804855347
-Neem wat troost in het feit dat je probeert om het juiste te doen	-0.44738486409187317
-Het juiste willen doen op de juiste manier om de juiste redenen .	-0.4004988372325897
-Ik nam zijn naam aan , maar ... ik probeerde er het juiste mee te doen .	-0.3021640181541443
-Jamie , ik weet dat je het juiste wilde doen , maar ... je had geen dienst .	-0.23460054397583008
-Deze religies moesten hun aanhangers leren het juiste te doen , maar faalden .	-0.39668190479278564
-Weet je , af en toe wil ik zelfs het juiste doen .	-0.3442349433898926
-Als je haar niet kunt redden , doe dan het juiste .	-0.3399396538734436
-Na al die tijd besluit een burger om het juiste te doen .	-0.314179390668869
-Je bent dit niet alleen aan Alice verschuldigd , maar ook aan jezelf om het juiste te doen .	-0.26790153980255127
-Trouwens , je doet het juiste om de verkeerde redenen , niemand geeft er iets om .	-0.44214022159576416
-Hij had de kans om het juiste te doen .	-0.42743369936943054
-Ik vraag je niet om me aardig te vinden , maar om het juiste te doen .	-0.3462749719619751
-Omdat ze dapper is , omdat ze aardig is , en ze probeert altijd het juiste te doen .	-0.279575377702713
-En op welk moment wist je dat je het juiste zou doen ?	-0.28869372606277466
-We probeerden gewoon de envelop te duwen ... om het juiste te doen voor het bedrijf .	-0.4972662925720215
-Ik ben het zat om als een eikel behandeld te worden omdat ik het juiste probeerde te doen .	-0.4336969256401062
-Ik wil je bedanken dat je me dwong om het juiste te doen .	-0.4696105122566223
-Ik vertrouw erop dat hij het juiste doet en ik hoop dat hij dat zal doen .	-0.3140782117843628
-Ik bedoel , heb ik het juiste gedaan of heb ik het verkeerde gedaan ?	-0.3435375690460205
-Ik respecteer je wens om het juiste te doen , maar helaas heb je een overeenkomst getekend .	-0.34009549021720886
-Dus , ik wil dat je naar voren komt en het juiste doet voor haar .	-0.48994579911231995
-Sommigen zouden de redder een held noemen , maar hij zei : `` Je moet het juiste doen .	-0.28558894991874695
-- Doe het juiste , jongens , en biefstuk zal niet het enige op het menu zijn .	-0.3584817945957184
-Kunnen we niet een beetje meer van het verkeerde doen voordat we het juiste doen ?	-0.36226949095726013
-Als we de juiste dingen doen , kunnen we de risico 's voor de samenleving in de toekomst verminderen .	-0.23512841761112213
-Als je niet op iemand kunt rekenen om het juiste te doen , geef ze dan niet de keuze .	-0.37924543023109436
-Als je het juiste doet als bedrijf is er niets te vrezen van ons .	-0.442877858877182
-Ik heb volledig vertrouwen in je vermogen om hier het juiste te doen , Darius .	-0.3714146614074707
-Ik weet waarom je boos bent , maar ik denk dat ze probeerde het juiste te doen .	-0.22218942642211914
-Dus ... ik probeer het juiste te doen , en ik heb het gevoel ... dat ik dit neem .	-0.3916749954223633
-Ik doe m ' n best om mensen te helpen .	-0.3421581983566284
-Ik probeer altijd het juiste te doen , altijd de behoeften van anderen boven die van mij stellen .	-0.4231467843055725
-Een dwaas , een crimineel ... misschien ben ik net als iedereen die het juiste probeert te doen .	-0.2930240035057068
-Wat als ze te verbrand zijn om het juiste te doen ?	-0.42173001170158386
-Want voor al zijn onvolkomenheden , streeft het ernaar om het juiste te doen ... om mensen te beschermen .	-0.35651737451553345
-En ik zal ook niet de laatste zijn , tenzij je het juiste doet en de waarheid vertelt .	-0.2512665390968323
-Door altijd zijn voorbeeld te volgen , zullen we het juiste doen als we geconfronteerd worden met verleiding .	-0.34943825006484985
-- Dan weet je hoe het is om ze te leren het juiste te doen .	-0.33113500475883484
-Nadine helpen betekent de wet overtreden .	-0.37927815318107605
-Wil je meegaan , of blijf je hier en doe je het juiste ?	-0.44416141510009766
-Dit is je kans om het juiste te doen en tegelijkertijd je geweten te zuiveren .	-0.2903684079647064
-Maar je moet het juiste doen , anders moet ik het juiste doen .	-0.2823560833930969
-Als je hier het juiste doet , beloof ik dat ik een goed woordje doe bij de OvJ .	-0.40858423709869385
-En geloof me , hij wilde het juiste doen , hij wist gewoon niet wat dat was .	-0.28673264384269714
-Ik twijfel er niet aan dat de Raad van Bestuur van de ECB het juiste zal doen .	-0.2317175567150116
-Hij zegt dat hij zo lang als hij kan wacht tot de Batman het juiste doet .	-0.36213093996047974
-Je kunt me je woord geven als Henry Reagan 's kleindochter dat je het juiste gaat doen .	-0.39250802993774414
-Ronnie , als je zwanger bent , zal Mike het juiste doen .	-0.29359033703804016
-We rekenen erop dat jij onze ogen en oren bent , om het juiste te doen .	-0.3605012893676758
-Ik loog tegen hem om hem het juiste te laten doen en zijn contract te respecteren .	-0.3618984818458557
-Als ze het niet zou vertellen , als ze nooit het juiste zou doen , waarom zou ze haar dan knock-out slaan ?	-0.35137155652046204
-Hij lijkt het juiste te doen ... maar nu zit hij in een hoek en is wanhopig .	-0.5397183299064636
-Als je het juiste doet om de verkeerde redenen ... wordt het werk corrupt , onzuiver en uiteindelijk zelfvernietigend .	-0.29871681332588196
-Ik probeerde alleen maar te helpen , ik probeerde gewoon het juiste te doen .	-0.3604409992694855
-Ik ga het juiste doen , dit meisje bellen , en haar laten weten dat ik een relatie heb .	-0.2609409987926483
-Laten we het juiste doen en hun familie controleren , om zeker te zijn dat ze het volhouden , oké ?	-0.4600073993206024
-Ik ben een agent , ik heb niet veel geld ... maar ik wil het juiste doen .	-0.2869013249874115
-Maar de tijd komt , we weten dat we iets hebben , en je krijgt een telefoontje . Ga je het juiste doen ?	-0.5393326282501221
-En hoewel ik weet dat haar aanpak soms vervelend kan zijn , probeert ze het juiste te doen .	-0.26567456126213074
-Ik probeer het juiste te doen , hier en daar , en ik zou echt een beetje steun waarderen .	-0.36362433433532715
-In de politiek is het belangrijk om de juiste dingen te doen , want dat is wat ons democratische legitimiteit geeft .	-0.29917994141578674
-Lloyd , het spijt me hoe dit allemaal is gegaan , maar het is tijd dat je het juiste doet .	-0.36361533403396606
-Hoewel David van God hield , wist hij hoe moeilijk het soms kon zijn om het juiste te doen .	-0.22386807203292847
-Het probleem is dat engelen altijd willen dat je het juiste doet , en het juiste doen wordt je dood .	-0.39357054233551025
-Het feit is , je moeder en ik probeerden gewoon het juiste te doen .	-0.3962115943431854
-Wat als ze te verbrand zijn om het juiste te doen ?	-0.4620559811592102
-Maar als ik echt om ze geef , moet ik het juiste doen .	-0.33085957169532776
-- Maar je fantasieën drijven je altijd om het juiste te doen op een educatieve en vermakelijke manier .	-0.4373316466808319
-Toen alle mannen van mijn familie stierven , dacht ik eraan om mee te doen aan de oorlog en het juiste te doen .	-0.3358079195022583
-Laat me zeggen dat ik het gevoel heb dat je op het juiste moment het juiste doet .	-0.41086724400520325
-En nogmaals hoop ik echt dat iedereen het juiste zal doen en hier vrijdag zal zijn .	-0.42274999618530273
-Dit is wat er gebeurt als je probeert het juiste te doen .	-0.41784563660621643
-Ik wil het juiste doen , maar soms is het moeilijk om te weten wat het juiste is .	-0.22259123623371124
-- En je probeert het juiste te doen ... verandert niets aan het feit dat je je woord gaf .	-0.3936988115310669
-Je moet hierheen komen , met hem praten , kijken of hij het juiste kan doen .	-0.34863805770874023
-Ik kwam hier om mijn mensen te overtuigen het juiste te doen .	-0.401917964220047
-Je moet niet toekijken en iets vreselijks laten gebeuren omdat je te bang was om het juiste te doen .	-0.29921501874923706
-Drew en Elena zijn nu onder jouw invloed en ik verwacht dat je het juiste zult doen .	-0.2706714868545532
-Dit is een geweldige , geweldige oproep tot wapens om het juiste te doen voor onszelf en voor de toekomst .	-0.3550432026386261
-Stuur je wortels naar beneden ... [ Lees meer ] Thanksgiving ... Doe het juiste ding voor de christen , elke dag zou Thanksgiving Dag moeten zijn .	-0.34302544593811035
-Ik denk dat ze een cowboy is en ik vertrouw haar niet om het juiste te doen .	-0.4025246500968933
-Daarom moet je slim zijn en het juiste doen ... zodat het niet slecht afloopt voor jou .	-0.3177868723869324
-Als aanklager kom je in een traditie waarin je hier bent om het juiste te doen .	-0.3895379900932312
-Het land heeft een regering die echt het juiste wil doen , en dat moeten we erkennen .	-0.28386157751083374
-Mijn hele leven heb ik altijd geprobeerd het juiste te doen .	-0.44905832409858704
-Hoe dan ook , ik weet dat ze het juiste zal doen , maar het was leuk je te ontmoeten .	-0.3162946403026581
-Kyle ... ik weet dat je het juiste wilt doen ... maar Jessie en haar vader zijn nu voortvluchtigen .	-0.21146944165229797
-Alles wat Danny voor zijn hele leven had gewerkt was gewoon wegspoelen , omdat Chris het juiste moet doen .	-0.37297359108924866
-In de VS heb je het vermogen en de kennis om het juiste te doen .	-0.4108829200267792
-Dus `` vecht tegen de macht , '' `` met de man neer , '' `` doe het juiste . '' Die woorden kwamen nooit uit je mond ?	-0.4995007812976837
-En de morele wil wordt ondermijnd door een onophoudelijke oproep tot prikkels die ons verlangen om het juiste te doen vernietigen .	-0.380294531583786
-Het lijkt erop dat om de laatste tijd het juiste te doen , er al deze leugens en geheimen aan verbonden moeten zijn .	-0.4219047725200653
-Het kan me niet schelen welke angst je hebt , het lijkt me dat je moet proberen het juiste te doen .	-0.4588325321674347
-Ze wist het niet ; ze had geen doel dan het juiste te doen , wat het verhaal des te krachtiger maakt .	-0.28517135977745056
-Je hoeft jezelf niet te veroordelen als je niet onmiddellijk het juiste hebt gedaan , want je bent eigenlijk altijd onschuldig .	-0.2618575394153595
-De reden waarom ik het verkeerde deed was omdat ik probeerde je het juiste te laten doen .	-0.41543009877204895
-En ik wil je laten weten dat ... ik het juiste wil doen voor jou en de baby .	-0.2631995379924774
-Geef haar wat van die vieze lul , je weet dat je haar neukt en doe dan het juiste , hier is iets ...	-0.4092993438243866
-Weet je , niet iedereen zal het eens zijn met jouw beslissing om het terug te zetten , maar je hebt het juiste gedaan .	-0.37060779333114624
-En we moeten de juiste dingen doen ... om de toekomst te krijgen die het beste is voor ons allemaal .	-0.2602110803127289
-Je doet niet altijd het juiste , maar het lijkt erop dat je altijd het juiste probeert te doen , en dat is iets .	-0.29970604181289673
-Ik geloof echt dat die oude Truman lijn , dat als je het Amerikaanse volk de feiten geeft , ze het juiste zullen doen .	-0.3623008131980896
-En ik denk dat als je een kans hebt ... om het juiste te doen , je het moet doen .	-0.4474843442440033
-Mijn collega 's geloven dat ik mijn tijd met u verspil , maar ik geloof dat u het juiste wilt doen .	-0.3317122161388397
-Ezra maakt haar zwanger , wil het juiste doen , en dan komt mijn moeder opdagen met haar magische handtasjes .	-0.331100195646286
-In plaats van het echte pistool te produceren dat we niet hebben ... waarom produceren we niet de nepgetuigen die we doen ?	-0.5162941217422485
-Ik denk dat als je dat weegt tegen de korte voldoening van 'uit de lucht blazen ' , je het juiste zal doen .	-0.547386109828949
-Ik hoop dat mijn land het juiste zal doen en zal doen wat nodig is , maar dit is geen logische verdeling .	-0.2897147238254547
-Ik weet dat het moeilijk moet zijn geweest , maar je hebt het juiste gedaan .	-0.4788326919078827
-Hij was op de verkeerde plaats op het verkeerde moment , en nu lijdt hij omdat hij het juiste probeerde te doen .	-0.34709203243255615
-We kunnen hem om wijsheid vragen om te zeggen en het juiste te doen , en voor zijn geest om ons te onderhouden .	-0.37812379002571106
-Ja , man , het is gewoon klote als je probeert het juiste te doen ... en dan schreeuwt ze tegen je omdat je haar kat hebt vermoord .	-0.31327784061431885
-Care2 Stands With : Humanitairen , dierenliefhebbers , feministen , rabbels , natuurliefhebbers , creatieven , de van nature nieuwsgierige , en mensen die echt graag het juiste doen .	-0.3800072968006134
-Je kunt het juiste doen door je dode kind of je kunt het juiste doen door de twee levende .	-0.39495158195495605
-Een `` christelijk '' is ofwel geboren uit `` christelijke '' ouders , ofwel iemand die moe is om `` het juiste te doen '' ( wat dat ook is ) .	-0.4305892586708069
-Dit is allemaal met mij gebeurd , en ik doe mijn best om het juiste te doen , en alles om me heen wordt steeds erger .	-0.3504651188850403
-Het is nooit te laat om het juiste te doen . 20 miljoen werklozen : het heeft eindelijk het goede geweten van de eurocraten aangetast .	-0.3954559862613678
-Het is nooit te laat om het juiste te doen . 20 miljoen werklozen : het heeft eindelijk het goede geweten van de eurocraten aangetast .	-0.3954559862613678
-Het EESC is van mening dat deze mededeling al lang te laat is , maar is verheugd dat het nooit te laat is om het juiste te doen .	-0.48577407002449036
-Nee , mijn kinderen gaan niet dood omdat een oude lul te veel haat en trots heeft om het juiste te doen .	-0.28383222222328186
-Waarom moet de instelling geschreeuwd en voor het Europees Hof geschopt worden om het juiste te doen ?	-0.4637417495250702
-Elke keer als je weigert iemand te helpen als je niet het juiste doet ... zul je het gevoel hebben dat je verdrinkt .	-0.401519238948822
-Want ik hou echt van haar , man ... en als je één gram fatsoen hebt , zul je het juiste doen en haar laten gaan .	-0.41042253375053406
-Ik probeerde iemand in leven te houden , in plaats van ze naar hun dood te sturen .	-0.4254111349582672
-God , hij was van zijn gezicht op God weet wat , en hij zei dat hij had gesproken met een priester , moest doen wat juist was .	-0.43875011801719666
-Ik kan je medewerking of het gebruik van je lab niet dwingen , dus vraag ik je om jezelf te dwingen om het juiste te doen .	-0.43058082461357117
-Geweten is wat mijn lieve moeder en vader , nu 95 , dwong om altijd te streven naar de juiste dingen als trouwe katholieken die vier kinderen opvoeden .	-0.36839693784713745
-Ik waardeer de inspanningen die de rapporteur en de Commissie hebben geleverd om het juiste te doen op het gebied van grensoverschrijdende samenwerking .	-0.3098428249359131
-Ja , nu zijn we bereid om je niet te dwingen om die recensie te schrijven als je bereid bent om het juiste te doen en	-0.39818599820137024
-Ik probeer het juiste te doen en bij hem uit de buurt te blijven ... en dan boem , daar is hij .	-0.38151708245277405
-Dus je kende hem goed genoeg om te weten dat hij niet bij ons zou zijn geweest als we niet konden worden vertrouwd om het juiste te doen .	-0.3767467737197876
-We winnen niet af en toe ... we doen soms niet het juiste ... we doen altijd het juiste ding .	-0.5862524509429932
-zeer moeilijke omstandigheden en tegen je eigen bestwil dat Rusty Beck het soort persoon was die dapper genoeg was om het juiste te doen .	-0.36691814661026
-Ik weet dat president Martinez het juiste wil doen voor zijn land , en dat doen wij allemaal , maar het medisch bewijs is overweldigend duidelijk .	-0.36503544449806213
-Let nu op , Coral , want dit is een goede les van het onvermogen van blanken om verantwoordelijkheid te nemen voor hun daden - en het juiste te doen .	-0.3924534320831299
-De andere reden is dat als we het juiste doen , dan gaan we een hoop rijkdom creëren - en we gaan veel banen creëren .	-0.4178521931171417
-Het is tijd voor de vicepresident om het juiste te doen en een einde te maken aan onze nationale onzekerheid . Ik denk dat het Amerikaanse volk klaar is om verder te gaan .	-0.3884481191635132
-Nog niet zo lang geleden zei Obama dat het heel belangrijk was om het juiste te doen , wat natuurlijk nuttig is , wat we ook zouden denken over klimaatverandering .	-0.37670621275901794
-Ik denk dat je dat wel weet , daarom weet ik diep van binnen dat je het juiste wilt doen en ze hem naar een ziekenhuis wilt laten brengen .	-0.3815687596797943
-Hoewel de meeste mensen willen doen het juiste ding en uw schade te compenseren , is het zelden aan de persoon die de verwonding veroorzaakt .	-0.4142988324165344
-En ik ben maar een klein dorpsmeisje , dat probeert het juiste te doen , wat elk Amerikaans meisje zou doen in het gezicht van het kwaad , en hoe dan ook ...	-0.4763087332248688
-Maar zoals David Cameron van het Verenigd Koninkrijk een maand geleden zei toen hij het over polio had : `` Er is nooit een verkeerd moment om het juiste te doen . ''	-0.2912331819534302
-Het is aan jou als het stopt ; als je het juiste doet en zegt : `` Nee ... Niet in mijn naam . Ik zal niet voor je doden !	-0.3611748516559601
-Het spreekt voor zich dat als ik iemands idee ga stelen , waar jij absoluut geen bewijs van hebt , ik waarschijnlijk niet het juiste ga doen .	-0.40948665142059326
-Na verloop van tijd zal het toenemende bewustzijn van alternatieve benaderingen op basis van acceptatie van drugsgebruik door volwassenen een geheel nieuwe kans openen om de juiste dingen te doen .	-0.42994725704193115
-Dus , mensen , terwijl de rest van ons terug is om die klootzak Castillo te vinden , gaat een van jullie opstaan en het juiste doen .	-0.39242011308670044
-En dat is precies wat het zo moeilijk maakt om onbaatzuchtig het juiste te doen , vooral gezien het feit dat de Nederlander in mij opeens vooruitloopt op de dalende wijnprijzen .	-0.5317811369895935
-Ik ben getrouwd met een gerespecteerde cardioloog en ik probeer zo het juiste te doen ... maar er is iets aan jou dat me stuurt ... in de tegenovergestelde richting .	-0.3933361768722534
-Ik weet dat je het Felicity wilt vertellen , en geloof me , ik zou graag een tante zijn , maar je moet het juiste doen voor je zoon hier .	-0.26665109395980835
-Het is bijna als je rechterhand , het is niet praten met je andere hand ... en je weet niet naar wie je moet luisteren omdat ze allebei het juiste willen doen ...	-0.3800458312034607
-En dat is precies wat het zo moeilijk maakt om onbaatzuchtig het juiste te doen , vooral gezien het feit dat de Nederlander in mij opeens vooruitloopt op de dalende wijnprijzen .	-0.5317811369895935
-Als het niet goed gaat , is het eerste antwoord : laten we meer regels maken , laten we een reeks gedetailleerde procedures opzetten om ervoor te zorgen dat mensen het juiste doen .	-0.3245781660079956
-Want zelfs als er één procent kans op succes is en 99 procent kans op falen en gevangenis , zal hij het juiste doen en mijn geld terugkrijgen .	-0.3903442323207855
-Persoonlijk sterf ik liever politiek in een poging om mensen over te halen om het juiste te doen in hun eigen belang dan om politiek te overleven door mensen te misleiden tot hun eigen ondergang .	-0.38332340121269226
-We moeten nu echte liefde leren en het goed leren , zodat in toekomstige beproevingen , verleidelijke situaties , moeilijke beslissingen , liefde ons zal aanzetten om het juiste te doen en te verdragen .	-0.36157846450805664
-Ik denk dat als je met pensioen gaat in de jurykamer , je zult merken dat de aanklager dat mandaat niet heeft vervuld , en als zodanig , zul je gedwongen worden om het juiste te doen .	-0.42898622155189514
-Je werkt en probeert je kinderen te leren het juiste te doen , en je wilt zo trots op ze zijn als ze opkomen voor wat ze geloven dat goed is .	-0.3908618688583374
-Je hebt geen reden om te geloven dat ik het juiste zal doen , en als je me nu zegt te vertrekken , zul je me nooit meer zien , maar ik vraag alleen om een beetje medeleven ...	-0.40512099862098694
-Maar ik ben zeer veeleisend geweest en ik heb tijdens sommige commissievergaderingen al gezegd dat we nu het juiste moeten doen door mensen die gehandicapt of gehandicapt zijn .	-0.5829075574874878
-Iedereen in deze kamer doet dit : denk aan de laatste keer dat je een beslissing moest nemen waar je je zorgen over maakte om het juiste te doen , waar je je afvroeg : `` Wat moet ik doen ? ''	-0.3589187562465668
-Je hebt een drievoudige vijand - de wereld , het vlees , en de duivel ... Laten we eens kijken naar deze drie resistente vijanden ... '' [ Lees meer ] Fellowship ... Flutter by Butterfly Next ... Thanksgiving ... Do the Right Thing `` Voor de christen , elke dag zou Thanksgiving Dag moeten zijn .	-0.3439731299877167
-Het is niet genoeg om iets te doen : we moeten ook de juiste dingen doen , en het is nog belangrijker om te weten hoe je niets moet doen , wanneer wetgeving niet de juiste oplossing is voor de problemen .	-0.36340025067329407
-Zoals de heer Woltjer weet , zijn wij een werkgroep .... geeft de heer Aigner mij een droeve blik ............................................................................................................	-0.21106478571891785
-Weet je , je bent nu oud genoeg om te weten dat mensen soms dingen doen waarvan ze weten dat ze fout zijn , maar ze doen ze toch , want het juiste doen kan te pijnlijk zijn .	-0.36312270164489746
-Het betekent een fout maken of in een fout vallen . James schildert een beeld van een persoon die probeert het juiste te doen en toch , misschien onbedoeld , een zonde pleegt . Wat is het gevolg ?	-0.3916260898113251
-Dus als we precies de juiste prikkels vinden , zullen ze het juiste doen -- zoals ik al zei -- egoïstisch , en als we met de juiste regels komen , zullen ze ons niet over een klif drijven .	-0.3537719249725342
-Ik zeg u nu dat als we niet het juiste doen , de verkiezingen in juni zullen plaatsvinden ten gunste van de extreme partijen die niet voor de EU of de EU-instellingen zijn .	-0.49153050780296326
-Ik weet zeker dat jij en de andere ouders ... jouw kinderen goede familiewaarden hebben gegeven ... zodat ze weten wat goed is en wat er mis is , zodat ze ongeacht wat ze luisteren , het juiste zullen doen .	-0.45487114787101746
-Maar degene die moed in zijn hart blijft verzamelen om vooruitgang te boeken , ja , zichzelf dwingen om het juiste te doen , om de wet van God in zijn hart te krijgen , vindt het al snel gemakkelijker om het juiste te doen .	-0.3608277142047882
-Garriga PoUedo ( PPE ) . - ( ES ) Mijnheer de Voorzitter , we beseffen allemaal dat de Europese Unie zich in een cruciaal stadium bevindt en dat als we het juiste doen we een ongekende ruimte van vrede , democratie , vrijheid en economische ontwikkeling kunnen creëren .	-0.276185542345047
-Maar met ongeveer 370 organisaties wereldwijd die Nvidia-technologie op een of andere manier gebruiken om autonome voertuigen te ontwikkelen , moest Nvidia het juiste doen , wat , volgens CEO en oprichter Jensen Huang , goede ingenieurs zijn en het ecosysteem opnieuw in gebruik nemen .	-0.3906022012233734
-Omdat ik dacht dat ik het juiste moest doen , en je moest helpen je geheim te bewaren , zodat misschien , op een bepaald moment in de toekomst , je me zou helpen , en me iets zou vertellen wat ik aan mijn superieuren kan vertellen .	-0.4575226604938507
-U hebt geprobeerd het juiste te doen bij het omgaan met een monopolie , BSkyB , maar in feite , met Setanta , hebt u een situatie gecreëerd waarin mijn kiezers twee abonnementen moeten betalen om dezelfde hoeveelheid voetbal te bekijken .	-0.39029157161712646
-Het werd vorig jaar op Siggraph uitgebracht , maar het is een geweldig voorbeeld van het soort onderzoek dat ik echt leuk vind : al deze rekenkracht om dingen toe te passen die de juiste dingen doen , intuïtieve dingen , om precies te doen wat je verwacht .	-0.362012654542923
-Na een media-uitbarsting twijfelde burgemeester Boris Johnson publiekelijk aan het standpunt van de politie en legde druk op hen om het juiste te doen.Dagen voor de mars trok het leger zich terug en ging akkoord met het sturen van officieren om te marcheren en het waarborgen van ons recht op democratische meningsuiting werd gehandhaafd .	-0.5366825461387634
-`` De dringende uitdaging voor het management en het bestuur is daarom om een robuuste cultuur van integriteit en compliance op te bouwen waarin medewerkers het juiste doen , omdat het het juiste is om te doen en niet alleen omdat een bedrijfsgedragscode zegt dat ze dat moeten doen . ''	-0.3997715413570404
-Ik heb veel tijd gehad om na te denken over wat er aan de hand was , en ik weet , Brooke , dat ik niet altijd het juiste doe of altijd de juiste dingen zeg , maar ik ben bereid om dingen anders te doen .	-0.335718035697937
-En als jullie het goede doen en rechtvaardig zijn : voorwaar , Allah is Vergevensgezind , Meest Barmhartig .	-0.43726441264152527
-Geen item zal worden geaccepteerd voor terugkeer als het niet vergezeld gaat van een geldig Return Request Form . We willen het juiste doen voor u , maar we moeten precies weten wat het probleem is voordat we ons kunnen binden aan een specifieke manier van handelen .	-0.4473264813423157
-Weinig realiseerde de predikant zich dat door zijn onvermogen om zijn geloof te verdedigen en voor de Bijbel op te komen als Gods zekere Woord van Waarheid hij hen had geholpen om het juiste te doen nu meer dan hij had in alle jaren dat hij diende als hun pastor in Babylon de Grote .	-0.34697574377059937
-Meer recentelijk , Harvey Cushing , die echt neurochirurgie ontwikkelde zoals we het kennen , die het veranderde van een gebied van de geneeskunde dat een meerderheid van de sterfgevallen als gevolg van chirurgie naar een waarin er een hoopvolle vooruitzichten , hij was zeer bewust dat hij was niet altijd van plan om het juiste te doen .	-0.4523147940635681
-Daarom ben ik van mening dat het niet toestaan dat de lidstaten dit instrument gebruiken om het juiste te doen met betrekking tot veel landbouwers die niet in staat zijn om één cent te ontvangen in het kader van de eerste pijler van het GLB , of het beperken van hun vermogen om dat te doen , een volstrekt ongepaste positie is voor het Parlement om te nemen .	-0.4934173822402954
-Ik ben hier vandaag een beetje een zwarte zwaan , maar ik hoop dat de mannen die hier vandaag niet aanwezig zijn , bij de stemming het juiste zullen doen en het beleid van dit verslag een paar stappen verder zullen ontwikkelen - en ik hoop dat zij dat ook in de toekomst zullen doen .	-0.3532586395740509
-Dus wat we hebben kunnen doen is de macht en de invloed van de enige echt transnationale instelling in de wereldwijde toeleveringsketen , die van het multinational bedrijf , te benutten en hen het juiste te laten doen , hen die macht ten goede te laten gebruiken , de belangrijkste publieke goederen te leveren .	-0.5162902474403381
-Deze keer rond , zal Europa doen het juiste ding ? 17 januari 2011 Frankfurter Allgemeine Zeitung ( Frankfurt ) 106 EU en Tunesië : Geef Ben Ali de Loekasjenko behandeling Gezien het harde optreden in Tunesië , zou de EU hetzelfde beleid van `` slimme sancties '' moeten toepassen dat enige invloed had op het regime van Alexander Loekasjenko in Belarus in 2006 , dringt politiek analist José Ignacio Torreblanca aan .	-0.3131501078605652
+Doe het juiste.
+Doe wat juist is.
+Doe het juiste ding.
+Doe wat juist is."
+Doe het juiste, Joey.
+Doe dan het juiste.
+Doe het juiste, Oswald.
+Doe gewoon het juiste.
+Doe het juiste, Fez.
+Doe gewoon het juiste.
+Doe dan het juiste.
+Je zult het juiste doen.
+Ja, het juiste doen?
+- "Doe het juiste."
+Doe het juiste, Stephen.
+Doe het juiste, maatje.
+Doe het juiste, Frank.
+Doe het juiste, Mark.
+Hij zal het juiste doen.
+Je zult het juiste doen.
+Eindelijk het juiste doen!
+Je doet het juiste.
+Ze zal het juiste doen.
+En het juiste doen?
+Laten we het juiste doen.
+Doe het juiste... voor één keer.
+Doe dan het juiste, begrepen?
+Je moet het juiste doen.
+Soms doen mensen het juiste.
+En je doet het juiste.
+Heb ik het juiste gedaan?
+Ik probeer het juiste te doen.
+Heeft Daniel het juiste gedaan?
+Ik doe altijd het juiste.
+Doe wat juist is, laat Mohammed zien.
+Doe gewoon het juiste, Art.
+Ik doe altijd het juiste.
+Je kunt het juiste doen.
+En ik doe altijd het juiste.
+Heb ik het juiste gedaan, Gideon?
+Ik probeer het juiste te doen...
+Dus je gaat het juiste doen?
+Je wilt het juiste doen.
+Ik probeer gewoon het juiste te doen.
+Of heb ik het juiste gedaan?
+Ik probeer het juiste te doen.
+Ik weet zeker dat je het juiste zult doen.
+We gaan het juiste doen.
+Je zei dat je het juiste zou doen.
+De kracht om het juiste te doen.
+Ik besloot het juiste te doen.
+Ik denk dat je het juiste zult doen.
+Je overtuigen om het juiste te doen.
+Ik moet het juiste doen.
+Hij wil het juiste doen.
+Ik moest het juiste doen.
+Ik probeer het juiste te doen.
+Je probeerde het juiste te doen?
+Ik wil het juiste doen.
+Ik wil het juiste doen.
+Hij wil het juiste doen.
+Ik weet zeker dat hij het juiste zal doen.
+Je kunt nog steeds het juiste doen.
+Je moet het juiste doen.
+Je moet het juiste doen.
+Maar we moeten het juiste doen.
+Oké, ik zal het juiste doen.
+Jack zal het juiste doen.
+Ik wil het juiste doen.
+We zijn Smurfen, we doen het juiste.
+Ik wil het juiste doen.
+"Waarom doe je niet het juiste...
+Ik probeer het juiste te doen.
+Ik dacht dat hij het juiste zou doen.
+Je wilt het juiste doen.
+Ik wil gewoon het juiste doen.
+Ik weet zeker dat je het juiste zult doen.
+Maar je kunt het juiste doen.
+Ik wil gewoon het juiste doen.
+Ik wil nog steeds het juiste doen.
+Maar als je niet het juiste kunt doen,
+Ik wil het juiste doen.
+Ik denk dat ik het juiste heb gedaan.
+Byz Lats wilde het juiste doen.
+Probeer niet het juiste te doen.
+Ik wist dat je het juiste zou doen, broer.
+Doe het juiste en maak er een eind aan.
+Ik heb iemand nodig om het juiste te doen.
+Zullen die kerels altijd het juiste doen?
+Ga je het juiste doen?
+Je probeert altijd het juiste te doen.
+Om het juiste te doen, om het goed te maken.
+Ze probeerden het juiste te doen.
+We probeerden het juiste te doen.
+Help me alsjeblieft het juiste te doen.
+Ik had plannen om het juiste te doen.
+En ik vertrouw erop dat je het juiste zult doen.
+Ik weet dat je het juiste zult doen.
+Omdat ik het juiste wil doen?
+Nee, maar je moet het juiste doen.
+Ik blijf proberen het juiste te doen.
+Heb ik het juiste gedaan, Ames?
+Ik probeerde het juiste te doen.
+- Hoe durf je het juiste te doen!
+Heb ik het juiste gedaan?
+We moeten het juiste doen.
+Hij probeerde het juiste te doen.
+Hij voedde haar op om het juiste te doen.
+Daarom ga je het juiste doen.
+Ik ga het juiste doen.
+- Ik probeerde het juiste te doen.
+Er is nog tijd om het juiste te doen.
+Soms is het belangrijk om het juiste te doen.
+Waarom kun je niet gewoon het juiste doen?
+Zet de politiek opzij en doe wat juist is.
+Doe het juiste voor je familie.
+Ik vertrouwde hem om het juiste te doen.
+Ik hoopte dat je het juiste zou doen.
+Omdat ik het juiste wilde doen.
+Ik probeer het juiste te doen.
+Ik probeer gewoon het juiste te doen.
+Doe het juiste en red haar leven.
+Ik zal het juiste voor je doen.
+- We proberen het juiste te doen.
+We moeten het juiste doen.
+Doe het juiste en kom vanavond naar voren.
+Je doet altijd het juiste... soort van.
+Ik probeerde het juiste te doen.
+Soms is het moeilijk om het juiste te doen.
+Hij gaat hier het juiste aan doen.
+Hij probeert gewoon het juiste te doen.
+Ik weet dat je het juiste gaat doen.
+Je kunt ervoor kiezen om het juiste te doen.
+Maar nu moet ik het juiste doen.
+Ik probeer het juiste te doen.
+Ik vertrouw erop dat je het juiste doet.
+Ik juich je verlangen toe om het juiste te doen.
+Ik wil gewoon het juiste doen.
+Ik weet dat je dit keer het juiste zult doen.
+Het is nooit te laat om het juiste te doen.
+Omdat je altijd het juiste doet.
+Heb ik het juiste gedaan door hier te komen?
+Het is nog niet te laat om het juiste te doen.
+Ik probeer gewoon het juiste te doen.
+Om te zeggen dat hij het juiste wil doen?
+Je zoekt mensen om het juiste te doen.
+Ik probeerde gewoon het juiste te doen.
+Zal hij altijd het juiste doen?
+Ik vraag je om het juiste te doen.
+Ik probeerde het juiste te doen, en dat deed ik niet.
+Ik wilde geloven en het juiste doen.
+- Ik wil gewoon het juiste doen.
+Hij moest proberen het juiste te doen.
+Ik probeer gewoon het juiste te doen.
+Oh, dus wat, u Mr. Doe het juiste ding?
+En ik weet dat je het juiste gaat doen.
+Je doet of het juiste, of je doet het niet.
+Ik wil het juiste doen voor haar.
+Je zegt altijd dat ik het juiste moet doen.
+Heb ik het juiste gedaan met mijn leven?
+Je kunt iemand niet dwingen om het juiste te doen.
+Je oma wil alleen maar het juiste doen.
+En we kunnen nu het juiste doen.
+En dat ik het juiste moet doen.
+Help me het juiste te doen, Don Maroni.
+Je hebt je kans gemist om het juiste te doen.
+Je probeerde gewoon het juiste te doen.
+Ik moet gewoon het juiste doen.
+Omdat je wist dat Sterling het juiste zou doen.
+We zijn achterover gebogen om het juiste te doen.
+Voor een keer besloot ik het juiste te doen.
+- We proberen altijd het juiste te doen.
+Ik dacht dat hij het juiste zou doen.
+Voor één keer in je leven, doe het juiste.
+Ik probeer het juiste te doen.
+Ik kan rekenen op het juiste doen.
+Om het juiste te doen of om het makkelijke te doen?
+Je hebt een kleine kans om het juiste te doen.
+Nou, dat is iets anders, we doen nooit het juiste.
+Je hebt eindelijk de kans om het juiste te doen.
+We leggen het uit, laten ze het juiste doen.
+Altijd zo loyaal, altijd proberen om het juiste te doen.
+Maar ik wil dat je nu het juiste doet.
+Ik wil gewoon het juiste doen, weet je?
+Ik wil dat we allebei het juiste doen, Curtis.
+Misschien is dat het probleem. Je doet altijd het juiste.
+Nee, dat hoeft niet, oké?
+Het punt is, je moet het juiste doen.
+Ja, ik weet zeker dat hij nu het juiste zal doen.
+Je doet het juiste of ik vermoord je zelf.
+Het punt is, soms moet je het juiste doen,
+Naomi, Coop probeert gewoon het juiste te doen.
+Hij laat me de juiste dingen doen.
+Maar ik moet het juiste aan je doen.
+Probeerde het juiste te doen en werd zelf gedood.
+Doe het juiste, maar weet je wat dat is?
+Je hebt een kans om het juiste te doen, Adrian.
+Mijn hele leven probeer ik het juiste te doen.
+Dan weet ik dat jullie allebei het juiste doen.
+Mijn moeder zei dat ik altijd het juiste moest doen.
+Je hebt nog steeds de kans om het juiste te doen.
+Doe het juiste, weet je wat je bent?
+Lake was, ze... ze probeerde het juiste te doen.
+Je bent een slimme jongen, je zult het juiste doen.
+Cliff, alsjeblieft, doe het juiste en laat hem gaan.
+Ik wacht tot je het juiste doet.
+Soms moet je je opofferen om het juiste te doen.
+Hij probeerde tenminste het juiste te doen.
+Ik weet dat je het juiste wilt doen.
+Kapitein, gaat u het juiste doen?
+Omdat je probeert het juiste te doen, oké?
+Walter probeert het juiste te doen door zijn familie.
+Nee, maar ik vertrouwde hem om het juiste te doen.
+Ik zeg niet dat mensen denken dat ze het juiste doen.
+Maar ik moet het juiste doen door jou.
+Wat als ze beslissen dat hij niet het juiste deed?
+Sally, het is tijd voor mij om het juiste te doen.
+Ik probeer hier het juiste te doen, oké?
+Heb ik het juiste gedaan, Colin met ons meeslepen?
+Zac, alsjeblieft, je moet gewoon het juiste doen.
+"Je bent nooit verkeerd om het juiste te doen."
+Ik dring er bij de rechtbank op aan om het juiste te doen.
+- Ik wil het juiste doen, toch?
+Marcus, je moet echt het juiste doen.
+Kleine Miss Quaker Twee Schoenen gaat het juiste doen.
+Doe alsjeblieft het juiste en loop nu weg.
+Hij probeerde het juiste te doen.
+Je gaf ze elke kans om het juiste te doen, senator.
+Ik wilde het juiste doen voor hen allemaal.
+Dan kan ik tenminste het juiste doen.
+Waarschijnlijk ontdekte hij dat hij probeerde... het juiste te doen.
+Alsof ze een agent was die het juiste zou doen.
+Ik probeer gewoon het juiste te doen, agent Gibbs.
+Ik vertrouw erop dat je daarmee het juiste doet.
+Hij wilde het juiste doen, hij liet zich meeslepen...
+En ik ben blij dat je het juiste wilt doen.
+Niemand zal me ooit vertellen dat ik niet het juiste heb gedaan.
+Maar ik probeer het juiste te doen.
+Het gaat erom dat je nu het juiste probeert te doen.
+Hoe hij gewoon een man was die het juiste probeerde te doen.
+Nu is je kans om het juiste te doen voor dit team.
+Hoeveel mensen moeten sterven voordat je het juiste doet?
+Je moet een man zijn en het juiste doen.
+Niet alleen om met mij te praten, maar om het juiste te doen.
+Als je twijfelt, doe dan het juiste.
+Het soort dat het juiste zou doen, hoe gevaarlijk ook.
+Het is nog niet te laat om het juiste te doen.
+Ik vraag je nog één keer om het juiste te doen.
+Dit is een kans voor je om het juiste te doen.
+We kunnen stoppen met negen miljard als we de juiste dingen doen.
+Ik probeer gewoon het juiste te doen.
+Je moet altijd het juiste doen, toch Michael?
+Ben je dan te bang om op te staan en het juiste te doen?
+Maar ik weet dat je gewoon het juiste probeerde te doen.
+Ik wil het juiste doen, maar niet zo goed.
+Ik maakte me altijd zorgen om het juiste te doen.
+De fabrikanten hebben deze wetgeving nodig om hen het juiste te laten doen.
+Ik deed het juiste, vertelde de garage dat ik haar tas had.
+We moeten het juiste doen en aan hem denken.
+Je moet het juiste doen voor jezelf, voor je dochter.
+Doe het juiste voor mij, voor jezelf en voor het land.
+Deze keer ga ik het juiste doen.
+Ik weet dat je het juiste probeert te doen.
+Doe gewoon het juiste en geef deze zaak aan een andere rechter.
+Senator, niet beledigend bedoeld, maar als je het juiste wilt doen,
+Het zou moeilijk zijn om mensen te overtuigen om het juiste te doen.
+Als je het juiste doet, leef je nog lang en gelukkig.
+Soms kan een man niet winnen.
+Als we niet het juiste doen, maakt het de dingen erger voor je.
+Je moet nu het juiste doen.
+Ik woog de kans op het beste om het juiste te doen.
+Hij probeerde gewoon de kost te verdienen en het juiste te doen.
+Maar ik ga niet eeuwig wachten tot je het juiste doet.
+Ja, er zal een plek zijn, want sommige mensen zullen het juiste doen.
+Dus, eh, ik ben officieel van plan om te proberen het juiste te doen.
+Luister, mijn hele leven heb ik geprobeerd het juiste te doen, weet je.
+Maar Kanan deed iets vreselijk verkeerd terwijl hij probeerde het juiste te doen.
+Als we hem bij haar weghalen, weet ik dat hij het juiste zal doen.
+Birma geeft die leiders de kans om opnieuw het juiste te doen.
+Als hij dat doet, kan ik er dan op rekenen dat je het juiste doet?
+Jim en ik gaan het juiste doen door jou, Eric.
+Ik heb mijn hele leven geleefd... en geloofde dat de politie het juiste kon doen.
+Ik probeerde het juiste te doen, voor haar en onze dochter.
+Hoe moeilijk het ook was om de waarheid te vertellen, je hebt het juiste gedaan.
+Samen met anderen wil ik het juiste doen en het promoten.
+Ik bad regelmatig om begeleiding dat ik altijd het juiste zou doen.
+Ik zweer het, ik probeerde gewoon het juiste te doen, en ik...
+Het lijkt echt moeilijk om de consument het juiste te laten doen.
+Hou op met die onzin en geef je je erfenis.
+Dit komt omdat kinderen niet van nature geneigd zijn om het juiste te doen.
+En ik weet dat ik erop kan vertrouwen dat je het juiste doet.
+Soms moet je het juiste doen: de feiten onder ogen zien en accepteren.
+Ik wacht niet op de wet om dit keer het juiste te doen.
+Heb je ooit het juiste gedaan en je er nog steeds schuldig over gevoeld?
+Er zal een grote tip voor je zijn als je de juiste dingen doet.
+Wanneer zou je lijden voor het nemen van een beslissing om het juiste te doen?
+Nee, we moeten haar een kans geven om het juiste te doen.
+Ik heb mijn hele leven hard gewerkt om het juiste te doen.
+Ik heb me altijd afgevraagd waarom je zo je best deed om het juiste te doen.
+Als ik geloof dat ik onschuldig ben, moet ik het juiste doen.
+Wat zegt dat? "Doe het juiste en het komt goed met me."
+Ik denk dat je moet stoppen met mijn tijd te verspillen en het juiste doen.
+Ik moet erop vertrouwen dat je het juiste doet.
+Kelso, man, dit is wat je krijgt als je probeert het juiste te doen.
+Dus, grote broer, ik geef je een kans om het juiste te doen.
+Deze kogel zal me er altijd aan herinneren om het juiste te doen bij mijn Deborah.
+Dus ik wil gewoon dat je het juiste doet en de waarheid vertelt.
+Ze brengen je naar de juiste plek en laten je het juiste doen.
+Kunnen we nu stoppen met elkaar de schuld te geven en het juiste doen?
+Ik hoopte dat je ons dilemma zou zien en het juiste zou doen.
+Met al haar mysteries en misstappen, probeert ze altijd het juiste te doen.
+Ik wil gewoon het juiste doen en het aan jou teruggeven.
+Je zou hier het juiste kunnen doen, of je zou een ijsbeer kunnen doden.
+Denk je dat je een stel politici kunt overtuigen om het juiste te doen?
+Toen we elkaar voor het eerst ontmoetten, dacht ik dat je echt het juiste wilde doen.
+Neem wat troost in het feit dat je probeert om het juiste te doen
+Het juiste willen doen op de juiste manier om de juiste redenen.
+Ik nam zijn naam aan, maar... ik probeerde er het juiste mee te doen.
+Jamie, ik weet dat je het juiste wilde doen, maar... je had geen dienst.
+Deze religies moesten hun aanhangers leren het juiste te doen, maar faalden.
+Weet je, af en toe wil ik zelfs het juiste doen.
+Als je haar niet kunt redden, doe dan het juiste.
+Na al die tijd besluit een burger om het juiste te doen.
+Je bent dit niet alleen aan Alice verschuldigd, maar ook aan jezelf om het juiste te doen.
+Trouwens, je doet het juiste om de verkeerde redenen, niemand geeft er iets om.
+Hij had de kans om het juiste te doen.
+Ik vraag je niet om me aardig te vinden, maar om het juiste te doen.
+Omdat ze dapper is, omdat ze aardig is, en ze probeert altijd het juiste te doen.
+En op welk moment wist je dat je het juiste zou doen?
+We probeerden gewoon de envelop te duwen... om het juiste te doen voor het bedrijf.
+Ik ben het zat om als een eikel behandeld te worden omdat ik het juiste probeerde te doen.
+Ik wil je bedanken dat je me dwong om het juiste te doen.
+Ik vertrouw erop dat hij het juiste doet en ik hoop dat hij dat zal doen.
+Ik bedoel, heb ik het juiste gedaan of heb ik het verkeerde gedaan?
+Ik respecteer je wens om het juiste te doen, maar helaas heb je een overeenkomst getekend.
+Dus, ik wil dat je naar voren komt en het juiste doet voor haar.
+Sommigen zouden de redder een held noemen, maar hij zei: "Je moet het juiste doen.
+- Doe het juiste, jongens, en biefstuk zal niet het enige op het menu zijn.
+Kunnen we niet een beetje meer van het verkeerde doen voordat we het juiste doen?
+Als we de juiste dingen doen, kunnen we de risico's voor de samenleving in de toekomst verminderen.
+Als je niet op iemand kunt rekenen om het juiste te doen, geef ze dan niet de keuze.
+Als je het juiste doet als bedrijf is er niets te vrezen van ons.
+Ik heb volledig vertrouwen in je vermogen om hier het juiste te doen, Darius.
+Ik weet waarom je boos bent, maar ik denk dat ze probeerde het juiste te doen.
+Dus... ik probeer het juiste te doen, en ik heb het gevoel... dat ik dit neem.
+Ik doe m'n best om mensen te helpen.
+Ik probeer altijd het juiste te doen, altijd de behoeften van anderen boven die van mij stellen.
+Een dwaas, een crimineel... misschien ben ik net als iedereen die het juiste probeert te doen.
+Wat als ze te verbrand zijn om het juiste te doen?
+Want voor al zijn onvolkomenheden, streeft het ernaar om het juiste te doen... om mensen te beschermen.
+En ik zal ook niet de laatste zijn, tenzij je het juiste doet en de waarheid vertelt.
+Door altijd zijn voorbeeld te volgen, zullen we het juiste doen als we geconfronteerd worden met verleiding.
+- Dan weet je hoe het is om ze te leren het juiste te doen.
+Nadine helpen betekent de wet overtreden.
+Wil je meegaan, of blijf je hier en doe je het juiste?
+Dit is je kans om het juiste te doen en tegelijkertijd je geweten te zuiveren.
+Maar je moet het juiste doen, anders moet ik het juiste doen.
+Als je hier het juiste doet, beloof ik dat ik een goed woordje doe bij de OvJ.
+En geloof me, hij wilde het juiste doen, hij wist gewoon niet wat dat was.
+Ik twijfel er niet aan dat de Raad van Bestuur van de ECB het juiste zal doen.
+Hij zegt dat hij zo lang als hij kan wacht tot de Batman het juiste doet.
+Je kunt me je woord geven als Henry Reagan's kleindochter dat je het juiste gaat doen.
+Ronnie, als je zwanger bent, zal Mike het juiste doen.
+We rekenen erop dat jij onze ogen en oren bent, om het juiste te doen.
+Ik loog tegen hem om hem het juiste te laten doen en zijn contract te respecteren.
+Als ze het niet zou vertellen, als ze nooit het juiste zou doen, waarom zou ze haar dan knock-out slaan?
+Hij lijkt het juiste te doen... maar nu zit hij in een hoek en is wanhopig.
+Als je het juiste doet om de verkeerde redenen... wordt het werk corrupt, onzuiver en uiteindelijk zelfvernietigend.
+Ik probeerde alleen maar te helpen, ik probeerde gewoon het juiste te doen.
+Ik ga het juiste doen, dit meisje bellen, en haar laten weten dat ik een relatie heb.
+Laten we het juiste doen en hun familie controleren, om zeker te zijn dat ze het volhouden, oké?
+Ik ben een agent, ik heb niet veel geld... maar ik wil het juiste doen.
+Maar de tijd komt, we weten dat we iets hebben, en je krijgt een telefoontje. Ga je het juiste doen?
+En hoewel ik weet dat haar aanpak soms vervelend kan zijn, probeert ze het juiste te doen.
+Ik probeer het juiste te doen, hier en daar, en ik zou echt een beetje steun waarderen.
+In de politiek is het belangrijk om de juiste dingen te doen, want dat is wat ons democratische legitimiteit geeft.
+Lloyd, het spijt me hoe dit allemaal is gegaan, maar het is tijd dat je het juiste doet.
+Hoewel David van God hield, wist hij hoe moeilijk het soms kon zijn om het juiste te doen.
+Het probleem is dat engelen altijd willen dat je het juiste doet, en het juiste doen wordt je dood.
+Het feit is, je moeder en ik probeerden gewoon het juiste te doen.
+Wat als ze te verbrand zijn om het juiste te doen?
+Maar als ik echt om ze geef, moet ik het juiste doen.
+- Maar je fantasieën drijven je altijd om het juiste te doen op een educatieve en vermakelijke manier.
+Toen alle mannen van mijn familie stierven, dacht ik eraan om mee te doen aan de oorlog en het juiste te doen.
+Laat me zeggen dat ik het gevoel heb dat je op het juiste moment het juiste doet.
+En nogmaals hoop ik echt dat iedereen het juiste zal doen en hier vrijdag zal zijn.
+Dit is wat er gebeurt als je probeert het juiste te doen.
+Ik wil het juiste doen, maar soms is het moeilijk om te weten wat het juiste is.
+- En je probeert het juiste te doen... verandert niets aan het feit dat je je woord gaf.
+Je moet hierheen komen, met hem praten, kijken of hij het juiste kan doen.
+Ik kwam hier om mijn mensen te overtuigen het juiste te doen.
+Je moet niet toekijken en iets vreselijks laten gebeuren omdat je te bang was om het juiste te doen.
+Drew en Elena zijn nu onder jouw invloed en ik verwacht dat je het juiste zult doen.
+Dit is een geweldige, geweldige oproep tot wapens om het juiste te doen voor onszelf en voor de toekomst.
+Stuur je wortels naar beneden... [Lees meer] Thanksgiving...Doe het juiste ding voor de christen, elke dag zou Thanksgiving Dag moeten zijn.
+Ik denk dat ze een cowboy is en ik vertrouw haar niet om het juiste te doen.
+Daarom moet je slim zijn en het juiste doen... zodat het niet slecht afloopt voor jou.
+Als aanklager kom je in een traditie waarin je hier bent om het juiste te doen.
+Het land heeft een regering die echt het juiste wil doen, en dat moeten we erkennen.
+Mijn hele leven heb ik altijd geprobeerd het juiste te doen.
+Hoe dan ook, ik weet dat ze het juiste zal doen, maar het was leuk je te ontmoeten.
+Kyle... ik weet dat je het juiste wilt doen... maar Jessie en haar vader zijn nu voortvluchtigen.
+Alles wat Danny voor zijn hele leven had gewerkt was gewoon wegspoelen, omdat Chris het juiste moet doen.
+In de VS heb je het vermogen en de kennis om het juiste te doen.
+Dus "vecht tegen de macht," "met de man neer," "doe het juiste." Die woorden kwamen nooit uit je mond?
+En de morele wil wordt ondermijnd door een onophoudelijke oproep tot prikkels die ons verlangen om het juiste te doen vernietigen.
+Het lijkt erop dat om de laatste tijd het juiste te doen, er al deze leugens en geheimen aan verbonden moeten zijn.
+Het kan me niet schelen welke angst je hebt, het lijkt me dat je moet proberen het juiste te doen.
+Ze wist het niet; ze had geen doel dan het juiste te doen, wat het verhaal des te krachtiger maakt.
+Je hoeft jezelf niet te veroordelen als je niet onmiddellijk het juiste hebt gedaan, want je bent eigenlijk altijd onschuldig.
+De reden waarom ik het verkeerde deed was omdat ik probeerde je het juiste te laten doen.
+En ik wil je laten weten dat... ik het juiste wil doen voor jou en de baby.
+Geef haar wat van die vieze lul, je weet dat je haar neukt en doe dan het juiste, hier is iets...
+Weet je, niet iedereen zal het eens zijn met jouw beslissing om het terug te zetten, maar je hebt het juiste gedaan.
+En we moeten de juiste dingen doen... om de toekomst te krijgen die het beste is voor ons allemaal.
+Je doet niet altijd het juiste, maar het lijkt erop dat je altijd het juiste probeert te doen, en dat is iets.
+Ik geloof echt dat die oude Truman lijn, dat als je het Amerikaanse volk de feiten geeft, ze het juiste zullen doen.
+En ik denk dat als je een kans hebt... om het juiste te doen, je het moet doen.
+Mijn collega's geloven dat ik mijn tijd met u verspil, maar ik geloof dat u het juiste wilt doen.
+Ezra maakt haar zwanger, wil het juiste doen, en dan komt mijn moeder opdagen met haar magische handtasjes.
+In plaats van het echte pistool te produceren dat we niet hebben... waarom produceren we niet de nepgetuigen die we doen?
+Ik denk dat als je dat weegt tegen de korte voldoening van 'uit de lucht blazen', je het juiste zal doen.
+Ik hoop dat mijn land het juiste zal doen en zal doen wat nodig is, maar dit is geen logische verdeling.
+Ik weet dat het moeilijk moet zijn geweest, maar je hebt het juiste gedaan.
+Hij was op de verkeerde plaats op het verkeerde moment, en nu lijdt hij omdat hij het juiste probeerde te doen.
+We kunnen hem om wijsheid vragen om te zeggen en het juiste te doen, en voor zijn geest om ons te onderhouden.
+Ja, man, het is gewoon klote als je probeert het juiste te doen... en dan schreeuwt ze tegen je omdat je haar kat hebt vermoord.
+Care2 Stands With: Humanitairen, dierenliefhebbers, feministen, rabbels, natuurliefhebbers, creatieven, de van nature nieuwsgierige, en mensen die echt graag het juiste doen.
+Je kunt het juiste doen door je dode kind of je kunt het juiste doen door de twee levende.
+Een "christelijk" is ofwel geboren uit "christelijke" ouders, ofwel iemand die moe is om "het juiste te doen" (wat dat ook is).
+Dit is allemaal met mij gebeurd, en ik doe mijn best om het juiste te doen, en alles om me heen wordt steeds erger.
+Het is nooit te laat om het juiste te doen. 20 miljoen werklozen: het heeft eindelijk het goede geweten van de eurocraten aangetast.
+Het is nooit te laat om het juiste te doen. 20 miljoen werklozen: het heeft eindelijk het goede geweten van de eurocraten aangetast.
+Het EESC is van mening dat deze mededeling al lang te laat is, maar is verheugd dat het nooit te laat is om het juiste te doen.
+Nee, mijn kinderen gaan niet dood omdat een oude lul te veel haat en trots heeft om het juiste te doen.
+Waarom moet de instelling geschreeuwd en voor het Europees Hof geschopt worden om het juiste te doen?
+Elke keer als je weigert iemand te helpen als je niet het juiste doet... zul je het gevoel hebben dat je verdrinkt.
+Want ik hou echt van haar, man... en als je één gram fatsoen hebt, zul je het juiste doen en haar laten gaan.
+Ik probeerde iemand in leven te houden, in plaats van ze naar hun dood te sturen.
+God, hij was van zijn gezicht op God weet wat, en hij zei dat hij had gesproken met een priester, moest doen wat juist was.
+Ik kan je medewerking of het gebruik van je lab niet dwingen, dus vraag ik je om jezelf te dwingen om het juiste te doen.
+Geweten is wat mijn lieve moeder en vader, nu 95, dwong om altijd te streven naar de juiste dingen als trouwe katholieken die vier kinderen opvoeden.
+Ik waardeer de inspanningen die de rapporteur en de Commissie hebben geleverd om het juiste te doen op het gebied van grensoverschrijdende samenwerking.
+Ja, nu zijn we bereid om je niet te dwingen om die recensie te schrijven als je bereid bent om het juiste te doen en
+Ik probeer het juiste te doen en bij hem uit de buurt te blijven... en dan boem, daar is hij.
+Dus je kende hem goed genoeg om te weten dat hij niet bij ons zou zijn geweest als we niet konden worden vertrouwd om het juiste te doen.
+We winnen niet af en toe... we doen soms niet het juiste... we doen altijd het juiste ding.
+zeer moeilijke omstandigheden en tegen je eigen bestwil dat Rusty Beck het soort persoon was die dapper genoeg was om het juiste te doen.
+Ik weet dat president Martinez het juiste wil doen voor zijn land, en dat doen wij allemaal, maar het medisch bewijs is overweldigend duidelijk.
+Let nu op, Coral, want dit is een goede les van het onvermogen van blanken om verantwoordelijkheid te nemen voor hun daden - en het juiste te doen.
+De andere reden is dat als we het juiste doen, dan gaan we een hoop rijkdom creëren - en we gaan veel banen creëren.
+Het is tijd voor de vicepresident om het juiste te doen en een einde te maken aan onze nationale onzekerheid. Ik denk dat het Amerikaanse volk klaar is om verder te gaan.
+Nog niet zo lang geleden zei Obama dat het heel belangrijk was om het juiste te doen, wat natuurlijk nuttig is, wat we ook zouden denken over klimaatverandering.
+Ik denk dat je dat wel weet, daarom weet ik diep van binnen dat je het juiste wilt doen en ze hem naar een ziekenhuis wilt laten brengen.
+Hoewel de meeste mensen willen doen het juiste ding en uw schade te compenseren, is het zelden aan de persoon die de verwonding veroorzaakt.
+En ik ben maar een klein dorpsmeisje, dat probeert het juiste te doen, wat elk Amerikaans meisje zou doen in het gezicht van het kwaad, en hoe dan ook...
+Maar zoals David Cameron van het Verenigd Koninkrijk een maand geleden zei toen hij het over polio had: "Er is nooit een verkeerd moment om het juiste te doen."
+Het is aan jou als het stopt; als je het juiste doet en zegt: "Nee... Niet in mijn naam. Ik zal niet voor je doden!
+Het spreekt voor zich dat als ik iemands idee ga stelen, waar jij absoluut geen bewijs van hebt, ik waarschijnlijk niet het juiste ga doen.
+Na verloop van tijd zal het toenemende bewustzijn van alternatieve benaderingen op basis van acceptatie van drugsgebruik door volwassenen een geheel nieuwe kans openen om de juiste dingen te doen.
+Dus, mensen, terwijl de rest van ons terug is om die klootzak Castillo te vinden, gaat een van jullie opstaan en het juiste doen.
+En dat is precies wat het zo moeilijk maakt om onbaatzuchtig het juiste te doen, vooral gezien het feit dat de Nederlander in mij opeens vooruitloopt op de dalende wijnprijzen.
+Ik ben getrouwd met een gerespecteerde cardioloog en ik probeer zo het juiste te doen... maar er is iets aan jou dat me stuurt... in de tegenovergestelde richting.
+Ik weet dat je het Felicity wilt vertellen, en geloof me, ik zou graag een tante zijn, maar je moet het juiste doen voor je zoon hier.
+Het is bijna als je rechterhand, het is niet praten met je andere hand... en je weet niet naar wie je moet luisteren omdat ze allebei het juiste willen doen...
+En dat is precies wat het zo moeilijk maakt om onbaatzuchtig het juiste te doen, vooral gezien het feit dat de Nederlander in mij opeens vooruitloopt op de dalende wijnprijzen.
+Als het niet goed gaat, is het eerste antwoord: laten we meer regels maken, laten we een reeks gedetailleerde procedures opzetten om ervoor te zorgen dat mensen het juiste doen.
+Want zelfs als er één procent kans op succes is en 99 procent kans op falen en gevangenis, zal hij het juiste doen en mijn geld terugkrijgen.
+Persoonlijk sterf ik liever politiek in een poging om mensen over te halen om het juiste te doen in hun eigen belang dan om politiek te overleven door mensen te misleiden tot hun eigen ondergang.
+We moeten nu echte liefde leren en het goed leren, zodat in toekomstige beproevingen, verleidelijke situaties, moeilijke beslissingen, liefde ons zal aanzetten om het juiste te doen en te verdragen.
+Ik denk dat als je met pensioen gaat in de jurykamer, je zult merken dat de aanklager dat mandaat niet heeft vervuld, en als zodanig, zul je gedwongen worden om het juiste te doen.
+Je werkt en probeert je kinderen te leren het juiste te doen, en je wilt zo trots op ze zijn als ze opkomen voor wat ze geloven dat goed is.
+Je hebt geen reden om te geloven dat ik het juiste zal doen, en als je me nu zegt te vertrekken, zul je me nooit meer zien, maar ik vraag alleen om een beetje medeleven...
+Maar ik ben zeer veeleisend geweest en ik heb tijdens sommige commissievergaderingen al gezegd dat we nu het juiste moeten doen door mensen die gehandicapt of gehandicapt zijn.
+Iedereen in deze kamer doet dit: denk aan de laatste keer dat je een beslissing moest nemen waar je je zorgen over maakte om het juiste te doen, waar je je afvroeg: "Wat moet ik doen?"
+Je hebt een drievoudige vijand - de wereld, het vlees, en de duivel...Laten we eens kijken naar deze drie resistente vijanden..." [Lees meer] Fellowship...Flutter by Butterfly Next... Thanksgiving...Do the Right Thing "Voor de christen, elke dag zou Thanksgiving Dag moeten zijn.
+Het is niet genoeg om iets te doen: we moeten ook de juiste dingen doen, en het is nog belangrijker om te weten hoe je niets moet doen, wanneer wetgeving niet de juiste oplossing is voor de problemen.
+Zoals de heer Woltjer weet, zijn wij een werkgroep.... geeft de heer Aigner mij een droeve blik.......................................................................................................................................................................................
+Weet je, je bent nu oud genoeg om te weten dat mensen soms dingen doen waarvan ze weten dat ze fout zijn, maar ze doen ze toch, want het juiste doen kan te pijnlijk zijn.
+Het betekent een fout maken of in een fout vallen. James schildert een beeld van een persoon die probeert het juiste te doen en toch, misschien onbedoeld, een zonde pleegt. Wat is het gevolg?
+Dus als we precies de juiste prikkels vinden, zullen ze het juiste doen -- zoals ik al zei -- egoïstisch, en als we met de juiste regels komen, zullen ze ons niet over een klif drijven.
+Ik zeg u nu dat als we niet het juiste doen, de verkiezingen in juni zullen plaatsvinden ten gunste van de extreme partijen die niet voor de EU of de EU-instellingen zijn.
+Ik weet zeker dat jij en de andere ouders... jouw kinderen goede familiewaarden hebben gegeven... zodat ze weten wat goed is en wat er mis is, zodat ze ongeacht wat ze luisteren, het juiste zullen doen.
+Maar degene die moed in zijn hart blijft verzamelen om verder te gaan, ja, zichzelf dwingen om het juiste te doen, om de wet van God in zijn hart te krijgen, vindt het al snel gemakkelijker om het juiste te doen.
+Garriga PoUedo (PPE). - (ES) Mijnheer de Voorzitter, we beseffen allemaal dat de Europese Unie zich in een cruciaal stadium bevindt en dat als we het juiste doen we een ongekende ruimte van vrede, democratie, vrijheid en economische ontwikkeling kunnen creëren.
+Maar met ongeveer 370 organisaties wereldwijd die Nvidia-technologie op een of andere manier gebruiken om autonome voertuigen te ontwikkelen, moest Nvidia het juiste doen, wat, volgens CEO en oprichter Jensen Huang, goede ingenieurs zijn en het ecosysteem opnieuw in gebruik nemen.
+Omdat ik dacht dat ik het juiste moest doen, en je moest helpen je geheim te bewaren, zodat misschien, op een bepaald moment in de toekomst, je me zou helpen, en me iets zou vertellen wat ik aan mijn superieuren kan vertellen.
+U hebt geprobeerd het juiste te doen bij het omgaan met een monopolie, BSkyB, maar in feite, met Setanta, hebt u een situatie gecreëerd waarin mijn kiezers twee abonnementen moeten betalen om dezelfde hoeveelheid voetbal te bekijken.
+Het werd vorig jaar op Siggraph uitgebracht, maar het is een geweldig voorbeeld van het soort onderzoek dat ik echt leuk vind: al deze rekenkracht om dingen toe te passen die de juiste dingen doen, intuïtieve dingen, om precies te doen wat je verwacht.
+Na een media-uitbarsting twijfelde burgemeester Boris Johnson publiekelijk aan het standpunt van de politie en legde druk op hen om het juiste te doen.Dagen voor de mars trok het leger zich terug en ging akkoord met het sturen van officieren om te marcheren en het waarborgen van ons recht op democratische meningsuiting werd gehandhaafd.
+"De dringende uitdaging voor het management en het bestuur is daarom om een robuuste cultuur van integriteit en compliance op te bouwen waarin medewerkers het juiste doen, omdat het het juiste is om te doen en niet alleen omdat een bedrijfsgedragscode zegt dat ze dat moeten doen."
+Ik heb veel tijd gehad om na te denken over wat er aan de hand was, en ik weet, Brooke, dat ik niet altijd het juiste doe of altijd de juiste dingen zeg, maar ik ben bereid om dingen anders te doen.
+En als jullie het goede doen en rechtvaardig zijn: voorwaar, Allah is Vergevensgezind, Meest Barmhartig.
+Geen item zal worden geaccepteerd voor terugkeer als het niet vergezeld gaat van een geldig Return Request Form. We willen het juiste doen voor u, maar we moeten precies weten wat het probleem is voordat we ons kunnen binden aan een specifieke manier van handelen.
+Weinig realiseerde de predikant zich dat door zijn onvermogen om zijn geloof te verdedigen en voor de Bijbel op te komen als Gods zekere Woord van Waarheid hij hen had geholpen om het juiste te doen nu meer dan hij had in alle jaren dat hij diende als hun pastor in Babylon de Grote.
+Meer recentelijk, Harvey Cushing, die echt neurochirurgie ontwikkelde zoals we het kennen, die het veranderde van een gebied van de geneeskunde dat een meerderheid van de sterfgevallen als gevolg van chirurgie naar een waarin er een hoopvolle vooruitzichten, hij was zeer bewust dat hij was niet altijd van plan om het juiste te doen.
+Daarom ben ik van mening dat het niet toestaan dat de lidstaten dit instrument gebruiken om het juiste te doen met betrekking tot veel landbouwers die niet in staat zijn om één cent te ontvangen in het kader van de eerste pijler van het GLB, of het beperken van hun vermogen om dat te doen, een volstrekt ongepaste positie is voor het Parlement om te nemen.
+Ik ben hier vandaag een beetje een zwarte zwaan, maar ik hoop dat de mannen die hier vandaag niet aanwezig zijn, bij de stemming het juiste zullen doen en het beleid van dit verslag een paar stappen verder zullen ontwikkelen - en ik hoop dat zij dat ook in de toekomst zullen doen.
+Dus wat we hebben kunnen doen is de macht en de invloed van de enige echt transnationale instelling in de wereldwijde toeleveringsketen, die van het multinational bedrijf, te benutten en hen het juiste te laten doen, hen die macht ten goede te laten gebruiken, de belangrijkste publieke goederen te leveren.
+Deze keer rond, zal Europa doen het juiste ding? 17 januari 2011 Frankfurter Allgemeine Zeitung (Frankfurt) 106 EU en Tunesië: Geef Ben Ali de Loekasjenko behandeling Gezien het harde optreden in Tunesië, zou de EU hetzelfde beleid van "slimme sancties" moeten toepassen dat enige invloed had op het regime van Alexander Loekasjenko in Belarus in 2006, dringt politiek analist José Ignacio Torreblanca aan.

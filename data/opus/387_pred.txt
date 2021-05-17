@@ -1,6 +1,6 @@
-Dat is net zo makkelijk als van een boomstam vallen .	-0.4880097210407257
-Het is makkelijk , zo makkelijk als van een boomstam vallen .	-0.6772751808166504
-Zoals ik al zei , net zo makkelijk als van een boomstam vallen .	-0.4602653980255127
-`` Ik kan het net zo makkelijk doen als van een boomstam vallen . ''	-0.5420457124710083
-Dit is net zo makkelijk als vallen van een logboek voor een Nederlander .	-0.4994128346443176
-Soms heb je gelijk , soms is het net zo makkelijk als van een boomstam vallen .	-0.6785727143287659
+Dat is net zo makkelijk als van een boomstam vallen.
+Het is makkelijk, zo makkelijk als van een boomstam vallen.
+Zoals ik al zei, net zo makkelijk als van een boomstam vallen.
+"Ik kan het net zo makkelijk doen als van een boomstam vallen."
+Dit is net zo makkelijk als vallen van een logboek voor een Nederlander.
+Soms heb je gelijk, soms is het net zo makkelijk als van een boomstam vallen.

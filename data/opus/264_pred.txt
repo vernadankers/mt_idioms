@@ -1,7 +1,7 @@
-- En uit je schelp komen ?	-0.5315924882888794
-Ik denk dat je uit je schild moet komen .	-0.3794898986816406
-Helen , ik zie dat je nog steeds niet uit je schelp bent gekomen .	-0.3413579761981964
-Eerlijk , lieverd , ik heb spijt van de dag dat je ooit uit je schild komt .	-0.5507932305335999
-Nou , kom uit je schild , Shelley , en vertel ons wat cool is aan jong zijn vandaag .	-0.43911731243133545
-Echt , ik denk dat als je me leert kennen , je meer uit je schild zou komen .	-0.39559173583984375
-Ze zegt dat als je je angsten onder ogen kunt zien en uit je schild komt , dan kunnen nerds uiteindelijk winnen .	-0.3727065622806549
+- En uit je schelp komen?
+Ik denk dat je uit je schild moet komen.
+Helen, ik zie dat je nog steeds niet uit je schelp bent gekomen.
+Eerlijk, lieverd, ik heb spijt van de dag dat je ooit uit je schild komt.
+Nou, kom uit je schild, Shelley, en vertel ons wat cool is aan jong zijn vandaag.
+Echt, ik denk dat als je me leert kennen, je meer uit je schild zou komen.
+Ze zegt dat als je je angsten onder ogen kunt zien en uit je schild komt, dan kunnen nerds uiteindelijk winnen.

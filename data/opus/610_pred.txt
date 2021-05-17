@@ -1,80 +1,80 @@
-- Hou vol .	-0.45675384998321533
-Hou vol .	-0.3940381109714508
-Hou vol .	-0.3940381109714508
-Hou vol .	-0.3940381109714508
-Hou vol .	-0.3940381109714508
-Gator , hou vol .	-0.4192964434623718
-Hou vol , Jenny .	-0.2071213573217392
-Hou vol , Murdock .	-0.21881428360939026
-- Hou vol .	-0.456830233335495
-Hou vol .	-0.5858327150344849
-Hou vol , jongen .	-0.38612839579582214
-- Hou vol .	-0.456830233335495
-Hou vol , maatje .	-0.3653874695301056
-Bodie , hou je taai .	-0.7372910976409912
-Hou vol , maatje .	-0.4180270731449127
-Hou vol , Wilma .	-0.2282196432352066
-Hou vol , kampioen .	-0.26356351375579834
-Hou vol , bro .	-0.46620020270347595
-Hou vol .	-0.47949570417404175
-Hou vol , Bravo 6 .	-0.2797500491142273
-Hou vol , hermano .	-0.47627195715904236
-Hou vol , Moeder Natuur .	-0.3422401547431946
-Hou je taai , matroos .	-0.42649954557418823
-Hé , hou je taai .	-0.5494291186332703
-Oké , hou vol .	-0.5374234318733215
-Hou je taai , oké ?	-0.36338984966278076
-Hou je taai , maatje .	-0.4509212374687195
-Nestor zegt : Hou je taai .	-0.5771946907043457
-Hou vol , Pip .	-0.2711963951587677
-- Hou vol , Carla .	-0.2876094579696655
-Leuk om stoer te hangen .	-0.8077836036682129
-Kom op jongens , hou je taai .	-0.5038754940032959
-Maar je moet hard hangen .	-0.7109761834144592
-We zijn finishers .	-0.8054694533348083
-Oké , hou je taai .	-0.5973661541938782
-Hou vol , maatje .	-0.3590795397758484
-Hou vol tot ze klaar is .	-0.3700711131095886
-Hou nog even vol .	-0.5729045271873474
-Hou je taai .	-0.6536009907722473
-Dus we moeten taai zijn .	-0.7884199619293213
-Zeg tegen baby Caitlin dat hij hard moet hangen .	-0.4760497510433197
-Hang stoere Sparky , geniet van de persoonlijkheid .	-0.277090460062027
-Vergeet niet , vertel mijn broer `` Hang taai '' .	-0.560910165309906
-Hou vol , we gaan je helpen .	-0.3402361273765564
-Hij probeerde stoer op te hangen .	-0.6145449876785278
-Heb je het zwaar gehad ?	-0.8402634859085083
-Hou vol , hou je aan je overtuigingen .	-0.5220864415168762
-Hou vol , we hebben drie uur .	-0.4141250252723694
-Kapitein , het zal snel voorbij zijn .	-0.4579230546951294
-Hou je taai , hoor je me ?	-0.47317174077033997
-Jeep is onderweg .	-0.3975137174129486
-Hou nog een paar dagen vol .	-0.5200911164283752
-Hou vol , we gaan roken .	-0.3432639241218567
-Hou je taai , oké ?	-0.5715493559837341
-Hang je taai op , en doe niets stoms .	-0.701185405254364
-Zonder dat , blijven we drie dagen taai .	-0.7286651730537415
-Hou vol , ik kom eraan .	-0.39698684215545654
-Dus als zij de acteur is , zal ze dan hard hangen ?	-0.4948796033859253
-Het komt wel goed .	-0.5713253617286682
-Hou vol , coachie .	-0.47032731771469116
-Ik zei dat hij moest blijven hangen .	-0.7343928813934326
-Hou vol , we gaan voor je zorgen , man .	-0.36404165625572205
-Vouw of hang taai . Bel of verhoog de weddenschap .	-0.4148837924003601
-Hou vol , we hebben de bouwkundige onderweg .	-0.4297785460948944
-Hij zei dat hij moest blijven hangen , hij zou het niet halen .	-0.7565125226974487
-Hou vol , oké ?	-0.6296126842498779
-Ja , nou , weet je , soms moet je hard hangen .	-0.5789308547973633
-Train je nieuwe pelotonleiders , vertrouw op je noncoms .	-0.44186481833457947
-Wanneer heb je voor het laatst iemand horen zeggen `` Hang taai '' ?	-0.45390984416007996
-Hou vol , Raul .	-0.47760680317878723
-Nou , ik moet hard blijven totdat Roman van ze af is .	-0.684845507144928
-Misschien zijn we te hard voor hem .	-0.39846551418304443
-Kun je alleen lopen ?	-0.41774982213974
-Owen , we gaan naar je boren en je eruit tillen , oké ?	-0.42751291394233704
-Als je nog een paar minuten blijft hangen ... komt het wel goed .	-0.5492052435874939
-De rest van jullie blijven gewoon hangen en we gaan wat hulp halen .	-0.796416699886322
-Hou vol , commissaris , u hebt gelijk en helaas vermoed ik dat dit Parlement het mis zal hebben .	-0.5005136132240295
-Kijk , Rachel , ik weet wat je denkt , maar nu is het de tijd dat je hard moet hangen .	-0.4516362249851227
-En de rest van de vleugel-dingen zijn eier op hem op . `` Hang hard , man ! '' `` Vecht tegen de macht ! ''	-0.5426857471466064
-Het Journal of Youth and Adolescentie suggereert dat door middel van de teksten herhaald steeds opnieuw , songwriters leren adolescenten om anderen te negeren en te hangen stoer .	-0.6291812062263489
+- Hou vol.
+Hou vol.
+Hou vol.
+Hou vol.
+Hou vol.
+Gator, hou vol.
+Hou vol, Jenny.
+Hou vol, Murdock.
+- Hou vol.
+Hou vol.
+Hou vol, jongen.
+- Hou vol.
+Hou vol, maatje.
+Bodie, hou je taai.
+Hou vol, maatje.
+Hou vol, Wilma.
+Hou vol, kampioen.
+Hou vol, bro.
+Hou vol.
+Hou vol, Bravo 6.
+Hou vol, hermano.
+Hou vol, Moeder Natuur.
+Hou je taai, matroos.
+Hé, hou je taai.
+Oké, hou vol.
+Hou je taai, oké?
+Hou je taai, maatje.
+Nestor zegt: Hou je taai.
+Hou vol, Pip.
+- Hou vol, Carla.
+Leuk om stoer te hangen.
+Kom op jongens, hou je taai.
+Maar je moet hard hangen.
+We zijn finishers.
+Oké, hou je taai.
+Hou vol, maatje.
+Hou vol tot ze klaar is.
+Hou nog even vol.
+Hou je taai.
+Dus we moeten taai zijn.
+Zeg tegen baby Caitlin dat hij hard moet hangen.
+Hang stoere Sparky, geniet van de persoonlijkheid.
+Vergeet niet, vertel mijn broer "Hang taai".
+Hou vol, we gaan je helpen.
+Hij probeerde stoer op te hangen.
+Heb je het zwaar gehad?
+Hou vol, hou je aan je overtuigingen.
+Hou vol, we hebben drie uur.
+Kapitein, het zal snel voorbij zijn.
+Hou je taai, hoor je me?
+Jeep is onderweg.
+Hou nog een paar dagen vol.
+Hou vol, we gaan roken.
+Hou je taai, oké?
+Hang je taai op, en doe niets stoms.
+Zonder dat, blijven we drie dagen taai.
+Hou vol, ik kom eraan.
+Dus als zij de acteur is, zal ze dan hard hangen?
+Het komt wel goed.
+Hou vol, coachie.
+Ik zei dat hij moest blijven hangen.
+Hou vol, we gaan voor je zorgen, man.
+Vouw of hang taai. Bel of verhoog de weddenschap.
+Hou vol, we hebben de bouwkundige onderweg.
+Hij zei dat hij moest blijven hangen, hij zou het niet halen.
+Hou vol, oké?
+Ja, nou, weet je, soms moet je hard hangen.
+Train je nieuwe pelotonleiders, vertrouw op je noncoms.
+Wanneer heb je voor het laatst iemand horen zeggen "Hang taai"?
+Hou vol, Raul.
+Nou, ik moet hard blijven totdat Roman van ze af is.
+Misschien zijn we te hard voor hem.
+Kun je alleen lopen?
+Owen, we gaan naar je boren en je eruit tillen, oké?
+Als je nog een paar minuten blijft hangen... komt het wel goed.
+De rest van jullie blijven gewoon hangen en we gaan wat hulp halen.
+Hou vol, commissaris, u hebt gelijk en helaas vermoed ik dat dit Parlement het mis zal hebben.
+Kijk, Rachel, ik weet wat je denkt, maar nu is het de tijd dat je hard moet hangen.
+En de rest van de vleugel-dingen zijn eier op hem op. "Hang hard, man!" "Vecht tegen de macht!"
+Het Journal of Youth and Adolescentie suggereert dat door middel van de teksten herhaald steeds opnieuw, songwriters leren adolescenten om anderen te negeren en te hangen stoer.

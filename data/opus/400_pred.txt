@@ -1,7 +1,7 @@
-Elke hond heeft z ' n dag .	-0.3284975588321686
-Ja , elke hond heeft z ' n dag .	-0.33429619669914246
-Elke hond heeft z ' n dag .	-0.3862903416156769
-Vergeet niet , luitenant , elke hond heeft zijn dag !	-0.37109798192977905
-Zoals ze zeggen , elke hond heeft z ' n dag .	-0.33368760347366333
-Elke hond heeft zijn dag , en Buster had een rotdag .	-0.3383091986179352
-Maar uiteindelijk , elke hond heeft zijn dag , en ze belandde in het verkeer rechtbank , waar ze ruilde met de rechter voor een korting .	-0.3438795208930969
+Elke hond heeft z'n dag.
+Ja, elke hond heeft z'n dag.
+Elke hond heeft z'n dag.
+Vergeet niet, luitenant, elke hond heeft zijn dag!
+Zoals ze zeggen, elke hond heeft z'n dag.
+Elke hond heeft zijn dag, en Buster had een rotdag.
+Maar uiteindelijk, elke hond heeft zijn dag, en ze belandde in het verkeer rechtbank, waar ze ruilde met de rechter voor een korting.

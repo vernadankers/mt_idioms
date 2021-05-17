@@ -1,500 +1,500 @@
-Maak het openbaar .	-0.7671016454696655
-Om het openbaar te maken ?	-0.8304280042648315
-Ik zal het openbaar maken .	-0.5385528802871704
-Ja , ga het openbaar maken .	-0.5911996364593506
-- Ga naar het publiek .	-0.9402486085891724
-Ik zal het openbaar maken .	-0.5385528802871704
-Chicago Public Radio	-0.21059420704841614
-Dit kan niet openbaar worden .	-0.4002847671508789
-- Ik zal het openbaar maken .	-0.597180187702179
-We kunnen het niet openbaar maken .	-0.3524590730667114
-- Ik ga het openbaar maken ?	-0.7716895937919617
-En Chicago Public Schools .	-0.23145581781864166
-Morgen maken we het openbaar .	-0.5608813166618347
-Als we het openbaar maken ...	-0.3970697224140167
-Hij zal het openbaar maken .	-0.5336238145828247
-Laat staan publiek te maken .	-0.7666574716567993
-Gaat hij het openbaar maken ?	-0.8579312562942505
-Hij wilde het openbaar maken .	-0.45043841004371643
-We maken het bekend met Shepherd .	-0.35638928413391113
-Hij kan het zelfs openbaar maken .	-0.7131273746490479
-Wil je het openbaar maken ?	-0.39439550042152405
-Laten we het openbaar maken met Weiss .	-0.3571857213973999
-We kunnen het nog niet openbaar maken .	-0.3270704746246338
-Oké , maar waarom openbaar maken ?	-0.5257583856582642
-Hoe gaan we het openbaar maken ?	-0.4584106504917145
-Dan kan ik het openbaar maken .	-0.4236396253108978
-Uiteindelijk ga je het openbaar maken .	-0.45597824454307556
-Ze willen het openbaar maken .	-0.4627710282802582
-Hij probeert het openbaar te maken .	-0.41632556915283203
-Praat met me , maak het openbaar .	-0.4880128800868988
-Misschien moeten we het openbaar maken .	-0.31718942523002625
-Ga dit nu openbaar maken .	-0.6833772659301758
-Misschien moeten we het openbaar maken .	-0.3171895742416382
-Je kunt het publiek maken , zeker .	-0.7058722972869873
-Hij wilde het openbaar maken .	-0.4504382312297821
-Begrijp je dat ik het openbaar ga maken ?	-0.4413798153400421
-Ik wil het openbaar maken .	-0.42905640602111816
-- voordat je het openbaar maakt .	-0.4606364965438843
-Ik zal het niet openbaar maken .	-0.4254794418811798
-We moeten het openbaar maken .	-0.3881964087486267
-Wanneer gaat dit openbaar worden ?	-0.4345485270023346
-- Hij gaat het niet openbaar maken .	-0.48771238327026367
-We gaan maandagochtend naar het openbaar .	-0.5164871215820312
-{ 0 } van { 1 } { 2 } { 0 } published { 1 } { 3 } Chicago Public Radio	-0.14046026766300201
-We moeten het openbaar maken .	-0.4707726538181305
-Ja , we gaan het openbaar maken .	-0.4927905797958374
-Niet voordat we het morgen bekend maken .	-0.5194215774536133
-Nee , hij wilde het openbaar maken .	-0.450806200504303
-19 december 1944 , Lugo Publieke ambtenaar	-0.29726192355155945
-Ik wil het niet openbaar maken .	-0.3376576006412506
-Organon zou het openbaar maken .	-0.5748049020767212
-We gaan morgen naar het openbaar , en iemand ...	-0.5142154097557068
-Je hoeft het niet openbaar te maken .	-0.30187344551086426
-Waarom ging Shelley niet naar de beurs ?	-0.5060246586799622
-Ze laten dit niet openbaar maken .	-0.4695780575275421
-Godzijdank ging de mijne niet openbaar .	-0.49975016713142395
-Ik ga nu liever niet naar buiten .	-0.5202586650848389
-Moeten we het niet openbaar maken ?	-0.5174758434295654
-Dus je bent klaar om het openbaar te maken ?	-0.45411625504493713
-Ging Zach Piller het openbaar maken ?	-0.29402077198028564
-Wanneer ga je het openbaar maken ?	-0.32825765013694763
-We moeten het openbaar maken , nu .	-0.4526023268699646
-Maak het publiek bekend met `` Heeft iemand hem herkend ? ''	-0.6467843651771545
-Gaan jullie het openbaar maken ?	-0.4051022529602051
-Wanneer ga je het openbaar maken ?	-0.4907906949520111
-Waarom ging hij niet naar buiten ?	-0.5643371939659119
-CRS wordt niet openbaar gemaakt , ze zijn familiebezit .	-0.6139887571334839
-Zodra we het openbaar maken , komen ze naar voren .	-0.5339369773864746
-Als ik het openbaar maak , precies nul minuten .	-0.4747907817363739
-Ik zal het openbaar maken als het moet .	-0.5242803692817688
-Ze moeten gewaarschuwd worden .	-0.4879412353038788
-Je schoonzoon stond op het punt bekend te worden .	-0.509486734867096
-Hij probeert het openbaar te maken .	-0.42600759863853455
-Willen ze dit openbaar maken ?	-0.5145729184150696
-- Je kunt het nu niet openbaar maken .	-0.5709320902824402
-Maar nadat je het openbaar hebt gemaakt , is het allemaal weg .	-0.49871620535850525
-Ik ga niet openbaar maken met de informatie .	-0.5398056507110596
-Wat als we dit openbaar maken ?	-0.3722107708454132
-We moeten dit openbaar maken .	-0.3536715507507324
-Ik wil niet dat dit openbaar wordt .	-0.32843735814094543
-Ik denk echt dat we het openbaar moeten maken .	-0.3578273057937622
-Je persoonlijke zaken gaan niet openbaar worden .	-0.401797890663147
-Je kunt dit vandaag niet openbaar maken .	-0.4741303026676178
-Daarom moeten we het publiekelijk maken .	-0.447162002325058
-29 april 1938 , Sligo Vertegenwoordiger van de overheid Ierland	-0.27113771438598633
-Je hebt de sheriff zover gekregen om het openbaar te maken .	-0.37338608503341675
-Maak het openbaar en niemand zal je geloven .	-0.5297976136207581
-Zal Pelham publiekelijk gaan of privé blijven ?	-0.411862850189209
-We gaan zo snel mogelijk naar buiten .	-0.406131774187088
-Wanneer kan ik het openbaar maken met jou ?	-0.5255073308944702
-- In dit geval , maak het publiek bekend .	-0.647406816482544
-We willen het niet openbaar maken .	-0.4340585470199585
-Dus toen Kevin dreigde het openbaar te maken ...	-0.3458993136882782
-Wil je het dan openbaar maken ?	-0.5545024871826172
-Als je dat deed , zou je het openbaar maken .	-0.5166561603546143
-We moeten dit openbaar maken .	-0.3536715507507324
-Ze zei dat ze het openbaar wilde maken .	-0.3657315969467163
-Denk je dat ik bang ben om het openbaar te maken ?	-0.2713444232940674
-Ik dreigde ermee bekend te maken .	-0.4822970926761627
-Wanneer ga je dit openbaar maken ?	-0.4312019944190979
-Denk je niet dat we het openbaar moeten maken ?	-0.425777405500412
-Ik denk dat het tijd is om het openbaar te maken .	-0.40776172280311584
-Wie zegt dat we het openbaar moeten maken ?	-0.33829623460769653
-Je hebt 24 uur voordat we het openbaar maken .	-0.4258924722671509
-We zijn nog niet klaar om het openbaar te maken .	-0.42306408286094666
-Denk je dat ik dit niet openbaar ga maken ?	-0.3883257210254669
-Ik wil niet dat het openbaar wordt .	-0.41807296872138977
-Je moeder moet dit openbaar maken .	-0.35904350876808167
-Waarom niet openbaar maken , zichzelf redden op die manier ?	-0.5383778214454651
-Misschien waren sommige dingen voorbestemd om het openbaar te maken .	-0.5018123984336853
-We moeten het openbaar maken .	-0.4300885796546936
-Is er al een reden om het openbaar te maken ?	-0.3557184934616089
-We zijn nog niet klaar om het openbaar te maken .	-0.37660887837409973
-Dus je wilt niet dat dit openbaar wordt .	-0.38346463441848755
-Betalen of dit openbaar maken .	-0.6164731979370117
-We moeten dit nu openbaar maken .	-0.37316250801086426
-Ik zei tegen de burgemeester dat hij het niet openbaar moest maken .	-0.6135693192481995
-Dr. Gerard overweegt om het openbaar te maken .	-0.4212898313999176
-Je wilt niet dat dit openbaar wordt .	-0.36030858755111694
-Je hebt gelijk , we moeten het openbaar maken .	-0.5450984835624695
-Nu je afgestudeerd bent , kunnen we het openbaar maken .	-0.445675790309906
-Wil je dat ik dit openbaar maak ?	-0.3753543496131897
-Jude , er is geen taart .	-0.39498665928840637
-- Dreigde het openbaar te maken , hun leven te ruïneren .	-0.5857338309288025
-Maak de aankondiging morgen , tijd om het openbaar te maken .	-0.5634561777114868
-Ze kunnen hem daarmee niet openbaar maken .	-0.6291079521179199
-Nu je afgestudeerd bent , kunnen we het openbaar maken .	-0.4540347754955292
-We kunnen het openbaar maken met wat we gevonden hebben .	-0.5101593732833862
-Of moet ik het nu openbaar maken ?	-0.4683694839477539
-Dus , dan gaat hij het niet openbaar maken , toch ?	-0.5041249394416809
-Hij wil vast wel publiekelijk gaan .	-1.049646019935608
-Steve wil het nog niet openbaar maken .	-0.38303813338279724
-Ze dreigt , ik weet het niet , openbaar te worden .	-0.4359818696975708
-Laten we dit gebruiken en het openbaar maken .	-0.4774553179740906
-En dan ... ga je het niet openbaar maken ?	-0.5434838533401489
-Begrijp je nu waarom ik het niet openbaar kan maken ?	-0.45003974437713623
-Dat hebben we toch niet openbaar gemaakt ?	-0.572760283946991
-Om haar te overtuigen om het openbaar te maken .	-0.5095187425613403
-Zorg voor me , of ik ga dit openbaar maken .	-0.5650851130485535
-En toen dreigden ze het openbaar te maken .	-0.4701704978942871
-Ja , en ze wil niet dat het openbaar wordt .	-0.3508773148059845
-Omdat ik links teruggaf toen ik het openbaar wilde maken .	-0.6541647911071777
-Het is geen goed moment om het openbaar te maken .	-0.45886874198913574
-Arnold wilde het openbaar maken .	-0.44880586862564087
-Het vroeg $ 50.000 , of hij zou het openbaar maken .	-0.588300347328186
-De Fargo Public Library is gevestigd in het centrum van Fargo .	-0.3266824781894684
-Dreigde Miss Tyler het openbaar te maken ?	-0.3491476774215698
-En ze dreigde het bekend te maken met de affaire .	-0.42944177985191345
-Als je het openbaar maakt , durven ze je niet aan te raken .	-0.3960869610309601
-Nieuwe nummers voordat we het openbaar maken ?	-0.534498929977417
-Mass Transit & Benzine Prijzen : Tijd om publiek te gaan ?	-0.34989088773727417
-Wil je dit openbaar maken ?	-0.4893884062767029
-Ik waarschuw je om het niet openbaar te maken , Bud .	-0.3860403001308441
-Ik heb nooit gedreigd om bekend te maken over onze relatie .	-0.3488379418849945
-Jake wilde het bekend maken over ons , maar ik ...	-0.33378633856773376
-Heeft Emily gedreigd het openbaar te maken ?	-0.4345380663871765
-Waarom gaan ze niet naar de beurs met mij ?	-0.594865083694458
-Als je dit openbaar maakt , kunnen ze je niets maken .	-0.3872876465320587
-Daarom is het tijd om het openbaar te maken , Barton .	-0.27761825919151306
-We zouden toch naar buiten gaan als Wells ...	-0.4314640462398529
-Het is omdat je dreigde om het openbaar te maken , is het niet ?	-0.5179600119590759
-Zodra we een overeenkomst hebben , gaan we niet openbaar .	-0.3949781060218811
-We kunnen het niet openbaar maken voordat we het lichaam hebben gevonden .	-0.46033334732055664
-- en Luke dreigde ermee bekend te maken .	-0.44986000657081604
-Niemand in mijn team zou het openbaar maken tegen mij .	-0.5094501972198486
-We gaan dit niet openbaar maken .	-0.4914233088493347
-Ik wilde het toch bekend maken met de kaart .	-0.4887221157550812
-Waarom ga je het niet gewoon openbaar maken met die shit ?	-0.5879735350608826
-Toen hij het openbaar wilde maken , hebben ze hem gekruisigd .	-0.3608880639076233
-We willen het niet openbaar maken .	-0.38985109329223633
-Godzijdank zijn we niet publiekelijk gegaan met jouw keuze .	-0.5804427862167358
-Burnson 's mensen zitten me op de hielen om het openbaar te maken .	-0.44916513562202454
-Ze heeft niets om openbaar mee te maken , begrijp je ?	-0.42696699500083923
-De commandant vloog naar D.C. om het openbaar te maken .	-0.370798796415329
-Ik ben hier om te zeggen dat je het niet openbaar moet maken .	-0.49670785665512085
-Je kunt niet publiekelijk gaan met een `` niet drinken '' bestelling .	-0.5319176912307739
-Ik wilde dat je het wist voordat we het openbaar maken .	-0.4799402058124542
-Als je zoveel weet , waarom ga je het dan niet openbaar maken ?	-0.37008315324783325
-We moeten beiden openbaar maken met onze zonden en boete doen .	-0.5707692503929138
-Omdat we een bedrijf zijn dat op het punt staat publiek te gaan .	-0.4748455882072449
-Stel dat we het openbaar maken , met jouw verhaal ...	-0.43694302439689636
-Als je het openbaar maakt , doe je tv-optredens .	-0.5368799567222595
-We zijn pas in '69 bekend geworden .	-0.6479071974754333
-We maken het bekend over Walker en vragen om hulp bij het vinden van hem .	-0.56254643201828
-Hij wil het bekend maken over Rickman .	-0.4304751455783844
-Ze moest het zwijgen opgelegd worden voordat ze het openbaar kon maken .	-0.4353162348270416
-Misschien dreigde ze het zijn vrouw te vertellen , om het openbaar te maken ?	-0.44909533858299255
-Als alles veilig is , kunnen we het vanavond openbaar maken .	-0.5024465322494507
-Als we dat hadden , zouden we het openbaar maken met zijn betrokkenheid .	-0.4294218420982361
-We kunnen zelfs openbaar maken , andere mogelijke slachtoffers wegjagen .	-0.5766658186912537
-Misschien moeten jullie stoppen met rondsnuffelen en het openbaar maken .	-0.507651686668396
-Ik denk dat het tijd is om het onderwerp openbaar te maken .	-0.3902740478515625
-Als we het openbaar maken , gaan we in paniek raken .	-0.4984365701675415
-Wat zei Colin dat Jeff wilde doen , openbaar maken ?	-0.3860640227794647
-Ik moet je vragen om het nog niet openbaar te maken .	-0.48544201254844666
-Jij en Kasper kunnen maar beter naar buiten gaan met jullie relatie .	-0.5019155740737915
-Israël wil publiekelijk gaan , Palestina de schuld geven van de aanval .	-0.4424459636211395
-Ze wilden ons de schuld geven en het openbaar maken .	-0.5391700863838196
-Ik denk dat de OvJ dit niet openbaar wilde maken .	-0.3781433403491974
-Als we het openbaar willen maken , hebben we meer nodig dan speculatie .	-0.4077153503894806
-Als ze dat zijn , dan kunnen ze publiekelijk gaan .	-0.6307624578475952
-De Cowboy is jouw jurisdictie ontvlucht .	-0.48835521936416626
-Clarke , dat kan hij niet .	-0.612864077091217
-Ga je de burgemeester ermee neuken ?	-0.41767677664756775
-Anders ga ik naar het publiek met Kapeniak en de Kern-redactie .	-0.535351574420929
-Weet je zeker dat je dit openbaar wilt maken ?	-0.31272628903388977
-Je hebt gelijk , we moeten het openbaar maken .	-0.5660068988800049
-En ze dreigde het openbaar te maken met wat ze weet .	-0.48987674713134766
-We kunnen hem oppakken voor verhoor , en dan openbaar maken .	-0.5608773827552795
-We gaan niet naar buiten , er sterven nog meer onschuldige mensen .	-0.6449869871139526
-Kunnen we een paar dagen wachten voordat we het openbaar maken ?	-0.3928375840187073
-Wanneer gaan we naar buiten en wanneer beginnen we te evacueren .	-0.552119255065918
-Dankzij je tape , heb ik besloten om het openbaar te maken .	-0.47494375705718994
-Misschien komt dat omdat jullie ons niet toestaan om het openbaar te maken .	-0.5371600985527039
-Laat z ' n foto vrij bij de Berlijnse politie .	-0.5216987133026123
-In feite dreigde hij het openbaar te maken met jouw hele operatie .	-0.5698313117027283
-Kun je je de pers voorstellen ?	-0.41189223527908325
-Als we dit openbaar maken en het mis hebben , is het voorbij .	-0.43465501070022583
-Het duurde niet lang voordat haar privé-onderdelen openbaar werden .	-0.3715234696865082
-De laatste U.R.L . die ze bezocht was ... het kantoor van de Chicago openbare verdediger .	-0.37354767322540283
-Morgenochtend gaan we dit openbaar maken .	-0.6268278956413269
-Misschien moet ik het hier openbaar maken .	-0.7418992519378662
-En ik ben een komiek , dus ik ga het openbaar maken met deze grappen .	-0.48054879903793335
-Als ik dit openbaar maak , dan is de reputatie van de Warblers ...	-0.36899980902671814
-Maar als je dit openbaar maakt , word je woest .	-0.5041770339012146
-Don kostte haar een miljoen dollar toen we het niet openbaar maakten .	-0.3519465923309326
-Dat zou betekenen dat de capillaire schade openbaar wordt gemaakt .	-0.5378438234329224
-Maar als je het openbaar maakt of aanklaagt , wordt het aanbod ingetrokken .	-0.46805980801582336
-Ze zei dat ze het zou publiceren met een artikel .	-0.5155638456344604
-Het gedisciplineerde kind is veel beter uitgerust om openbaar te gaan .	-0.34373342990875244
-Dreigde hij bekend te maken over de meltdown op de Gloucester ?	-0.3683106005191803
-Dit kan niet openbaar worden , het komt er wel uit .	-0.6146959662437439
-Wat we willen doen is publiekelijk gaan en getuigen oproepen .	-0.5664438605308533
-En , de volgende stap , wanneer ga je het openbaar maken ?	-0.4958494305610657
-Papa , weet je zeker dat jullie klaar zijn om het openbaar te maken ?	-0.4302313029766083
-Jij hebt de foto gelekt .	-0.4719296991825104
-En de dag dat ik vermist word is de dag dat ze openbaar worden .	-0.4108569920063019
-Ja , en hij staat op het punt deze week bekend te maken met zijn aandelen .	-0.4680637717247009
-Oké , kijk of hij overtuigd kan worden om het niet openbaar te maken .	-0.4653196930885315
-Jij hebt de foto gelekt .	-0.4719296991825104
-Dat was goed van Dr Verrity om in ons voordeel openbaar te maken .	-0.41980624198913574
-Nu , er zijn follow-ups die ik wil starten voordat we openbaar gaan maken .	-0.5579791069030762
-Als je belooft het niet openbaar te maken totdat je met ons gesproken hebt .	-0.5027579665184021
-Je moet de reporter overtuigen zijn naam bekend te maken .	-0.4467502534389496
-Als we nog één investeerder tekenen , moeten we het openbaar maken .	-0.4660309851169586
-We moeten wachten tot het bedrijf bekend wordt .	-0.4773316979408264
-Het is nog niet genoeg om het openbaar te maken , maar het is een begin .	-0.31399548053741455
-Als we het autopsierapport openbaar maken , zal de publieke opinie veranderen .	-0.43262389302253723
-Ik wist niet zeker of je klaar was om bekend te maken met de hele ...	-0.4966932535171509
-Een paar weken later dreigde ze haar verhaal bekend te maken .	-0.3713971674442291
-Waarom zou je jezelf niet bekend maken , als je zo tegen de regels bent ?	-0.4908778965473175
-Denk je nog steeds dat Kincaid voor de operatie bekend zal worden met OTI ?	-0.39930951595306396
-Jij wint , wij gaan naar het openbaar , wij hangen onszelf op .	-0.7267776727676392
-Wat als we het over 48 uur openbaar maken ?	-0.5320563316345215
-Ze moet zich gerealiseerd hebben dat het openbaar zou worden .	-0.5997542142868042
-We moeten het openbaar maken met onze pijn , zodat geen andere vrouwen lijden ...	-0.43023234605789185
-Jij , ik , Shelby Moss en Vanessa Chandler , dan gaan we het openbaar maken .	-0.24049299955368042
-Lightman wilde het openbaar maken met wat hij geloofde dat het echte verhaal was .	-0.45227059721946716
-Nadine vindt dat ik openbaar moet maken wat Andrada me heeft aangedaan .	-0.4356437623500824
-Mensen wachten hun hele leven op zo ' n waardering .	-0.41171273589134216
-En ik ben blij om dit openbaar te maken als ik ze niet krijg .	-0.43374162912368774
-De president zou het waarderen als je dit niet openbaar maakt .	-0.404085636138916
-We maken het openbaar , we steken de demonstranten aan en maken Devlin nog pissiger .	-0.534318745136261
-Toen we je oplichterij ontdekten , wilde ik het openbaar maken .	-0.51143878698349
-Nee , ik tekende papieren dat ik het niet openbaar zou maken en dat zal ik niet doen .	-0.4841013550758362
-Hij wilde niet dat de affaire openbaar werd , dus liet hij haar vermoorden .	-0.3249032497406006
-Ik moet dit openbaar maken .	-0.5163981914520264
-We weten dat Steve op het punt stond bekend te maken over de defecte klep van zijn bedrijf .	-0.42657914757728577
-Ze vertelde Norton dat ze het zou publiceren met wat ze wist .	-0.4872899353504181
-Elke keer als ze een aanbod krijgt , dreigt ze het openbaar te maken .	-0.44352400302886963
-Doe uw eigen analyse : Is nu de tijd voor u om te gaan openbaar ?	-0.47639405727386475
-Als ze zien dat je dat doet ... zoek dan uit wie ze financiert , ga het openbaar maken .	-0.6354581713676453
-Ze hebben duidelijk geen haast om het openbaar te maken omdat we niet geboeid zijn .	-0.46023058891296387
-Je hebt zes uur , daarna gaan we openbaar met alles wat we hebben .	-0.5048113465309143
-Ik heb hem laten beloven nog niet bekend te maken , maar het is voorbij .	-0.5086856484413147
-Er zijn er nog dertien , en als je me arresteert , gaan hun namen openbaar .	-0.4394800662994385
-Maar voordat hij het openbaar kon maken ... besloot Bree er een eind aan te maken .	-0.34049245715141296
-Schat , ik wilde niet dat het openbaar werd .	-0.4966466724872589
-Ze dacht waarschijnlijk dat ze eruit kon komen als ze dreigde het openbaar te maken .	-0.4391425848007202
-We moeten de wereld vertellen dat we de black-out veroorzaakten .	-0.3435319662094116
-Misschien als we haar foto openbaar maken , herkent iemand haar .	-0.4326564371585846
-Grasshopper werd daarmee de eerste Zwitserse sportclub die openbaar werd gemaakt .	-0.502737283706665
-Als we het openbaar maken , moeten we de klap op ons nemen voor de Hoffmans .	-0.47418758273124695
-Als we het bekend maken met Joe 's verhaal , kijk dan naar de dollars .	-0.5298752188682556
-Ik bracht Wilson hier speciaal om het openbaar te maken , net zoals je vroeg .	-0.5007270574569702
-Wat nog meer reden is om het niet openbaar te maken tenzij hij het goed vindt .	-0.41108277440071106
-Ik hoop dat het niet openbaar wordt , maar als het helpt om die klootzak te pakken ...	-0.37079936265945435
-Als we met Cummings naar buiten gaan , wordt de geloofwaardigheid van dit kantoor vernietigd .	-0.45347341895103455
-Ze willen het openbaar maken , en we moeten ze tegenhouden en dit oplossen .	-0.47907549142837524
-Ik heb het logboek en de tubes water .	-0.42804470658302307
-Als je het openbaar maakt , ga je tegen heel machtige mensen in .	-0.4681977331638336
-De aanklacht werd ingetrokken en de aanklager liet haar naam nooit openbaar maken .	-0.5234137773513794
-We moeten de wereld vertellen dat we de black-out veroorzaakt hebben .	-0.3452604115009308
-Als we deze informatie openbaar maken , krijgt de pers een stijve van 7 inch .	-0.5003876090049744
-Of je geeft me precies wat ik wil , of ik maak dit openbaar .	-0.44185468554496765
-Denk je dat hij zijn kinderen ooit naar een openbare school in Chicago zou sturen ?	-0.31341323256492615
-Zorg ervoor dat hij er is , of anders ga ik naar de Aquino bestanden .	-0.5505805015563965
-SECNAV is nog niet klaar om publiek te gaan , vooral als de technologie is aangetast .	-0.4302668869495392
-Een goed motief is dit : mij dwingen om het bedrijf openbaar te maken .	-0.43810608983039856
-Ik kon hem niet laten praten ... of alles openbaar maken .	-0.49802103638648987
-Als ik het openbaar maak met wat ik weet , kan het een industrie ten val brengen .	-0.5272074937820435
-Ik garandeer je , tegen de tijd dat je het openbaar maakt , zal ze niets lijken op een bedreiging .	-0.45892301201820374
-Denk je niet dat het aan weerwolven is om te beslissen of we het openbaar willen maken ?	-0.2794518768787384
-Zolang je het maar openbaar maakt bij het begin van de ochtendnieuws cyclus .	-0.5964648127555847
-Of je gaat naar buiten en trekt je nominatie in , of ik maak het bekend over onze baby .	-0.46131324768066406
-Het is mijn plicht u te informeren dat als u deze operatie openbaar maakt ...	-0.43430936336517334
-Ze dreigde het openbaar te maken , ze moesten iets doen om haar stil te houden .	-0.3831450939178467
-Maar we hebben garanties nodig dat je niet bekend wordt met het gerucht dat je dreigde uit te zenden .	-0.4559633135795593
-Terell dreigde het bekend te maken over m ' n moeder .	-0.5254719853401184
-We hebben meer stemmen nodig voor de confrontatie , maar we willen het niet openbaar maken ...	-0.4960936903953552
-Als de CIA de band gebruikt die ik maakte om Burov te chanteren , zal ik het openbaar maken .	-0.3620122969150543
-Ze wilde het bekend maken met de affaire , en Lawson liet haar ervoor vermoorden .	-0.42389005422592163
-Eigenlijk is het een manier om kapitaal aan te trekken ... voor een bedrijf dat probeert het openbaar te maken .	-0.41396141052246094
-Pivotal Software , waarvan Dell Technologies de meerderheidsaandeelhouder is , heeft ingediend om publiek te gaan .	-0.3498218059539795
-Je probeerde Novak te elimineren omdat hij van plan was het openbaar te maken .	-0.4553215801715851
-Maar kijk dan , Neyers flipt , chanteert Blunt . Dreigend om publiek te gaan vlak voor Blunt 's IPO .	-0.43106144666671753
-Ik zat te denken , wat als we het openbaar maken , het verhaal op het internet plakken ?	-0.5481557846069336
-Er zou een hoorzitting zijn , het zou onvermijdelijk openbaar worden en iedereen in LA zou het weten .	-0.35334306955337524
-In dit land krijgen degenen die publiekelijk gaan tegen apartheid ... de status van paria .	-0.464265912771225
-Als je besluit dit niet openbaar te maken , is dat niet omdat je Casey beschermt .	-0.38673076033592224
-Tijd om publiekelijk te gaan Achter elk Vrije Software-initiatief en organisatie zijn echte , gepassioneerde hardwerkende mensen .	-0.30095869302749634
-Ik moet de klap voor de NRI verzachten voordat we het openbaar maken .	-0.4550827741622925
-We zullen de burgers en de gebruikelijke voorbereide maatregelen in de gaten houden , mochten ze het openbaar willen maken .	-0.5468409657478333
-We willen dat hij denkt wat het beste voor hem is : met ons schikken , of we gaan het openbaar maken .	-0.6148428320884705
-Maar als we onze mond houden , heeft ze niets om bekend mee te maken , begrijp je ?	-0.43504148721694946
-We kunnen het openbaar maken , maar dan vertrouw je op de media om dit niet te verpesten .	-0.38522255420684814
-Het is hun beslissing , wat wij ze geven is van ons .	-0.6967868208885193
-En toen je klaar was om het openbaar te maken ... onthulde je je geheime boodschap met druivensap .	-0.3290191888809204
-Ik heb genoeg om naar White Valley Farms ' kip te wijzen .	-0.4144779443740845
-Als ik faal , ga je de dag erna openbaar maken met jouw steun voor mij .	-0.4745981693267822
-Je kunt dit in je voordeel doen , maar je moet het nu openbaar maken .	-0.4522595703601837
-Maar zelfs als deze man wel bestond , denk je niet dat het zijn beslissing is om het openbaar te maken ?	-0.41792094707489014
-Morgen ... of je trekt je nominatie in of ik maak het bekend over onze baby .	-0.4702088236808777
-Chicago Public School studenten om te werken om hun wetenschap en wiskunde te verbeteren , en mensen vroegen me ,	-0.31403878331184387
-Dana vond een fout en je wilde zeker weten dat het veilig was om het openbaar te maken .	-0.3543315827846527
-Waarom zou Alex zijn broers e-mails wissen als hij wilde dat Laura ermee naar buiten kwam ?	-0.4180220663547516
-Nou , als hij het weet , zal hij het gebruiken om de deal te doden , dreigen openbaar te worden , tenzij ...	-0.40409067273139954
-Je kunt de rechter vragen om je uit de zaak te halen , maar je kunt het niet openbaar maken .	-0.4173544943332672
-Ja , en als hooggerechtshof rechter , weet ik dat zodra ik publiekelijk ga ,	-0.46049976348876953
-Waarom zou Alex zijn broers e-mails wissen als hij wilde dat Laura ermee naar buiten kwam ?	-0.4180220663547516
-Mrs Logan , als we het openbaar maken met Cummings , zal de reputatie van de president niet het enige slachtoffer zijn .	-0.3476671278476715
-Maar , Mr President , het komt erop neer ... we kunnen niet toestaan dat Leonard bekend wordt met wat hij weet .	-0.45849186182022095
-Het is tijd om publiek te gaan met de Aruna video en laat de chips vallen waar ze kunnen .	-0.33040180802345276
-Je zegt dat ze een geheime agent is , dus ik vind het zeer onwaarschijnlijk dat ze dreigt het openbaar te maken .	-0.420479953289032
-Als je het openbaar maakt , word je gezien als een verdubbeling ... en ik ben een slechte weddenschap .	-0.53940349817276
-Ze verzamelen de buccale uitstrijkjes , en dan , waarschijnlijk , zal de aanklager het openbaar maken met zijn onderzoek .	-0.5039584040641785
-Als ik het openbaar maak , ondergraaf ik mijn geloofwaardigheid , wat elk argument dat ik voor het gerecht breng , zal schaden .	-0.5926133394241333
-Ze zei dat hij wat dingen moest uitzoeken voordat ze openbaar konden worden .	-0.43762069940567017
-Het is niet dat we het openbaar kunnen maken over de troep , het zou jou definiëren .	-0.8260801434516907
-Het is gewoon lastig , weet je , en ... ik wil het niet openbaar maken tenzij ik weet dat het echt is .	-0.3386470675468445
-Je ontdekking zal over een paar dagen openbaar worden , en je ouders zullen er zeker achter komen .	-0.46911707520484924
-De Chinese regering heeft gedreigd om informatie openbaar te maken die in tegenspraak is met een van onze verhalen .	-0.43838462233543396
-En dan komt Henry langs en wil dat ik hem help met Eldridge 's leugens ?	-0.3466372787952423
-Mijn beste vrienden Todd en Marty hebben geen idee dat ik de eerste superheld was die het openbaar maakte .	-0.24018633365631104
-Dat bewijs kan niet openbaar worden als we willen dat dit onderzoek voor blijft op het ... welk onderzoek ?	-0.4253104627132416
-Frank , ik zei je dat ik hier nog niet klaar voor was , maar toch ging je door .	-0.5818601250648499
-Ja , en ik ben een man zonder pensioen die de stad moet verlaten als ik het openbaar maak .	-0.40410587191581726
-Dus je ontsloeg hem voor het geval hij het openbaar zou maken , niemand zou hem geloven .	-0.5533753037452698
-Laten we vandaag de overeenkomst openbaar maken om de moordenaars te laten zien dat we niet verplaatst zullen worden .	-0.48826658725738525
-Imagic trok zijn beursnotering in de dag voordat zijn aandelen openbaar zouden worden ; het bedrijf stortte later in .	-0.5399760603904724
-Ik zei het je , als je met mij naar buiten wilt gaan , met ons , dan zal ik vieze , publieke flirten doen .	-0.5874137282371521
-Het kostte jaren om te plannen en nu dreigt Tyler Brody het openbaar te maken en alles te verpesten .	-0.3773673474788666
-Uit respect voor haar wilde ik het niet openbaar maken , of commentaar geven op hun relatie tot nu toe .	-0.37299033999443054
-Zodra Fayed is uitgeschakeld , zal iedereen in de rij vallen en ik kan openbaar maken met mijn voorstel .	-0.5591402649879456
-Beide partijen komen overeen om dit niet openbaar te maken , maar hun deadline voor dit ... is nu .	-0.426334023475647
-De Deense en Amerikaanse autoriteiten gaan een paar dagen later openbaar over de crash , waarbij elk stralingsrisico wordt onderschat .	-0.6658061146736145
-Zeg tegen je superieuren dat als er iets met haar gebeurt , ik het openbaar zal maken met wat ik weet .	-0.465840220451355
-Ze probeerde het nooit uit te maken , en ik heb nooit gezegd dat ik het openbaar zou maken als ze dat deed .	-0.41110798716545105
-Zeg tegen Hobb dat als hij ze niet laat gaan , we het openbaar maken met bewijs ... bewijs dat ze bestaan .	-0.4455413520336151
-Maar als Bedford de affaire openbaar wilde maken , waarom zou hij dan in de club zijn die Tina bedreigt ?	-0.371938019990921
-En dan gaan we openbaar , openen een kantoor in Buenos Aires , en Elvis speelt bij Tammy 's Sweet 16 .	-0.2705751657485962
-Ja , je hebt de mogelijkheid om af te zien van publieke steun , als dat het soort kandidatuur is dat je wilt .	-0.4095205068588257
-Naar mijn mening is de beste formule om de zaak eerst onder ons te bespreken , voordat we openbaar worden .	-0.5583469271659851
-Als we het openbaar maken , wil ik niet dat het verandert in een circus . Houd het kort en niet sentimenteel .	-0.4707246422767639
-Als je deze mensen weer achter ons aan laat komen , hebben we geen andere keus dan het openbaar te maken .	-0.4085007607936859
-We denken dat ze een paar ASA 's heeft die ... publiekelijk gaan .	-0.4566713571548462
-Maar als de CIA de band gebruikt die ik maakte om Burov te chanteren , zal ik het openbaar maken en bekennen .	-0.3711297810077667
-Gonzalez moet erachter zijn gekomen dat er een mol was , de mol vermoordde hem voordat hij het openbaar kon maken .	-0.4213851988315582
-Jullie kunnen het niet openbaar maken dat jullie het gezicht van het bedrijf zijn .	-0.6085615754127502
-We moeten Dr. Harris ook hierheen halen , voor het geval we iets openbaar moeten maken .	-0.5159807801246643
-Als we besluiten om dit openbaar te maken , geven we je zes uur , maar dat is het einde .	-0.4748678505420685
-Daarom heb je je PR hoofd een valse memo laten plaatsen , wetende dat Donna het zou vinden en openbaar zou maken .	-0.4528590738773346
-Dus als je iets bekend maakt met je problemen , zorg ik ervoor dat iedereen weet waar hij moet wijzen .	-0.6124535202980042
-Ik bedoel , dit is een potentieel explosieve situatie ... en hoewel je eerste instinct zou kunnen zijn om het openbaar te maken ...	-0.4929283559322357
-Ik wil niet dat we er allemaal dom uitzien , toch ?	-0.6014460921287537
-En bovendien gaan we het publiekelijk maken , wat een heel ander monster is - op zichzelf .	-0.7341369390487671
-De vicepresident vertelde me dat je Sergeant Brody overtuigde ... om zijn verhaal openbaar te maken .	-0.44935283064842224
-Ik weet niet wat je van plan bent , maar als je hem niet tegenhoudt , ga ik dit openbaar maken .	-0.4198315441608429
-Nu Bunkie vermoord wordt en die Fo-Fo rotzooi ... is het misschien niet het juiste moment om het openbaar te maken .	-0.45467808842658997
-Alle vandaag geschetste hervormingsvoorstellen van de Commissie zullen tot eind oktober 2006 openbaar worden geraadpleegd .	-0.4566093385219574
-Als we hem niet binnen 24 uur kunnen identificeren ... moeten we het openbaar maken met wat we weten .	-0.4485982060432434
-Bobby schreeuwt dat hij ontslag moet nemen ... om tegen me in te gaan omdat ik deed wat hij adviseerde .	-0.6544212698936462
-Omdat we hun terugkeer naar de Aarde verhinderden nadat ze in duisternis begraven waren , maakten ze zichzelf en alles ging openbaar .	-0.4591522216796875
-Toen ik tegen Cleaver zei dat ik het moest uitmaken , dreigde hij het bekend te maken .	-0.38063907623291016
-Die klootzakken gaan naar de beurs en ze geven alleen maar om hun bottom line en hun rotzooi .	-0.6919078826904297
-McGuire zal nooit naar de politie gaan ... omdat hij bekend moet maken dat zijn klantenlijst gestolen is .	-0.43010029196739197
-Ze zullen willen horen , als China begint te poseren ... zijn we klaar om bekend te maken met de plannen en de alliantie .	-0.545154333114624
-Je sprak de waarheid tegen minderheidsbelangen , dus als die twee ASA 's openbaar worden gemaakt , worden ze gezien als zure druiven .	-0.38786473870277405
-Maar je hebt gelijk , het laat me er slecht uitzien als we het openbaar maken , en het is ook niet goed voor jou .	-0.3590374290943146
-Ze vertelde me dat je hem probeerde te overtuigen niet bekend te maken over het feit dat de Ark stervende was .	-0.3903297483921051
-Misschien betaalde Bedford haar om het openbaar te maken en bedreigde Morgan haar om stil te zijn en dan weg te gaan .	-0.3864916265010834
-Als dit Danny is ... kunnen we hem niet openbaar maken .	-0.4402340054512024
-Wil je het bekend maken met Phonaxis ?	-0.5250856876373291
-We zeggen ook dat als ze het bekend maken , we het ontkennen .	-0.6251237988471985
-Thorne moet naar de beveiliging kijken zodat hij klaar is voor je als je het openbaar maakt .	-0.5548895001411438
-En als er iets met mij of Miss Parsons gebeurt , heb ik geregeld dat alles wat we over jou hebben openbaar wordt gemaakt .	-0.4752887785434723
-Stel je voor dat je moet kiezen of je het al dan niet openbaar moet maken met een toxscreen als je een filmdeal hebt .	-0.4544818699359894
-Tijdens het diner die avond ... vroeg je me of ik het openbaar zou maken als het het verschil was tussen overwinning en nederlaag .	-0.44599366188049316
-Dat is wat ik zei , maar het gaat openbaar worden en invloed hebben op Jamie en Nathan 's basketbal contract is voor vernieuwing .	-0.3973935544490814
-En omdat je zweet op alle drie stressplekken waar mensen regelmatig gaan zweten voordat ze publieke vernedering ondergaan .	-0.4136062264442444
-We moeten het openbaar maken met jouw pijn ... mensen hierover laten praten ... Beiste tot de volgende Mary Kay Letourneau maken .	-0.4238177239894867
-Gezien hoe ernstig dit is , Teresa ... je stafchef die omkoopt ... begrijp je mijn plicht om het openbaar te maken , toch ?	-0.4003064036369324
-Ik dacht dat we het er allebei over eens waren dat je het moest vertellen over Walt 's betrokkenheid bij alles wat er vandaag gaande is .	-0.3980617821216583
-DocuSign , het e-handtekening en digitale transactie management bedrijf , heeft ingediend om publiek te gaan op de Nasdaq uitwisseling onder het symbool.DOCU .	-0.46200165152549744
-Ze ging naar haar supervisor , en dreigde het openbaar te maken , en nu zit ze in een gevangenis in Pakistan .	-0.35440587997436523
-Niet te missen is het Chicago Public Library 's Cultural Center dat jaarlijks honderden gratis programma 's , concerten en tentoonstellingen presenteert .	-0.21283037960529327
-Deze conferentie was onze kans om weg te glippen op de laatste dag , openbaar te maken met onze dossiers , al ons wapenonderzoek .	-0.4003424346446991
-Hij had snel geld nodig , dus hij zou het verkopen aan de jongens in Redmond ... in plaats van te wachten en het openbaar te maken .	-0.4963899850845337
-We moeten zoveel mogelijk bewijs verzamelen als we kunnen ... dus als we dit openbaar maken ... raken we het doelwit .	-0.3887905478477478
-Want als Duncan iets overkomt , zullen mijn partner en ik de details over Operatie Desert Rain openbaar maken .	-0.34048137068748474
-Hij drong er bij hem op aan om het openbaar te maken . Zijne Heiligheid dacht dat de ontdekking het bestaan van een goddelijke macht wetenschappelijk kon bewijzen .	-0.3817267417907715
-Als je het openbaar maakt , en 30 miljoen mensen horen wat je te zeggen hebt , zal niets , ik bedoel niets , nooit meer hetzelfde zijn .	-0.4070016145706177
-Zodra Bellamy terug is met die machine , gaan we alles openbaar maken en zorgen dat je de hulp krijgt die je nodig hebt .	-0.39065879583358765
-Hierdoor zal de claim tegen The Blue Limit openbaar worden voordat we zelfs een zaak tegen Gudmund Friedrich kunnen opbouwen .	-0.38810908794403076
-Het komt erop neer dat als je dit openbaar maakt , niemand je zal geloven omdat niemand het verhaal zal steunen .	-0.42448094487190247
-Het is betreurenswaardig dat deze regeling niet publiekelijk is herzien , aangezien mijn beoordeling ervan zou luiden : `` Ficties komen tot een fictief einde '' .	-0.6577106714248657
-Luister , over zes maanden zitten we waarschijnlijk in verschillende posten , dan kunnen we publiekelijk gaan - we kunnen ... we kunnen dit doen .	-0.5224947333335876
-Als hij zich niet settelt , gaat de dader het openbaar maken ... en dan vraagt iedereen zich af waarom een agent met 15 andere civiele zaken ...	-0.48869556188583374
-Email Consulogo Publicidad Titel : Naam : E-mail : Boodschap : Ja : Ik wil informatie ontvangen over Amarillascolombia.net Code ( Kopieer de anti-spam code )	-0.07141388952732086
-Grant dacht dat als we een kleine partij ontwikkelden , dan vernietigden we de notities , dat we het bewijs zouden hebben dat we nodig hadden om het openbaar te maken .	-0.42220965027809143
-Als we bekend maken dat we de moordenaar van zijn vrouw hebben gevonden , is er een goede kans dat Curtin zichzelf aangeeft , als hij nog leeft .	-0.3172610402107239
-We hebben met Grigory besproken ... of hij wel of niet publiek moet gaan ... voor de Olympische Spelen .	-0.5820828080177307
-Als je deze operatie openbaar maakt , pleeg je verraad en wordt je behandeld als een verrader van de Verenigde Staten van Amerika .	-0.37505218386650085
-En ik was de 40 procent eigenaar van een dotcom die publiek zou gaan en zonder twijfel miljarden meer waard zou zijn .	-0.3448927402496338
-Als deze zaak bekend zou worden , de woede die uw cliënt zou krijgen van de media , de burgers ... zijn deuren zullen sluiten , Harriet .	-0.46540480852127075
-De hoeveelheid informatie die naar buiten komt groeit de hele tijd , en meer mensen zijn bereid om publiek te gaan met de kennis die ze hebben .	-0.3367933928966522
-Het is betreurenswaardig dat deze regeling niet publiekelijk is herzien , aangezien mijn beoordeling ervan zou luiden : `` Ficties komen tot een fictief einde '' .	-0.5850369334220886
-Ik probeerde het haar uit haar hoofd te praten , maar ze was vastbesloten om het openbaar te maken , om de hemel op al onze hoofden te brengen .	-0.4453551769256592
-Vier dagen later moest de Amerikaanse procureur-generaal John Ashcroft in een verrassingsactie - publiekelijk gaan met de zogenaamde Patriot Act No .	-0.4570862650871277
-Als Billy de kinderen dextro gaf en Luke de namen bekend zou maken , hadden ze allemaal veel te verliezen .	-0.4004804491996765
-schriftelijk . - ( PT ) Ik heb tegen dit verslag gestemd , omdat het pleit voor op kapitaal gebaseerde pensioenregelingen ten koste van de openbare pensioenstelsels die onder jouw beheer vallen , en voor verhoging van de pensioengerechtigde leeftijd .	-0.5852192044258118
-In het geval van succesvolle start-ups , het geld dat wordt betaald wanneer ze worden verworven of gaan publiek , komt ten goede aan degenen die het team samen .	-0.4797211289405823
-Dit incident zal openbaar worden , en ik zal moeten uitleggen hoe niet één , niet twee , maar drie leden van mijn regering werden vermoord .	-0.3245468735694885
-Het is mogelijk dat de boodschappen die je krijgt persoonlijk zijn en voor je eigen vooruitgang , omdat niet iedereen zal worden verwacht om openbaar te gaan .	-0.33142584562301636
-Op deze manier creëerde hij een uniek verslag over het surrealistische leven in communistisch Roemenië , waarmee hij pas na 1993 openbaar kon maken .	-0.359371542930603
-De tijd is nu gekomen voor het Delft Urban Water Centre , met zijn officiële kick-off evenement op dinsdag 29 mei 2012 .	-0.4424535632133484
-Verdiende hij het echt om de hele rotzooi openbaar te maken en hem zijn baan te kosten , allemaal omdat Thomas Kowalski een rood licht had ?	-0.47534725069999695
-We moeten hem vermoorden als we het bestaan van het notitieboek niet openbaar willen maken ... maar ik wed dat dat is wat onze superieuren zouden eisen .	-0.41171708703041077
-Nou , je hebt een van je trucjes nodig want wat heeft Zielinski 's bron voor ons als hij ons niet openbaar laat maken ?	-0.45024538040161133
-En zelfs als slechts één virtuele vreemdeling de hele waarheid wist , was het tijd om het publiek te maken met wat ik niet kon vergeven of vergeten .	-0.4356215000152588
-Mensen staan in wapens wanneer ze publiekelijk gaan , maar uiteindelijk sterft het geluid , omdat de simpele waarheid is dat mensen beschermd willen worden .	-0.49570152163505554
-Niemand buiten het agentschap , maar ik wil dat je weet , Roman , als deze documenten openbaar worden , zal het agentschap elke betrokkenheid ontkennen .	-0.3291151821613312
-Je moest het alleen zien om je de leugen te laten geloven , zodat je je eindelijk zou committeren en publiekelijk zou gaan met het nieuws .	-0.5046112537384033
-Ten eerste , als je een moordverdachte bent , ben je makkelijker te vinden , en ten tweede , om je in diskrediet te brengen , voor het geval je ooit tegen hen in het openbaar komt .	-0.3799417316913605
-Als ik moest raden , zou ik zeggen dat ze hem betaalden om te rapporteren of hun ontevreden voormalige werknemer van plan was het openbaar te maken .	-0.38816794753074646
-Feit is dat we publiekelijk moeten gaan en de mensen moeten vertellen wat we in dit Parlement hebben bereikt , inclusief onze antwoorden op voorstellen van de Commissie .	-0.4407690763473511
-Gautuma is nog niet klaar om bekend te maken met een drugsonderzoek ... dus ik heb wat rondgekeken om te zien of er informatie van voorkennis gelekt wordt .	-0.5370609164237976
-Hij is in een opmerkelijke vorm , maar hij gaat niet naar buiten voordat de wonde op zijn hoofd wat meer genezen is , totdat het haar terug groeit .	-0.5380290746688843
-Dus wij van de Galactische Federatie zijn klaar om , zoals jullie het noemen , publiekelijk te gaan en zijn het eens geworden over een plan dat iedereen tevreden stelt .	-0.3339309096336365
-Een Special Forces eenheid ontdekte dit , en SOC liet ze vermoorden door een drone , en toen die drone piloot het openbaar probeerde te maken , werd hij vermoord .	-0.35695332288742065
-Ik bedoel , we moeten voorkomen dat dit medicijn naar buiten komt , Gene .	-0.6215779185295105
-Public Library Information : Chicago Public Library 400 South State Street Chicago , IL 60605 Telefoon ( 312 ) 747-4300 Naast het bibliotheekcentrum , zijn regionale bibliotheken verspreid over de stad .	-0.2106122523546219
-Aanklachten tegen een hoer die we kunnen opruimen ... maar het is moeilijk openbaar te maken als het gezicht van jouw bedrijf in de gevangenis zit voor moord .	-0.500789225101471
-Ze dachten dat je het moest weten voordat ze het openbaar maken , ze willen je steunen , zonder twijfel , maar het is gewoon , ik bedoel , nu is niet zo goed , toch ?	-0.5077410936355591
-Ik laat m ' n advocaten hierheen komen , dan krijg ik m ' n borg ... en ga ik m ' n zaak openbaar maken .	-0.8089686036109924
-Als hij 'nee ' of 'nee ' zegt , zeggen we dat we Farad wilden voor een top . We identificeerden de moordenaar , maar hij weigerde hem uit te leveren .	-0.5016767382621765
-Luister , Rupert , ga dit openbaar maken als je wilt ... maar je winkel gaat er slechter uitzien omdat je het in de eerste plaats laat gebeuren .	-0.565321683883667
-Ze beweren dat het minimaal vier dagen duurt om een gerechtelijk bevel te verwerken ... en dat is pas nadat mijn kantoor dreigde het openbaar te maken .	-0.4262576997280121
-En je suggereert dat Craig Sterling de familie van de agent vond en Parisi overtuigde om bekend te maken met de vraag naar Rahim , allemaal om een rekening met ons te vereffenen ?	-0.40924403071403503
-Ik zei dat we de waarheid konden vertellen ... dat hij dacht dat de Wallace zaak gesloten was , dat als het niet voor jou en mij was ,	-0.4252021312713623
-Lucy 's moeder overlijdt tijdens een mislukte plastische chirurgie procedure , Lucy stemt in met Holt 's ultimatum dat ze hun relatie openbaar maken nadat hij klaar is met werken aan zijn nieuwe film .	-0.3640853762626648
-En als je dat zwijggeld aanneemt , word je aangeklaagd voor verraad als mensen erachter komen . Daarom ging je niet naar het openbaar toen er vandaag lichamen kwamen .	-0.6613867282867432
-Spotify blijft zoeken naar extra inkomstenstromen als het duwt om publiek te gaan dit jaar en te voorkomen dat boete vergoedingen van de $ 1 miljard schuld ronde vorig jaar verhoogd .	-0.4239320755004883
-De dotcom , ironisch genoeg Snowball genoemd , was het allerlaatste consumentenwebbedrijf dat de volgende maand voor de ontplofte NASDAQ openbaar werd gemaakt , en ik ging 18 maanden van zakenhel binnen .	-0.43640244007110596
-De Commissie zal samen met de stakeholders van het MKB-financieringsforum34 blijven bijdragen aan voorlichtingscampagnes en een Europese informatiegids opstellen voor bedrijven die een publieke rol willen spelen .	-0.5017653107643127
-Een ander beveiligingsbedrijf FireEye zei dat ze communiceerden over de kwetsbaarheid met Microsoft voor een flink aantal weken en ging ermee akkoord om niet openbaar te gaan totdat Microsoft releases van de patch .	-0.3252490758895874
-Ik heb een diploma in bedrijfsstatistieken was van plan om mijn eigen bedrijf te starten op een dag opbouwen tot een groot bedrijf kijken het gaat openbaar misschien maken van de Fortune 500	-0.4968625605106354
-Nu hebben de politieke leiders al eerder beloften gebroken , maar dit Parlement kan het principe van het breken van zijn woord nauwelijks openbaar maken , maar dat is wat het verslag suggereert .	-0.6452938914299011
-Het winnen van de jackpot zou moeilijk te verbergen zijn , en het kan zijn dat je toch openbaar zou moeten gaan als een familielid of vriend per ongeluk onthulde dat je de winnaar was .	-0.3150579035282135
-Toch stuurden we een dag later een voorlopige bezwaarbrief.We lieten de koude ontvangst van de WBA ons niet ontmoedigen en besloten om , tot hun grote ergernis , publiekelijk te gaan .	-0.45741763710975647
-En nu -- nu -- dit meisje dat bij ons in de auto zat wil 250.000 of ze gaat openbaar maken en zeggen dat ik degene was die achter het stuur zat .	-0.4590783417224884
-Of we kunnen het bespreken op het nieuws van 5:00 als ik publiek ga met de families van twee vermoorde agenten en vragen waarom de aanklager in de weg staat van een eerlijk proces .	-0.45257264375686646
-Je hebt gefaald , en tenzij je wilt dat ik het openbaar maak met het feit dat je nog leeft , ga je me de namen geven van de mensen waar je mee gewerkt hebt .	-0.3771389126777649
-Bedrijfsbeeld in Colombië - Amarillascolombia.net Professionele consultancy > Bedrijfsbeeld Bedrijfsbeeld in Colombië Gratis advertentievoor uw bedrijf Zie ook Grafisch ontwerp Reclame Direct marketing Website ontwerp Consulogo Publicidad Algemene reclame , drukwerk , borduurwerk , gedrukt .	-0.14170323312282562
-Jullie zijn blij me te bellen als ik jullie uit de problemen moet halen , maar zodra ik het openbaar wil maken , breken jullie de brandslang uit ?	-0.5273574590682983
-Volgens berekeningen van de NGO Publieke Burger , in de 14 staten waar de prijs van elektriciteit niet is gereguleerd , is het 52 procent hoger dan in de 36 staten waar het is gereguleerd .	-0.39021366834640503
-28 augustus 2012 Le Monde ( Parijs ) 3 81 Banken : Hoe IJsland haar bankiers stalkt In Londen heeft Barclays de rente op interbancaire leningen vervalst , terwijl Bankia in Madrid de boeken in orde maakte om openbaar te worden .	-0.4378513693809509
-Lees meer Greenpeace 's safe choice for sustainability 22 apr 2013 Hans Visser corporates credit risk financial institutions NGO publieke sector ratingadvisering ratings risicoadvisering vermogensbeheerders Donaties moeten soms wachten op de juiste goede zaak .	-0.29966866970062256
-Ik heb nog een foto , dezelfde tijd , van een man in een kap met een pijl en boog die in Rusland opereert , en nu kan ik natuurlijk niets openbaar maken omdat ik volledig in diskrediet ben gebracht ,	-0.4907180368900299
-Volgens The New York Times Book Review , Mary Ellen Quinn , directeur van de collectie ontwikkeling voor de Chicago Public Library , zegt dat het bibliotheeksysteem waarschijnlijk koopt zo veel boeken per jaar als worden gestolen .	-0.3139415383338928
-Estoy buscando : Uso : Soy el usuario final Es para revender o materia prima para producción Donde : Mi nombre : Mi email : Mi teléfono : ( opcional ) Enviar : Zie ook Bedrijfsbeeld Textielindustrie Bedrijfsbeeld Textielindustrie Consulogo Publicidad Algemene reclame , drukwerk , borduurwerk , gedrukt .	-0.09653506428003311
-Er zijn minstens twee bekende , Nederlandse , onafhankelijke , erkende , prominente opinieleiders , die bereid zijn om er met de pers over te praten . Ze zijn beschikbaar in de weken voor , tijdens en na de periode waarin u van plan bent om het publiek te maken .	-0.4018813371658325
-Ze was districtschef van 20 stedelijke filiaalbibliotheken voor de Chicago Public Library ( CPL ) en bekleedde andere bestuurlijke en publieke functies aan de CPL en de City Colleges of Chicago . Ze was vicepresident/president van de OCLC Member Council van 2007/2009 .	-0.4260483682155609
-In feite , sparen op benzine is niet de primaire reden dat ik besloot om te gaan openbaren een paar jaar geleden . Ik gebruikte om de overbelaste snelwegen van Dallas te rijden om aan het werk te gaan ; tijdens spitsuren zou het me 30 tot 45 minuten duren .	-0.41346487402915955
-$ 2 miljoen vooraf , $ 2 miljoen in een trust die zij beheert tot hij 25 is , en 2 meer in een trust in zijn naam , die zal worden vrijgegeven op zijn 30e verjaardag , gezien het feit dat hij akkoord gaat niet openbaar te gaan .	-0.42512205243110657
-De ambassadeur van zijn kant was aanwezig bij het publieke programma-evenement van BINGO , dat onder meer een toespraak omvatte van Paulo Lemos , de Portugese minister van Milieubeheer , die het belang benadrukte van BINGO voor een duurzame watervoorziening in Portugal en de rest van Europa .	-0.40922293066978455
-Een Alvin Ailey poster van Judith Jamison het uitvoeren van de dans `` Cry , '' gewijd aan alle zwarte vrouwen overal . Een Bundu standbeeld , dat was van de Women 's Society in Sierra Leone , en een certificaat voor de Chicago Public School studenten om te werken om hun wetenschap en wiskunde te verbeteren , en mensen vroegen me , `` Waarom nam je op wat je nam ? ''	-0.25075751543045044
-De vraag is dan of we op verzoek van de meerderheid van de fractieleden het recht zouden hebben om een dergelijke vergadering onder vier ogen te houden , aangezien er zeker gevoelige kwesties zijn - zoals we allemaal van onze eigen vergaderingen weten - die tussen ons moeten worden opgehelderd voordat we met hen publiekelijk kunnen gaan .	-0.5505610108375549
-Beschrijf ook hoe de subsidie zal worden gebruikt , waarom een bijdrage van het Mondriaan Fonds op dit moment belangrijk is , en hoe het ook een stimulans kan zijn voor het initiatief op lange termijn ; ook , hoe het initiatief is bedoeld om publiek te gaan en hoe het een relevant publiek op inspirerende wijze wil vinden en vasthouden .	-0.40902426838874817
-Echter , Slovenia 's overheid wil niet gaan publiek met de informatie over wie de kopers van haar obligaties waren . Bovendien , het feit is dat Slovenia heeft in de afgelopen jaren zijn overheidsschuld verhoogd van ongeveer 20 tot 25 procent tot bijna 73 procent van het bbp , zei Čufer . Zodra de nieuwste dual-tranche dollar obligatie emissie is geanalyseerd , voorbereidingen zal beginnen voor een nieuwe , zei hij in een televised interview .	-0.4185597896575928
+Maak het openbaar.
+Om het openbaar te maken?
+Ik zal het openbaar maken.
+Ja, ga het openbaar maken.
+- Ga naar het publiek.
+Ik zal het openbaar maken.
+Chicago Public Radio
+Dit kan niet openbaar worden.
+- Ik zal het openbaar maken.
+We kunnen het niet openbaar maken.
+- Ik ga het openbaar maken?
+En Chicago Public Schools.
+Morgen maken we het openbaar.
+Als we het openbaar maken...
+Hij zal het openbaar maken.
+Laat staan publiek te maken.
+Gaat hij het openbaar maken?
+Hij wilde het openbaar maken.
+We maken het bekend met Shepherd.
+Hij kan het zelfs openbaar maken.
+Wil je het openbaar maken?
+Laten we het openbaar maken met Weiss.
+We kunnen het nog niet openbaar maken.
+Oké, maar waarom openbaar maken?
+Hoe gaan we het openbaar maken?
+Dan kan ik het openbaar maken.
+Uiteindelijk ga je het openbaar maken.
+Ze willen het openbaar maken.
+Hij probeert het openbaar te maken.
+Praat met me, maak het openbaar.
+Misschien moeten we het openbaar maken.
+Ga dit nu openbaar maken.
+Misschien moeten we het openbaar maken.
+Je kunt het publiek maken, zeker.
+Hij wilde het openbaar maken.
+Begrijp je dat ik het openbaar ga maken?
+Ik wil het openbaar maken.
+- voordat je het openbaar maakt.
+Ik zal het niet openbaar maken.
+We moeten het openbaar maken.
+Wanneer gaat dit openbaar worden?
+- Hij gaat het niet openbaar maken.
+We gaan maandagochtend naar het openbaar.
+{0}van{1} {2} {0}published{1} {3}Chicago Public Radio
+We moeten het openbaar maken.
+Ja, we gaan het openbaar maken.
+Niet voordat we het morgen bekend maken.
+Nee, hij wilde het openbaar maken.
+19 december 1944, Lugo Publieke ambtenaar
+Ik wil het niet openbaar maken.
+Organon zou het openbaar maken.
+We gaan morgen naar het openbaar, en iemand...
+Je hoeft het niet openbaar te maken.
+Waarom ging Shelley niet naar de beurs?
+Ze laten dit niet openbaar maken.
+Godzijdank ging de mijne niet openbaar.
+Ik ga nu liever niet naar buiten.
+Moeten we het niet openbaar maken?
+Dus je bent klaar om het openbaar te maken?
+Ging Zach Piller het openbaar maken?
+Wanneer ga je het openbaar maken?
+We moeten het openbaar maken, nu.
+Maak het publiek bekend met "Heeft iemand hem herkend?"
+Gaan jullie het openbaar maken?
+Wanneer ga je het openbaar maken?
+Waarom ging hij niet naar buiten?
+CRS wordt niet openbaar gemaakt, ze zijn familiebezit.
+Zodra we het openbaar maken, komen ze naar voren.
+Als ik het openbaar maak, precies nul minuten.
+Ik zal het openbaar maken als het moet.
+Ze moeten gewaarschuwd worden.
+Je schoonzoon stond op het punt bekend te worden.
+Hij probeert het openbaar te maken.
+Willen ze dit openbaar maken?
+- Je kunt het nu niet openbaar maken.
+Maar nadat je het openbaar hebt gemaakt, is het allemaal weg.
+Ik ga niet openbaar maken met de informatie.
+Wat als we dit openbaar maken?
+We moeten dit openbaar maken.
+Ik wil niet dat dit openbaar wordt.
+Ik denk echt dat we het openbaar moeten maken.
+Je persoonlijke zaken gaan niet openbaar worden.
+Je kunt dit vandaag niet openbaar maken.
+Daarom moeten we het publiekelijk maken.
+29 april 1938, Sligo Vertegenwoordiger van de overheid Ierland
+Je hebt de sheriff zover gekregen om het openbaar te maken.
+Maak het openbaar en niemand zal je geloven.
+Zal Pelham publiekelijk gaan of privé blijven?
+We gaan zo snel mogelijk naar buiten.
+Wanneer kan ik het openbaar maken met jou?
+- In dit geval, maak het publiek bekend.
+We willen het niet openbaar maken.
+Dus toen Kevin dreigde het openbaar te maken...
+Wil je het dan openbaar maken?
+Als je dat deed, zou je het openbaar maken.
+We moeten dit openbaar maken.
+Ze zei dat ze het openbaar wilde maken.
+Denk je dat ik bang ben om het openbaar te maken?
+Ik dreigde ermee bekend te maken.
+Wanneer ga je dit openbaar maken?
+Denk je niet dat we het openbaar moeten maken?
+Ik denk dat het tijd is om het openbaar te maken.
+Wie zegt dat we het openbaar moeten maken?
+Je hebt 24 uur voordat we het openbaar maken.
+We zijn nog niet klaar om het openbaar te maken.
+Denk je dat ik dit niet openbaar ga maken?
+Ik wil niet dat het openbaar wordt.
+Je moeder moet dit openbaar maken.
+Waarom niet openbaar maken, zichzelf redden op die manier?
+Misschien waren sommige dingen voorbestemd om het openbaar te maken.
+We moeten het openbaar maken.
+Is er al een reden om het openbaar te maken?
+We zijn nog niet klaar om het openbaar te maken.
+Dus je wilt niet dat dit openbaar wordt.
+Betalen of dit openbaar maken.
+We moeten dit nu openbaar maken.
+Ik zei tegen de burgemeester dat hij het niet openbaar moest maken.
+Dr. Gerard overweegt om het openbaar te maken.
+Je wilt niet dat dit openbaar wordt.
+Je hebt gelijk, we moeten het openbaar maken.
+Nu je afgestudeerd bent, kunnen we het openbaar maken.
+Wil je dat ik dit openbaar maak?
+Jude, er is geen taart.
+- Dreigde het openbaar te maken, hun leven te ruïneren.
+Maak de aankondiging morgen, tijd om het openbaar te maken.
+Ze kunnen hem daarmee niet openbaar maken.
+Nu je afgestudeerd bent, kunnen we het openbaar maken.
+We kunnen het openbaar maken met wat we gevonden hebben.
+Of moet ik het nu openbaar maken?
+Dus, dan gaat hij het niet openbaar maken, toch?
+Hij wil vast wel publiekelijk gaan.
+Steve wil het nog niet openbaar maken.
+Ze dreigt, ik weet het niet, openbaar te worden.
+Laten we dit gebruiken en het openbaar maken.
+En dan... ga je het niet openbaar maken?
+Begrijp je nu waarom ik het niet openbaar kan maken?
+Dat hebben we toch niet openbaar gemaakt?
+Om haar te overtuigen om het openbaar te maken.
+Zorg voor me, of ik ga dit openbaar maken.
+En toen dreigden ze het openbaar te maken.
+Ja, en ze wil niet dat het openbaar wordt.
+Omdat ik links teruggaf toen ik het openbaar wilde maken.
+Het is geen goed moment om het openbaar te maken.
+Arnold wilde het openbaar maken.
+Het vroeg $50.000, of hij zou het openbaar maken.
+De Fargo Public Library is gevestigd in het centrum van Fargo.
+Dreigde Miss Tyler het openbaar te maken?
+En ze dreigde het bekend te maken met de affaire.
+Als je het openbaar maakt, durven ze je niet aan te raken.
+Nieuwe nummers voordat we het openbaar maken?
+Mass Transit & Benzine Prijzen: Tijd om publiek te gaan?
+Wil je dit openbaar maken?
+Ik waarschuw je om het niet openbaar te maken, Bud.
+Ik heb nooit gedreigd om bekend te maken over onze relatie.
+Jake wilde het bekend maken over ons, maar ik...
+Heeft Emily gedreigd het openbaar te maken?
+Waarom gaan ze niet naar de beurs met mij?
+Als je dit openbaar maakt, kunnen ze je niets maken.
+Daarom is het tijd om het openbaar te maken, Barton.
+We zouden toch naar buiten gaan als Wells...
+Het is omdat je dreigde om het openbaar te maken, is het niet?
+Zodra we een overeenkomst hebben, gaan we niet openbaar.
+We kunnen het niet openbaar maken voordat we het lichaam hebben gevonden.
+- en Luke dreigde ermee bekend te maken.
+Niemand in mijn team zou het openbaar maken tegen mij.
+We gaan dit niet openbaar maken.
+Ik wilde het toch bekend maken met de kaart.
+Waarom ga je het niet gewoon openbaar maken met die shit?
+Toen hij het openbaar wilde maken, hebben ze hem gekruisigd.
+We willen het niet openbaar maken.
+Godzijdank zijn we niet publiekelijk gegaan met jouw keuze.
+Burnson's mensen zitten me op de hielen om het openbaar te maken.
+Ze heeft niets om openbaar mee te maken, begrijp je?
+De commandant vloog naar D.C. om het openbaar te maken.
+Ik ben hier om te zeggen dat je het niet openbaar moet maken.
+Je kunt niet publiekelijk gaan met een "niet drinken" bestelling.
+Ik wilde dat je het wist voordat we het openbaar maken.
+Als je zoveel weet, waarom ga je het dan niet openbaar maken?
+We moeten beiden openbaar maken met onze zonden en boete doen.
+Omdat we een bedrijf zijn dat op het punt staat publiek te gaan.
+Stel dat we het openbaar maken, met jouw verhaal...
+Als je het openbaar maakt, doe je tv-optredens.
+We zijn pas in '69 bekend geworden.
+We maken het bekend over Walker en vragen om hulp bij het vinden van hem.
+Hij wil het bekend maken over Rickman.
+Ze moest het zwijgen opgelegd worden voordat ze het openbaar kon maken.
+Misschien dreigde ze het zijn vrouw te vertellen, om het openbaar te maken?
+Als alles veilig is, kunnen we het vanavond openbaar maken.
+Als we dat hadden, zouden we het openbaar maken met zijn betrokkenheid.
+We kunnen zelfs openbaar maken, andere mogelijke slachtoffers wegjagen.
+Misschien moeten jullie stoppen met rondsnuffelen en het openbaar maken.
+Ik denk dat het tijd is om het onderwerp openbaar te maken.
+Als we het openbaar maken, gaan we in paniek raken.
+Wat zei Colin dat Jeff wilde doen, openbaar maken?
+Ik moet je vragen om het nog niet openbaar te maken.
+Jij en Kasper kunnen maar beter naar buiten gaan met jullie relatie.
+Israël wil publiekelijk gaan, Palestina de schuld geven van de aanval.
+Ze wilden ons de schuld geven en het openbaar maken.
+Ik denk dat de OvJ dit niet openbaar wilde maken.
+Als we het openbaar willen maken, hebben we meer nodig dan speculatie.
+Als ze dat zijn, dan kunnen ze publiekelijk gaan.
+De Cowboy is jouw jurisdictie ontvlucht.
+Clarke, dat kan hij niet.
+Ga je de burgemeester ermee neuken?
+Anders ga ik naar het publiek met Kapeniak en de Kern-redactie.
+Weet je zeker dat je dit openbaar wilt maken?
+Je hebt gelijk, we moeten het openbaar maken.
+En ze dreigde het openbaar te maken met wat ze weet.
+We kunnen hem oppakken voor verhoor, en dan openbaar maken.
+We gaan niet naar buiten, er sterven nog meer onschuldige mensen.
+Kunnen we een paar dagen wachten voordat we het openbaar maken?
+Wanneer gaan we naar buiten en wanneer beginnen we te evacueren.
+Dankzij je tape, heb ik besloten om het openbaar te maken.
+Misschien komt dat omdat jullie ons niet toestaan om het openbaar te maken.
+Laat z'n foto vrij bij de Berlijnse politie.
+In feite dreigde hij het openbaar te maken met jouw hele operatie.
+Kun je je de pers voorstellen?
+Als we dit openbaar maken en het mis hebben, is het voorbij.
+Het duurde niet lang voordat haar privé-onderdelen openbaar werden.
+De laatste U.R.L. die ze bezocht was... het kantoor van de Chicago openbare verdediger.
+Morgenochtend gaan we dit openbaar maken.
+Misschien moet ik het hier openbaar maken.
+En ik ben een komiek, dus ik ga het openbaar maken met deze grappen.
+Als ik dit openbaar maak, dan is de reputatie van de Warblers...
+Maar als je dit openbaar maakt, word je woest.
+Don kostte haar een miljoen dollar toen we het niet openbaar maakten.
+Dat zou betekenen dat de capillaire schade openbaar wordt gemaakt.
+Maar als je het openbaar maakt of aanklaagt, wordt het aanbod ingetrokken.
+Ze zei dat ze het zou publiceren met een artikel.
+Het gedisciplineerde kind is veel beter uitgerust om openbaar te gaan.
+Dreigde hij bekend te maken over de meltdown op de Gloucester?
+Dit kan niet openbaar worden, het komt er wel uit.
+Wat we willen doen is publiekelijk gaan en getuigen oproepen.
+En, de volgende stap, wanneer ga je het openbaar maken?
+Papa, weet je zeker dat jullie klaar zijn om het openbaar te maken?
+Jij hebt de foto gelekt.
+En de dag dat ik vermist word is de dag dat ze openbaar worden.
+Ja, en hij staat op het punt deze week bekend te maken met zijn aandelen.
+Oké, kijk of hij overtuigd kan worden om het niet openbaar te maken.
+Jij hebt de foto gelekt.
+Dat was goed van Dr Verrity om in ons voordeel openbaar te maken.
+Nu, er zijn follow-ups die ik wil starten voordat we openbaar gaan maken.
+Als je belooft het niet openbaar te maken totdat je met ons gesproken hebt.
+Je moet de reporter overtuigen zijn naam bekend te maken.
+Als we nog één investeerder tekenen, moeten we het openbaar maken.
+We moeten wachten tot het bedrijf bekend wordt.
+Het is nog niet genoeg om het openbaar te maken, maar het is een begin.
+Als we het autopsierapport openbaar maken, zal de publieke opinie veranderen.
+Ik wist niet zeker of je klaar was om bekend te maken met de hele...
+Een paar weken later dreigde ze haar verhaal bekend te maken.
+Waarom zou je jezelf niet bekend maken, als je zo tegen de regels bent?
+Denk je nog steeds dat Kincaid voor de operatie bekend zal worden met OTI?
+Jij wint, wij gaan naar het openbaar, wij hangen onszelf op.
+Wat als we het over 48 uur openbaar maken?
+Ze moet zich gerealiseerd hebben dat het openbaar zou worden.
+We moeten het openbaar maken met onze pijn, zodat geen andere vrouwen lijden...
+Jij, ik, Shelby Moss en Vanessa Chandler, dan gaan we het openbaar maken.
+Lightman wilde het openbaar maken met wat hij geloofde dat het echte verhaal was.
+Nadine vindt dat ik openbaar moet maken wat Andrada me heeft aangedaan.
+Mensen wachten hun hele leven op zo'n waardering.
+En ik ben blij om dit openbaar te maken als ik ze niet krijg.
+De president zou het waarderen als je dit niet openbaar maakt.
+We maken het openbaar, we steken de demonstranten aan en maken Devlin nog pissiger.
+Toen we je oplichterij ontdekten, wilde ik het openbaar maken.
+Nee, ik tekende papieren dat ik het niet openbaar zou maken en dat zal ik niet doen.
+Hij wilde niet dat de affaire openbaar werd, dus liet hij haar vermoorden.
+Ik moet dit openbaar maken.
+We weten dat Steve op het punt stond bekend te maken over de defecte klep van zijn bedrijf.
+Ze vertelde Norton dat ze het zou publiceren met wat ze wist.
+Elke keer als ze een aanbod krijgt, dreigt ze het openbaar te maken.
+Doe uw eigen analyse: Is nu de tijd voor u om te gaan openbaar?
+Als ze zien dat je dat doet... zoek dan uit wie ze financiert, ga het openbaar maken.
+Ze hebben duidelijk geen haast om het openbaar te maken omdat we niet geboeid zijn.
+Je hebt zes uur, daarna gaan we openbaar met alles wat we hebben.
+Ik heb hem laten beloven nog niet bekend te maken, maar het is voorbij.
+Er zijn er nog dertien, en als je me arresteert, gaan hun namen openbaar.
+Maar voordat hij het openbaar kon maken... besloot Bree er een eind aan te maken.
+Schat, ik wilde niet dat het openbaar werd.
+Ze dacht waarschijnlijk dat ze eruit kon komen als ze dreigde het openbaar te maken.
+We moeten de wereld vertellen dat we de black-out veroorzaakten.
+Misschien als we haar foto openbaar maken, herkent iemand haar.
+Grasshopper werd daarmee de eerste Zwitserse sportclub die openbaar werd gemaakt.
+Als we het openbaar maken, moeten we de klap op ons nemen voor de Hoffmans.
+Als we het bekend maken met Joe's verhaal, kijk dan naar de dollars.
+Ik bracht Wilson hier speciaal om het openbaar te maken, net zoals je vroeg.
+Wat nog meer reden is om het niet openbaar te maken tenzij hij het goed vindt.
+Ik hoop dat het niet openbaar wordt, maar als het helpt om die klootzak te pakken...
+Als we met Cummings naar buiten gaan, wordt de geloofwaardigheid van dit kantoor vernietigd.
+Ze willen het openbaar maken, en we moeten ze tegenhouden en dit oplossen.
+Ik heb het logboek en de tubes water.
+Als je het openbaar maakt, ga je tegen heel machtige mensen in.
+De aanklacht werd ingetrokken en de aanklager liet haar naam nooit openbaar maken.
+We moeten de wereld vertellen dat we de black-out veroorzaakt hebben.
+Als we deze informatie openbaar maken, krijgt de pers een stijve van 7 inch.
+Of je geeft me precies wat ik wil, of ik maak dit openbaar.
+Denk je dat hij zijn kinderen ooit naar een openbare school in Chicago zou sturen?
+Zorg ervoor dat hij er is, of anders ga ik naar de Aquino bestanden.
+SECNAV is nog niet klaar om publiek te gaan, vooral als de technologie is aangetast.
+Een goed motief is dit: mij dwingen om het bedrijf openbaar te maken.
+Ik kon hem niet laten praten... of alles openbaar maken.
+Als ik het openbaar maak met wat ik weet, kan het een industrie ten val brengen.
+Ik garandeer je, tegen de tijd dat je het openbaar maakt, zal ze niets lijken op een bedreiging.
+Denk je niet dat het aan weerwolven is om te beslissen of we het openbaar willen maken?
+Zolang je het maar openbaar maakt bij het begin van de ochtendnieuws cyclus.
+Of je gaat naar buiten en trekt je nominatie in, of ik maak het bekend over onze baby.
+Het is mijn plicht u te informeren dat als u deze operatie openbaar maakt...
+Ze dreigde het openbaar te maken, ze moesten iets doen om haar stil te houden.
+Maar we hebben garanties nodig dat je niet bekend wordt met het gerucht dat je dreigde uit te zenden.
+Terell dreigde het bekend te maken over m'n moeder.
+We hebben meer stemmen nodig voor de confrontatie, maar we willen het niet openbaar maken...
+Als de CIA de band gebruikt die ik maakte om Burov te chanteren, zal ik het openbaar maken.
+Ze wilde het bekend maken met de affaire, en Lawson liet haar ervoor vermoorden.
+Eigenlijk is het een manier om kapitaal aan te trekken... voor een bedrijf dat probeert het openbaar te maken.
+Pivotal Software, waarvan Dell Technologies de meerderheidsaandeelhouder is, heeft ingediend om publiek te gaan.
+Je probeerde Novak te elimineren omdat hij van plan was het openbaar te maken.
+Maar kijk dan, Neyers flipt, chanteert Blunt. Dreigend om publiek te gaan vlak voor Blunt's IPO.
+Ik zat te denken, wat als we het openbaar maken, het verhaal op het internet plakken?
+Er zou een hoorzitting zijn, het zou onvermijdelijk openbaar worden en iedereen in LA zou het weten.
+In dit land krijgen degenen die publiekelijk gaan tegen apartheid... de status van paria.
+Als je besluit dit niet openbaar te maken, is dat niet omdat je Casey beschermt.
+Tijd om publiekelijk te gaan Achter elk Vrije Software-initiatief en organisatie zijn echte, gepassioneerde hardwerkende mensen.
+Ik moet de klap voor de NRI verzachten voordat we het openbaar maken.
+We zullen de burgers en de gebruikelijke voorbereide maatregelen in de gaten houden, mochten ze het openbaar willen maken.
+We willen dat hij denkt wat het beste voor hem is: met ons schikken, of we gaan het openbaar maken.
+Maar als we onze mond houden, heeft ze niets om bekend mee te maken, begrijp je?
+We kunnen het openbaar maken, maar dan vertrouw je op de media om dit niet te verpesten.
+Het is hun beslissing, wat wij ze geven is van ons.
+En toen je klaar was om het openbaar te maken... onthulde je je geheime boodschap met druivensap.
+Ik heb genoeg om naar White Valley Farms' kip te wijzen.
+Als ik faal, ga je de dag erna openbaar maken met jouw steun voor mij.
+Je kunt dit in je voordeel doen, maar je moet het nu openbaar maken.
+Maar zelfs als deze man wel bestond, denk je niet dat het zijn beslissing is om het openbaar te maken?
+Morgen... of je trekt je nominatie in of ik maak het bekend over onze baby.
+Chicago Public School studenten om te werken om hun wetenschap en wiskunde te verbeteren, en mensen vroegen me,
+Dana vond een fout en je wilde zeker weten dat het veilig was om het openbaar te maken.
+Waarom zou Alex zijn broers e-mails wissen als hij wilde dat Laura ermee naar buiten kwam?
+Nou, als hij het weet, zal hij het gebruiken om de deal te doden, dreigen openbaar te worden, tenzij...
+Je kunt de rechter vragen om je uit de zaak te halen, maar je kunt het niet openbaar maken.
+Ja, en als hooggerechtshof rechter, weet ik dat zodra ik publiekelijk ga,
+Waarom zou Alex zijn broers e-mails wissen als hij wilde dat Laura ermee naar buiten kwam?
+Mrs Logan, als we het openbaar maken met Cummings, zal de reputatie van de president niet het enige slachtoffer zijn.
+Maar, Mr President, het komt erop neer... we kunnen niet toestaan dat Leonard bekend wordt met wat hij weet.
+Het is tijd om publiek te gaan met de Aruna video en laat de chips vallen waar ze kunnen.
+Je zegt dat ze een geheime agent is, dus ik vind het zeer onwaarschijnlijk dat ze dreigt het openbaar te maken.
+Als je het openbaar maakt, word je gezien als een verdubbeling... en ik ben een slechte weddenschap.
+Ze verzamelen de buccale uitstrijkjes, en dan, waarschijnlijk, zal de aanklager het openbaar maken met zijn onderzoek.
+Als ik het openbaar maak, ondergraaf ik mijn geloofwaardigheid, wat elk argument dat ik voor het gerecht breng, zal schaden.
+Ze zei dat hij wat dingen moest uitzoeken voordat ze openbaar konden worden.
+Het is niet dat we het openbaar kunnen maken over de troep, het zou jou definiëren.
+Het is gewoon lastig, weet je, en... ik wil het niet openbaar maken tenzij ik weet dat het echt is.
+Je ontdekking zal over een paar dagen openbaar worden, en je ouders zullen er zeker achter komen.
+De Chinese regering heeft gedreigd om informatie openbaar te maken die in tegenspraak is met een van onze verhalen.
+En dan komt Henry langs en wil dat ik hem help met Eldridge's leugens?
+Mijn beste vrienden Todd en Marty hebben geen idee dat ik de eerste superheld was die het openbaar maakte.
+Dat bewijs kan niet openbaar worden als we willen dat dit onderzoek voor blijft op het... welk onderzoek?
+Frank, ik zei je dat ik hier nog niet klaar voor was, maar toch ging je door.
+Ja, en ik ben een man zonder pensioen die de stad moet verlaten als ik het openbaar maak.
+Dus je ontsloeg hem voor het geval hij het openbaar zou maken, niemand zou hem geloven.
+Laten we vandaag de overeenkomst openbaar maken om de moordenaars te laten zien dat we niet verplaatst zullen worden.
+Imagic trok zijn beursnotering in de dag voordat zijn aandelen openbaar zouden worden; het bedrijf stortte later in.
+Ik zei het je, als je met mij naar buiten wilt gaan, met ons, dan zal ik vieze, publieke flirten doen.
+Het kostte jaren om te plannen en nu dreigt Tyler Brody het openbaar te maken en alles te verpesten.
+Uit respect voor haar wilde ik het niet openbaar maken, of commentaar geven op hun relatie tot nu toe.
+Zodra Fayed is uitgeschakeld, zal iedereen in de rij vallen en ik kan openbaar maken met mijn voorstel.
+Beide partijen komen overeen om dit niet openbaar te maken, maar hun deadline voor dit... is nu.
+De Deense en Amerikaanse autoriteiten gaan een paar dagen later openbaar over de crash, waarbij elk stralingsrisico wordt onderschat.
+Zeg tegen je superieuren dat als er iets met haar gebeurt, ik het openbaar zal maken met wat ik weet.
+Ze probeerde het nooit uit te maken, en ik heb nooit gezegd dat ik het openbaar zou maken als ze dat deed.
+Zeg tegen Hobb dat als hij ze niet laat gaan, we het openbaar maken met bewijs... bewijs dat ze bestaan.
+Maar als Bedford de affaire openbaar wilde maken, waarom zou hij dan in de club zijn die Tina bedreigt?
+En dan gaan we openbaar, openen een kantoor in Buenos Aires, en Elvis speelt bij Tammy's Sweet 16.
+Ja, je hebt de mogelijkheid om af te zien van publieke steun, als dat het soort kandidatuur is dat je wilt.
+Naar mijn mening is de beste formule om de zaak eerst onder ons te bespreken, voordat we openbaar worden.
+Als we het openbaar maken, wil ik niet dat het verandert in een circus. Houd het kort en niet sentimenteel.
+Als je deze mensen weer achter ons aan laat komen, hebben we geen andere keus dan het openbaar te maken.
+We denken dat ze een paar ASA's heeft die... publiekelijk gaan.
+Maar als de CIA de band gebruikt die ik maakte om Burov te chanteren, zal ik het openbaar maken en bekennen.
+Gonzalez moet erachter zijn gekomen dat er een mol was, de mol vermoordde hem voordat hij het openbaar kon maken.
+Jullie kunnen het niet openbaar maken dat jullie het gezicht van het bedrijf zijn.
+We moeten Dr. Harris ook hierheen halen, voor het geval we iets openbaar moeten maken.
+Als we besluiten om dit openbaar te maken, geven we je zes uur, maar dat is het einde.
+Daarom heb je je PR hoofd een valse memo laten plaatsen, wetende dat Donna het zou vinden en openbaar zou maken.
+Dus als je iets bekend maakt met je problemen, zorg ik ervoor dat iedereen weet waar hij moet wijzen.
+Ik bedoel, dit is een potentieel explosieve situatie... en hoewel je eerste instinct zou kunnen zijn om het openbaar te maken...
+Ik wil niet dat we er allemaal dom uitzien, toch?
+En bovendien gaan we het publiekelijk maken, wat een heel ander monster is - op zichzelf.
+De vicepresident vertelde me dat je Sergeant Brody overtuigde... om zijn verhaal openbaar te maken.
+Ik weet niet wat je van plan bent, maar als je hem niet tegenhoudt, ga ik dit openbaar maken.
+Nu Bunkie vermoord wordt en die Fo-Fo rotzooi... is het misschien niet het juiste moment om het openbaar te maken.
+Alle vandaag geschetste hervormingsvoorstellen van de Commissie zullen tot eind oktober 2006 openbaar worden geraadpleegd.
+Als we hem niet binnen 24 uur kunnen identificeren... moeten we het openbaar maken met wat we weten.
+Bobby schreeuwt dat hij ontslag moet nemen... om tegen me in te gaan omdat ik deed wat hij adviseerde.
+Omdat we hun terugkeer naar de Aarde verhinderden nadat ze in duisternis begraven waren, maakten ze zichzelf en alles ging openbaar.
+Toen ik tegen Cleaver zei dat ik het moest uitmaken, dreigde hij het bekend te maken.
+Die klootzakken gaan naar de beurs en ze geven alleen maar om hun bottom line en hun rotzooi.
+McGuire zal nooit naar de politie gaan... omdat hij bekend moet maken dat zijn klantenlijst gestolen is.
+Ze zullen willen horen, als China begint te poseren... zijn we klaar om bekend te maken met de plannen en de alliantie.
+Je sprak de waarheid tegen minderheidsbelangen, dus als die twee ASA's openbaar worden gemaakt, worden ze gezien als zure druiven.
+Maar je hebt gelijk, het laat me er slecht uitzien als we het openbaar maken, en het is ook niet goed voor jou.
+Ze vertelde me dat je hem probeerde te overtuigen niet bekend te maken over het feit dat de Ark stervende was.
+Misschien betaalde Bedford haar om het openbaar te maken en bedreigde Morgan haar om stil te zijn en dan weg te gaan.
+Als dit Danny is... kunnen we hem niet openbaar maken.
+Wil je het bekend maken met Phonaxis?
+We zeggen ook dat als ze het bekend maken, we het ontkennen.
+Thorne moet naar de beveiliging kijken zodat hij klaar is voor je als je het openbaar maakt.
+En als er iets met mij of Miss Parsons gebeurt, heb ik geregeld dat alles wat we over jou hebben openbaar wordt gemaakt.
+Stel je voor dat je moet kiezen of je het al dan niet openbaar moet maken met een toxscreen als je een filmdeal hebt.
+Tijdens het diner die avond... vroeg je me of ik het openbaar zou maken als het het verschil was tussen overwinning en nederlaag.
+Dat is wat ik zei, maar het gaat openbaar worden en invloed hebben op Jamie en Nathan's basketbal contract is voor vernieuwing.
+En omdat je zweet op alle drie stressplekken waar mensen regelmatig gaan zweten voordat ze publieke vernedering ondergaan.
+We moeten het openbaar maken met jouw pijn... mensen hierover laten praten... Beiste tot de volgende Mary Kay Letourneau maken.
+Gezien hoe ernstig dit is, Teresa... je stafchef die omkoopt... begrijp je mijn plicht om het openbaar te maken, toch?
+Ik dacht dat we het er allebei over eens waren dat je het moest vertellen over Walt's betrokkenheid bij alles wat er vandaag gaande is.
+DocuSign, het e-handtekening en digitale transactie management bedrijf, heeft ingediend om publiek te gaan op de Nasdaq uitwisseling onder het symbool.DOCU.
+Ze ging naar haar supervisor, en dreigde het openbaar te maken, en nu zit ze in een gevangenis in Pakistan.
+Niet te missen is het Chicago Public Library's Cultural Center dat jaarlijks honderden gratis programma's, concerten en tentoonstellingen presenteert.
+Deze conferentie was onze kans om weg te glippen op de laatste dag, openbaar te maken met onze dossiers, al ons wapenonderzoek.
+Hij had snel geld nodig, dus hij zou het verkopen aan de jongens in Redmond... in plaats van te wachten en het openbaar te maken.
+We moeten zoveel mogelijk bewijs verzamelen als we kunnen... dus als we dit openbaar maken... raken we het doelwit.
+Want als Duncan iets overkomt, zullen mijn partner en ik de details over Operatie Desert Rain openbaar maken.
+Hij drong er bij hem op aan om het openbaar te maken. Zijne Heiligheid dacht dat de ontdekking het bestaan van een goddelijke macht wetenschappelijk kon bewijzen.
+Als je het openbaar maakt, en 30 miljoen mensen horen wat je te zeggen hebt, zal niets, ik bedoel niets, nooit meer hetzelfde zijn.
+Zodra Bellamy terug is met die machine, gaan we alles openbaar maken en zorgen dat je de hulp krijgt die je nodig hebt.
+Hierdoor zal de claim tegen The Blue Limit openbaar worden voordat we zelfs een zaak tegen Gudmund Friedrich kunnen opbouwen.
+Het komt erop neer dat als je dit openbaar maakt, niemand je zal geloven omdat niemand het verhaal zal steunen.
+Het is betreurenswaardig dat deze regeling niet publiekelijk is herzien, aangezien mijn beoordeling ervan zou luiden: "Ficties komen tot een fictief einde".
+Luister, over zes maanden zitten we waarschijnlijk in verschillende posten, dan kunnen we publiekelijk gaan - we kunnen... we kunnen dit doen.
+Als hij zich niet settelt, gaat de dader het openbaar maken... en dan vraagt iedereen zich af waarom een agent met 15 andere civiele zaken...
+Email Consulogo Publicidad Titel: Naam: E-mail: Boodschap: Ja: Ik wil informatie ontvangen over Amarillascolombia.net Code (Kopieer de anti-spam code)
+Grant dacht dat als we een kleine partij ontwikkelden, dan vernietigden we de notities, dat we het bewijs zouden hebben dat we nodig hadden om het openbaar te maken.
+Als we bekend maken dat we de moordenaar van zijn vrouw hebben gevonden, is er een goede kans dat Curtin zichzelf aangeeft, als hij nog leeft.
+We hebben met Grigory besproken... of hij wel of niet publiek moet gaan... voor de Olympische Spelen.
+Als je deze operatie openbaar maakt, pleeg je verraad en wordt je behandeld als een verrader van de Verenigde Staten van Amerika.
+En ik was de 40 procent eigenaar van een dotcom die publiek zou gaan en zonder twijfel miljarden meer waard zou zijn.
+Als deze zaak bekend zou worden, de woede die uw cliënt zou krijgen van de media, de burgers... zijn deuren zullen sluiten, Harriet.
+De hoeveelheid informatie die naar buiten komt groeit de hele tijd, en meer mensen zijn bereid om publiek te gaan met de kennis die ze hebben.
+Het is betreurenswaardig dat deze regeling niet publiekelijk is herzien, aangezien mijn beoordeling ervan zou luiden: "Ficties komen tot een fictief einde".
+Ik probeerde het haar uit haar hoofd te praten, maar ze was vastbesloten om het openbaar te maken, om de hemel op al onze hoofden te brengen.
+Vier dagen later moest de Amerikaanse procureur-generaal John Ashcroft in een verrassingsactie - publiekelijk gaan met de zogenaamde Patriot Act No.
+Als Billy de kinderen dextro gaf en Luke de namen bekend zou maken, hadden ze allemaal veel te verliezen.
+schriftelijk. - (PT) Ik heb tegen dit verslag gestemd, omdat het pleit voor op kapitaal gebaseerde pensioenregelingen ten koste van de openbare pensioenstelsels die onder jouw beheer vallen, en voor verhoging van de pensioengerechtigde leeftijd.
+In het geval van succesvolle start-ups, het geld dat wordt betaald wanneer ze worden verworven of gaan publiek, komt ten goede aan degenen die het team samen.
+Dit incident zal openbaar worden, en ik zal moeten uitleggen hoe niet één, niet twee, maar drie leden van mijn regering werden vermoord.
+Het is mogelijk dat de boodschappen die je krijgt persoonlijk zijn en voor je eigen vooruitgang, omdat niet iedereen zal worden verwacht om openbaar te gaan.
+Op deze manier creëerde hij een uniek verslag over het surrealistische leven in communistisch Roemenië, waarmee hij pas na 1993 openbaar kon maken.
+De tijd is nu gekomen voor het Delft Urban Water Centre, met zijn officiële kick-off evenement op dinsdag 29 mei 2012.
+Verdiende hij het echt om de hele rotzooi openbaar te maken en hem zijn baan te kosten, allemaal omdat Thomas Kowalski een rood licht had?
+We moeten hem vermoorden als we het bestaan van het notitieboek niet openbaar willen maken... maar ik wed dat dat is wat onze superieuren zouden eisen.
+Nou, je hebt een van je trucjes nodig want wat heeft Zielinski's bron voor ons als hij ons niet openbaar laat maken?
+En zelfs als slechts één virtuele vreemdeling de hele waarheid wist, was het tijd om het publiek te maken met wat ik niet kon vergeven of vergeten.
+Mensen staan in wapens wanneer ze publiekelijk gaan, maar uiteindelijk sterft het geluid, omdat de simpele waarheid is dat mensen beschermd willen worden.
+Niemand buiten het agentschap, maar ik wil dat je weet, Roman, als deze documenten openbaar worden, zal het agentschap elke betrokkenheid ontkennen.
+Je moest het alleen zien om je de leugen te laten geloven, zodat je je eindelijk zou committeren en publiekelijk zou gaan met het nieuws.
+Ten eerste, als je een moordverdachte bent, ben je makkelijker te vinden, en ten tweede, om je in diskrediet te brengen, voor het geval je ooit tegen hen in het openbaar komt.
+Als ik moest raden, zou ik zeggen dat ze hem betaalden om te rapporteren of hun ontevreden voormalige werknemer van plan was het openbaar te maken.
+Feit is dat we publiekelijk moeten gaan en de mensen moeten vertellen wat we in dit Parlement hebben bereikt, inclusief onze antwoorden op voorstellen van de Commissie.
+Gautuma is nog niet klaar om bekend te maken met een drugsonderzoek... dus ik heb wat rondgekeken om te zien of er informatie van voorkennis gelekt wordt.
+Hij is in een opmerkelijke vorm, maar hij gaat niet naar buiten voordat de wonde op zijn hoofd wat meer genezen is, totdat het haar terug groeit.
+Dus wij van de Galactische Federatie zijn klaar om, zoals jullie het noemen, publiekelijk te gaan en zijn het eens geworden over een plan dat iedereen tevreden stelt.
+Een Special Forces eenheid ontdekte dit, en SOC liet ze vermoorden door een drone, en toen die drone piloot het openbaar probeerde te maken, werd hij vermoord.
+Ik bedoel, we moeten voorkomen dat dit medicijn naar buiten komt, Gene.
+Public Library Information: Chicago Public Library 400 South State Street Chicago, IL 60605 Telefoon (312)747-4300 Naast het bibliotheekcentrum, zijn regionale bibliotheken verspreid over de stad.
+Aanklachten tegen een hoer die we kunnen opruimen... maar het is moeilijk openbaar te maken als het gezicht van jouw bedrijf in de gevangenis zit voor moord.
+Ze dachten dat je het moest weten voordat ze het openbaar maken, ze willen je steunen, zonder twijfel, maar het is gewoon, ik bedoel, nu is niet zo goed, toch?
+Ik laat m'n advocaten hierheen komen, dan krijg ik m'n borg... en ga ik m'n zaak openbaar maken.
+Als hij 'nee' of 'nee' zegt, zeggen we dat we Farad wilden voor een top. We identificeerden de moordenaar, maar hij weigerde hem uit te leveren.
+Luister, Rupert, ga dit openbaar maken als je wilt... maar je winkel gaat er slechter uitzien omdat je het in de eerste plaats laat gebeuren.
+Ze beweren dat het minimaal vier dagen duurt om een gerechtelijk bevel te verwerken... en dat is pas nadat mijn kantoor dreigde het openbaar te maken.
+En je suggereert dat Craig Sterling de familie van de agent vond en Parisi overtuigde om bekend te maken met de vraag naar Rahim, allemaal om een rekening met ons te vereffenen?
+Ik zei dat we de waarheid konden vertellen... dat hij dacht dat de Wallace zaak gesloten was, dat als het niet voor jou en mij was,
+Lucy's moeder overlijdt tijdens een mislukte plastische chirurgie procedure, Lucy stemt in met Holt's ultimatum dat ze hun relatie openbaar maken nadat hij klaar is met werken aan zijn nieuwe film.
+En als je dat zwijggeld aanneemt, word je aangeklaagd voor verraad als mensen erachter komen. Daarom ging je niet naar het openbaar toen er vandaag lichamen kwamen.
+Spotify blijft zoeken naar extra inkomstenstromen als het duwt om publiek te gaan dit jaar en te voorkomen dat boete vergoedingen van de $ 1 miljard schuld ronde vorig jaar verhoogd.
+De dotcom, ironisch genoeg Snowball genoemd, was het allerlaatste consumentenwebbedrijf dat de volgende maand voor de ontplofte NASDAQ openbaar werd gemaakt, en ik ging 18 maanden van zakenhel binnen.
+De Commissie zal samen met de stakeholders van het MKB-financieringsforum34 blijven bijdragen aan voorlichtingscampagnes en een Europese informatiegids opstellen voor bedrijven die een publieke rol willen spelen.
+Een ander beveiligingsbedrijf FireEye zei dat ze communiceerden over de kwetsbaarheid met Microsoft voor een flink aantal weken en ging ermee akkoord om niet openbaar te gaan totdat Microsoft releases van de patch.
+Ik heb een diploma in bedrijfsstatistieken was van plan om mijn eigen bedrijf te starten op een dag opbouwen tot een groot bedrijf kijken het gaat openbaar misschien maken van de Fortune 500
+Nu hebben de politieke leiders al eerder beloften gebroken, maar dit Parlement kan het principe van het breken van zijn woord nauwelijks openbaar maken, maar dat is wat het verslag suggereert.
+Het winnen van de jackpot zou moeilijk te verbergen zijn, en het kan zijn dat je toch openbaar zou moeten gaan als een familielid of vriend per ongeluk onthulde dat je de winnaar was.
+Toch stuurden we een dag later een voorlopige bezwaarbrief.We lieten de koude ontvangst van de WBA ons niet ontmoedigen en besloten om, tot hun grote ergernis, publiekelijk te gaan.
+En nu -- nu -- dit meisje dat bij ons in de auto zat wil 250.000 of ze gaat openbaar maken en zeggen dat ik degene was die achter het stuur zat.
+Of we kunnen het bespreken op het nieuws van 5:00 als ik publiek ga met de families van twee vermoorde agenten en vragen waarom de aanklager in de weg staat van een eerlijk proces.
+Je hebt gefaald, en tenzij je wilt dat ik het openbaar maak met het feit dat je nog leeft, ga je me de namen geven van de mensen waar je mee gewerkt hebt.
+Bedrijfsbeeld in Colombië - Amarillascolombia.net Professionele consultancy > Bedrijfsbeeld Bedrijfsbeeld in Colombië Gratis advertentievoor uw bedrijf Zie ook Grafisch ontwerp Reclame Direct marketing Website ontwerp Consulogo Publicidad Algemene reclame, drukwerk, borduurwerk, gedrukt.
+Jullie zijn blij me te bellen als ik jullie uit de problemen moet halen, maar zodra ik het openbaar wil maken, breken jullie de brandslang uit?
+Volgens berekeningen van de NGO Publieke Burger, in de 14 staten waar de prijs van elektriciteit niet is gereguleerd, is het 52 procent hoger dan in de 36 staten waar het is gereguleerd.
+28 augustus 2012 Le Monde (Parijs) 3 81 Banken: Hoe IJsland haar bankiers stalkt In Londen heeft Barclays de rente op interbancaire leningen vervalst, terwijl Bankia in Madrid de boeken in orde maakte om openbaar te worden.
+Lees meer Greenpeace's safe choice for sustainability 22 apr 2013 Hans Visser corporates credit risk financial institutions NGO publieke sector ratingadvisering ratings risicoadvisering vermogensbeheerders Donaties moeten soms wachten op de juiste goede zaak.
+Ik heb nog een foto, dezelfde tijd, van een man in een kap met een pijl en boog die in Rusland opereert, en nu kan ik natuurlijk niets openbaar maken omdat ik volledig in diskrediet ben gebracht,
+Volgens The New York Times Book Review, Mary Ellen Quinn, directeur van de collectie ontwikkeling voor de Chicago Public Library, zegt dat het bibliotheeksysteem waarschijnlijk koopt zo veel boeken per jaar als worden gestolen.
+Estoy buscando: Uso: Soy el usuario final Es para revender o materia prima para producción Donde: Mi nombre: Mi email: Mi teléfono:(opcional) Enviar: Zie ook Bedrijfsbeeld Textielindustrie Bedrijfsbeeld Textielindustrie Consulogo Publicidad Algemene reclame, drukwerk, borduurwerk, gedrukt.
+Er zijn minstens twee bekende, Nederlandse, onafhankelijke, erkende, prominente opinieleiders, die bereid zijn om er met de pers over te praten. Ze zijn beschikbaar in de weken voor, tijdens en na de periode waarin u van plan bent om het publiek te maken.
+Ze was districtschef van 20 stedelijke filiaalbibliotheken voor de Chicago Public Library (CPL) en bekleedde andere bestuurlijke en publieke functies aan de CPL en de City Colleges of Chicago. Ze was vicepresident/president van de OCLC Member Council van 2007/2009.
+In feite, sparen op benzine is niet de primaire reden dat ik besloot om te gaan openbaren een paar jaar geleden. Ik gebruikte om de overbelaste snelwegen van Dallas te rijden om aan het werk te gaan; tijdens spitsuren zou het me 30 tot 45 minuten duren.
+$2 miljoen vooraf, $2 miljoen in een trust die zij beheert tot hij 25 is, en 2 meer in een trust in zijn naam, die zal worden vrijgegeven op zijn 30e verjaardag, gezien het feit dat hij akkoord gaat niet openbaar te gaan.
+De ambassadeur van zijn kant was aanwezig bij het publieke programma-evenement van BINGO, dat onder meer een toespraak omvatte van Paulo Lemos, de Portugese minister van Milieubeheer, die het belang benadrukte van BINGO voor een duurzame watervoorziening in Portugal en de rest van Europa.
+Een Alvin Ailey poster van Judith Jamison het uitvoeren van de dans "Cry," gewijd aan alle zwarte vrouwen overal. Een Bundu standbeeld, dat was van de Women's Society in Sierra Leone, en een certificaat voor de Chicago Public School studenten om te werken om hun wetenschap en wiskunde te verbeteren, en mensen vroegen me, "Waarom nam je op wat je nam?"
+De vraag is dan of we op verzoek van de meerderheid van de fractieleden het recht zouden hebben om een dergelijke vergadering onder vier ogen te houden, aangezien er zeker gevoelige kwesties zijn - zoals we allemaal van onze eigen vergaderingen weten - die tussen ons moeten worden opgehelderd voordat we met hen publiekelijk kunnen gaan.
+Beschrijf ook hoe de subsidie zal worden gebruikt, waarom een bijdrage van het Mondriaan Fonds op dit moment belangrijk is, en hoe het ook een stimulans kan zijn voor het initiatief op lange termijn; ook, hoe het initiatief is bedoeld om publiek te gaan en hoe het een relevant publiek op inspirerende wijze wil vinden en vasthouden.
+Echter, Slovenia's overheid wil niet gaan publiek met de informatie over wie de kopers van haar obligaties waren. Bovendien, het feit is dat Slovenia heeft in de afgelopen jaren zijn overheidsschuld verhoogd van ongeveer 20 tot 25 procent tot bijna 73 procent van het bbp, zei Čufer. Zodra de nieuwste dual-tranche dollar obligatie emissie is geanalyseerd, voorbereidingen zal beginnen voor een nieuwe, zei hij in een televised interview.

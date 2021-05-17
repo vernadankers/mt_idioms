@@ -1,6 +1,6 @@
-We moeten nog andere vissen bakken .	-0.49199867248535156
-Ik moet nog andere vissen bakken .	-0.40428197383880615
-Ik moet nog andere vissen bakken .	-0.6722474694252014
-Op dit moment moet ik andere vissen bakken .	-0.4720485210418701
-Ik neem aan dat jullie allemaal andere vissen moeten bakken .	-0.4687693417072296
-Vandaag moeten we andere vissen bakken , generaal .	-0.4719514846801758
+We moeten nog andere vissen bakken.
+Ik moet nog andere vissen bakken.
+Ik moet nog andere vissen bakken.
+Op dit moment moet ik andere vissen bakken.
+Ik neem aan dat jullie allemaal andere vissen moeten bakken.
+Vandaag moeten we andere vissen bakken, generaal.

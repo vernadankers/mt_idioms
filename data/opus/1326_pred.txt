@@ -1,15 +1,15 @@
-Zie je een man over een hond ?	-0.3577177822589874
-Ik moet een man zien over een hond .	-0.4527971148490906
-Ik moet een man spreken over een hond .	-0.3055657744407654
-Ik ga naar een man voor een hond .	-0.370921790599823
-Ik moet een man spreken over een hond .	-0.33045870065689087
-We zijn hier om een man te zien over een hond .	-0.31150996685028076
-Ik ga naar een man over een hond .	-0.3790430426597595
-Ik moet naar een man voor een hond .	-0.3934403359889984
-Ik moet naar een man voor een hond .	-0.3934403359889984
-Ik moet naar een man voor een hond .	-0.5282732248306274
-Ik denk dat ik naar een man ga over een hond .	-0.4387054741382599
-Nee , ik moet een man spreken over een hond .	-0.3982532322406769
-Maar net nu , moet ik een man zien over een hond , shalom .	-0.4549020528793335
-Als je het niet erg vindt , ik moet een man spreken over een hond .	-0.3687242567539215
-Ik moet naar een man over een hond , maar ik kan iemand bellen om dit vuil op te ruimen .	-0.41715145111083984
+Zie je een man over een hond?
+Ik moet een man zien over een hond.
+Ik moet een man spreken over een hond.
+Ik ga naar een man voor een hond.
+Ik moet een man spreken over een hond.
+We zijn hier om een man te zien over een hond.
+Ik ga naar een man over een hond.
+Ik moet naar een man voor een hond.
+Ik moet naar een man voor een hond.
+Ik moet naar een man voor een hond.
+Ik denk dat ik naar een man ga over een hond.
+Nee, ik moet een man spreken over een hond.
+Maar net nu, moet ik een man zien over een hond, shalom.
+Als je het niet erg vindt, ik moet een man spreken over een hond.
+Ik moet naar een man over een hond, maar ik kan iemand bellen om dit vuil op te ruimen.

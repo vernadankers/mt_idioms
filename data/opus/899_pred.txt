@@ -1,10 +1,10 @@
-Maak geen berg van een molenhoop .	-0.3470171391963959
-`` Waarom een berg van een molenhoop maken ?	-0.440662682056427
-We hoeven geen berg van een molenhoop te maken .	-0.3243160545825958
-Maar maak geen berg van een molenhoop .	-0.33471179008483887
-Bremer wilde geen berg van een molenhoop maken .	-0.325065016746521
-Beloof je een berg niet van een molenhoop te maken ?	-0.4354911148548126
-Het is niet nodig om een berg van een molenhoop te maken .	-0.37893080711364746
-Laten we nog geen berg van een molenhoop maken .	-0.4814288020133972
-Je maakt een berg van een molenhoop .	-0.37482714653015137
-Je maakt een berg van een molenhoop als je jezelf toestaat om gefrustreerd , gefrustreerd of bezorgd te raken .	-0.4383445382118225
+Maak geen berg van een molenhoop.
+"Waarom een berg van een molenhoop maken?
+We hoeven geen berg van een molenhoop te maken.
+Maar maak geen berg van een molenhoop.
+Bremer wilde geen berg van een molenhoop maken.
+Beloof je een berg niet van een molenhoop te maken?
+Het is niet nodig om een berg van een molenhoop te maken.
+Laten we nog geen berg van een molenhoop maken.
+Je maakt een berg van een molenhoop.
+Je maakt een berg van een molenhoop als je jezelf toestaat om gefrustreerd, gefrustreerd of bezorgd te raken.

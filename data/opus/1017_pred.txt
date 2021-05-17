@@ -1,33 +1,33 @@
-Van je rocker af .	-0.5824330449104309
-Je bent niet goed snik .	-0.7948818206787109
-Je bent niet goed snik .	-0.6332438588142395
-Je bent niet goed snik .	-0.6332438588142395
-Je bent niet goed snik .	-0.6332438588142395
-Je bent niet goed snik .	-0.7270416021347046
-Ben je van je rocker af ?	-0.6906242370605469
-Je bent niet goed snik .	-0.6332438588142395
-- Je bent gek .	-0.7510010600090027
-Je gaat uit je dak .	-0.6480087041854858
-Ben je gek geworden ?	-0.4027417004108429
-Je bent helemaal van de kaart .	-0.56586092710495
-Je bent helemaal van de kaart .	-0.5865347385406494
-Ben je gek geworden ?	-0.44757363200187683
-Je bent niet goed snik .	-0.6267455816268921
-Zijn jullie allebei gek geworden ?	-0.4520658254623413
-Je bent zeker niet goed snik .	-0.7180174589157104
-Je bent echt niet goed snik .	-0.633700430393219
-Ben je gek geworden ?	-0.47161927819252014
-Ben je gek geworden ?	-0.6226985454559326
-- Toen je uit je dak ging ...	-0.5479539036750793
-Ze heeft gelijk , Zab , je bent gek geworden .	-0.4205394983291626
-Ben je helemaal gek geworden ?	-0.4430241286754608
-Ben je gek geworden , Frank ?	-0.3964105248451233
-Ben je gek geworden of zo ?	-0.7218984961509705
-Arme Mathieu , je bent gek geworden .	-0.40882912278175354
-Je bent gek , oude dame . `` Oude dame '' ?	-0.46112871170043945
-Sommige mensen denken dat je gek bent .	-0.47229787707328796
-Ellen heeft gelijk , je praat over zulke agenten .	-0.5134032368659973
-Ze zegt dat je van je rocker af bent , ik zeg dat je maar de helft van je rocker bent .	-0.5352303385734558
-Ik doe alles wat ik kan om je bij te houden , en je bent helemaal van de kaart !	-0.526347279548645
-Wat verwacht je met zo ' n outfit te doen ?	-0.4845025837421417
-Nee , ik bedoel , ik lees boeken over UFO 's en samenzweringstheorieën , maar ik denk ... ik bedoel , ik vraag me nu af of je niet helemaal gek bent .	-0.3317311108112335
+Van je rocker af.
+Je bent niet goed snik.
+Je bent niet goed snik.
+Je bent niet goed snik.
+Je bent niet goed snik.
+Je bent niet goed snik.
+Ben je van je rocker af?
+Je bent niet goed snik.
+- Je bent gek.
+Je gaat uit je dak.
+Ben je gek geworden?
+Je bent helemaal van de kaart.
+Je bent helemaal van de kaart.
+Ben je gek geworden?
+Je bent niet goed snik.
+Zijn jullie allebei gek geworden?
+Je bent zeker niet goed snik.
+Je bent echt niet goed snik.
+Ben je gek geworden?
+Ben je gek geworden?
+- Toen je uit je dak ging...
+Ze heeft gelijk, Zab, je bent gek geworden.
+Ben je helemaal gek geworden?
+Ben je gek geworden, Frank?
+Ben je gek geworden of zo?
+Arme Mathieu, je bent gek geworden.
+Je bent gek, oude dame. "Oude dame"?
+Sommige mensen denken dat je gek bent.
+Ellen heeft gelijk, je praat over zulke agenten.
+Ze zegt dat je van je rocker af bent, ik zeg dat je maar de helft van je rocker bent.
+Ik doe alles wat ik kan om je bij te houden, en je bent helemaal van de kaart!
+Wat verwacht je met zo'n outfit te doen?
+Nee, ik bedoel, ik lees boeken over UFO's en samenzweringstheorieën, maar ik denk... ik bedoel, ik vraag me nu af of je niet helemaal gek bent.

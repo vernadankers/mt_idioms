@@ -1,500 +1,500 @@
-Rechtdoor ?	-0.3039969503879547
-Rechtdoor .	-0.4070759117603302
-Ga dan rechtdoor .	-0.28832030296325684
-Ga het podium op .	-0.46784910559654236
-Ga gewoon rechtdoor .	-0.44497060775756836
-- Ga rechtdoor ...	-0.43563172221183777
-Ga rechtdoor .	-0.4829017221927643
-Ga direct naar Rex .	-0.2940261662006378
-Jij gaat meteen naar huis .	-0.488564670085907
-Ga direct naar de mijne .	-0.32587867975234985
-Ga gewoon daarheen .	-0.6706553101539612
-Oh , ga direct naar binnen .	-0.5109681487083435
-Jij gaat meteen naar huis .	-0.488564670085907
-- Ga er recht doorheen .	-0.46774590015411377
-Ga nu rechtdoor .	-0.5063708424568176
-- We gaan rechtdoor .	-0.39748674631118774
-- Ga rechtdoor .	-0.571593701839447
-Ik ga meteen naar huis .	-0.2499411404132843
-Ga er gewoon doorheen .	-0.43996307253837585
-Ga nu rechtdoor .	-0.39406731724739075
-Ga rechtdoor door deze gang .	-0.5593253374099731
-Waarom ga je niet rechtdoor ?	-0.5427048206329346
-En ik ga rechtdoor .	-0.4451330006122589
-Ik beloof dat ik rechtdoor ga .	-0.33040302991867065
-Een man moet rechtdoor gaan .	-0.5574716925621033
-Blijf rechtdoor gaan .	-0.4897759258747101
-We gaan direct naar Sam .	-0.34189704060554504
-Ze zei dat ze meteen naar huis zou gaan .	-0.3359961211681366
-Loop naar de hel , Ike .	-0.2735600471496582
-Ze gaan rechtstreeks naar Washington .	-0.2967037558555603
-Oké , ga nu direct naar binnen .	-0.488395094871521
-Ga direct naar de poort .	-0.3850017189979553
-Kunnen ze daar niet rechtdoor gaan ?	-0.5289918184280396
-Het ging niet recht naar beneden .	-0.3321915864944458
-- Nou , winkelverkeer , ga rechtdoor .	-0.757023811340332
-Giles kan rechtstreeks naar de hel gaan .	-0.3407042324542999
-- Ga direct naar Nickkurtdale .	-0.39148423075675964
-Ga direct naar de meisjesnaam .	-0.36075589060783386
-Hij zei dat ik meteen naar binnen moest gaan .	-0.504378616809845
-Ga dwars door dat gat , oké ?	-0.38547688722610474
-Ga rechtdoor langs de naaldboomspar .	-0.5710916519165039
-En jij gaat direct naar de gevangenis .	-0.4686189591884613
-We gaan direct naar de dokter .	-0.2819729447364807
-Rechtdoor en dan rechts .	-0.3025434911251068
-Ga rechtdoor bij de eerste rotonde .	-0.271376371383667
-Ga rechtdoor , volg de rivierbedding .	-0.36005184054374695
-Ging ze direct naar haar kamer ?	-0.3222837746143341
-Ga meteen naar huis , lolly .	-0.34820306301116943
-Ga direct naar RC South , Spud .	-0.28396809101104736
-Ik ga meteen naar de hel .	-0.47356531023979187
-Om rechtstreeks naar de handleiding te gaan	-0.43749356269836426
-Je gaat meteen ter zake .	-0.5367156267166138
-Ga rechtdoor over een rotonde .	-0.36648374795913696
-Waarom ga je niet direct naar Basie ?	-0.3193538784980774
-Ga rechtdoor , voorbij dat gebouw .	-0.43834248185157776
-- Ze probeerde rechtdoor te gaan ...	-0.45615482330322266
-Ga rechtdoor en vragen en zo , dus ...	-0.4854121804237366
-Deze bubbels gaan recht naar mijn hoofd .	-0.3823781907558441
-We kunnen direct naar het vliegtuig gaan .	-0.4246741533279419
-We gaan direct naar de groene kamer .	-0.333931565284729
-- Zorg ervoor dat je rechtdoor gaat voor ...	-0.5924373269081116
-- Zeg dan gewoon , `` Ga rechtdoor . ''	-0.498083233833313
-Je kunt beter direct naar de basis gaan .	-0.43858861923217773
-- Jij gaat rechtdoor , ik ga er omheen .	-0.5739311575889587
-We gaan direct naar de FBI .	-0.36730924248695374
-Jij gaat meteen naar bed .	-0.6023374199867249
-- Ik zei hem direct naar huis te gaan .	-0.42393872141838074
-Ga er recht doorheen en probeer geen gekkenwerk .	-0.5795837640762329
-Ga naar huis en ga direct naar bed .	-0.332847535610199
-Was ermee , ga direct naar de hemel .	-0.4829654097557068
-Claire wilde direct naar de hemel gaan .	-0.432452917098999
-Waarom ga je niet direct naar de bron ?	-0.3351074159145355
-- Ga direct naar z ' n kleedkamer .	-0.3573853075504303
-Dan kun je beter meteen naar bed gaan .	-0.4241419732570648
-Verlaat ons en ga direct naar de hel .	-0.4054829776287079
-Om meer vervloekte kinderen op het rechte pad te helpen ?	-0.4681985080242157
-Laten we direct naar de bron gaan .	-0.35667145252227783
-Ga rechtdoor .	-0.5067883133888245
-Ga rechtdoor bij de verkeerslichten .	-0.32117247581481934
-Ik zei haar direct naar huis te gaan .	-0.350656121969223
-Ze zwoer me dat ze hetero zou worden .	-0.44152146577835083
-Je kunt direct naar de top gaan .	-0.5799583196640015
-Je gaat altijd recht naar de dood , Max .	-0.4264628291130066
-Ik zal meteen ter zake komen .	-0.540308952331543
-Ik ga recht naar de top , Ari ! ''	-0.44967183470726013
-Dus we gaan direct na school , ja ?	-0.39939236640930176
-De beren gaan rechtstreeks naar de dealers .	-0.2582830786705017
-Zeg me niet dat je recht wilt gaan .	-0.5286076068878174
-Ga daarheen , ik laat hem je ontmoeten .	-0.5184997916221619
-Donnelly , eindig het spel , en ga recht voorbij .	-0.6133354306221008
-Het gaat rechtstreeks naar Morbo 's voorhoofd .	-0.4267001450061798
-Jij gaat daar rechtdoor , recht achteruit , niet stoppen .	-0.6430632472038269
-Nee , je ging die dag niet direct naar huis .	-0.39016684889793396
-We moeten de trap op .	-0.3071826994419098
-Ze kan rechtstreeks naar de zedenpolitie gaan .	-0.48689720034599304
-Bij de volgende rotonde ga je rechtdoor .	-0.19885027408599854
-Gaat het rechtstreeks naar het hooggerechtshof ?	-0.43234312534332275
-We moeten direct naar Algiers .	-0.5425823330879211
-Wiens idee was het om rechtdoor te gaan ?	-0.41657450795173645
-Nee , ik ga meteen naar de executie .	-0.3490297794342041
-Kate moest direct naar San Francisco .	-0.2102287858724594
-- Hij zou recht op ons afkomen .	-0.5535111427307129
-Na de procedure kun je direct naar huis .	-0.5392182469367981
-Kunnen we hier meteen om lachen ?	-0.4718133807182312
-Waarom ga je niet direct naar de politie ?	-0.3042718768119812
-Ongeveer zestien uur als we er dwars doorheen gaan .	-0.35257795453071594
-Oké , maar daarna ga je meteen naar huis .	-0.3823765516281128
-Je moet direct naar de goudmijn .	-0.43536102771759033
-En jij dwong je kinderen om rechtdoor te gaan ...	-0.421267032623291
-Nee , ik wil dat je meteen naar binnen gaat .	-0.31789788603782654
-En je zei dat je direct naar de bron moest gaan .	-0.46072298288345337
-We gaan nu meteen naar de tweede lezing .	-0.31249552965164185
-Hij zei dat hij rechtdoor wilde gaan .	-0.29551073908805847
-- Ga rechtdoor naar de snelweg !	-0.44516587257385254
-Oké , we kunnen daar meteen naartoe gaan .	-0.5687479972839355
-Kom uit de cel , ga direct naar Havenhurst .	-0.4792858958244324
-Dan kijken we hoe het recht naar de hemel gaat .	-0.41848960518836975
-Waarom denk je dat hij direct naar Harrison gaat ?	-0.29376932978630066
-Laten we direct naar de voorwaarden van overgave gaan .	-0.46905091404914856
-Oké , ik ga direct naar de bron .	-0.34547528624534607
-Dus dan gaan we direct naar vermenigvuldiging en verdeling .	-0.47363510727882385
-We kunnen direct naar Key Red gaan , Mr. President .	-0.3533751666545868
-Ik denk dat ik beter meteen kan gaan slapen .	-0.4751642942428589
-Je moet direct na school naar huis gaan .	-0.5769375562667847
-De leider komt hier , de rest gaat rechtdoor !	-0.36629727482795715
-Een van hen kan rechtstreeks naar het conservatorium .	-0.46156376600265503
-Ik wil niet direct naar het hotel .	-0.29519569873809814
-Hij ging meteen naar bed en viel in slaap .	-0.33159375190734863
-Ik zou direct na school naar huis gaan .	-0.37792471051216125
-Gaat het recht door naar Salt Lake ?	-0.37086221575737
-Mannen als deze gaan niet hetero , ze worden bekwaam .	-0.7472342848777771
-Ik hoop dat het niet rechtstreeks naar mijn kont gaat .	-0.43330419063568115
-Je gaat meteen naar bed voor een paar uur .	-0.4425349235534668
-We gaan rechtstreeks naar de andere schoten , oké ?	-0.38852405548095703
-Na de eerste snelweg buiten de stad rechtdoor gaan .	-0.3382873833179474
-Als u er klaar voor bent , Mr Vidales , gaan we meteen naar boven .	-0.4244493544101715
-Gewoon , je weet wel , ga de wereld rechtzetten , wil je ?	-0.5188297033309937
-Falk wordt gek als we niet meteen teruggaan .	-0.29741495847702026
-Niet zo kapot dat je niet direct naar Emmett ging .	-0.3942837119102478
-Deze gaan rechtdoor richting de tweede Exloërmod / Musselkanaal .	-0.4547581076622009
-Je gaat recht naar de top van de trap .	-0.44823285937309265
-Voor wie van jullie het rechte pad wil volgen :	-0.6148847937583923
-Mijn zoon vroeg me om te proberen het rechte pad op te gaan , oké ?	-0.45167532563209534
-En dan , als je klaar bent , moet je rechtdoor gaan .	-0.44818180799484253
-We vergeten de mafkees en gaan direct naar de poort .	-0.40024280548095703
-Ik ben gek op Nick Collins .	-0.2965105175971985
-Ik wilde direct naar Joyce , maar ik kon het niet .	-0.3211139142513275
-Loop naar de hel , klootzak .	-0.3167750835418701
-Ga nog een keer naar de Imam en je bent dood .	-0.4449208080768585
-Ga die verdomde heuvel op en val ze nu aan .	-0.5760669112205505
-2 . Ga direct naar het vegdeel van de supermarkt .	-0.43199998140335083
-Mijn man gaat er ook recht op af .	-0.6032273173332214
-Ga recht onder de brug , er zal een oprit zijn .	-0.45376917719841003
-Want als je dat doet , ga je meteen naar de hel .	-0.48330721259117126
-- Hij was een goeie vent die hetero probeerde te zijn .	-0.5971829891204834
-Ik denk dat ik hem recht naar zijn kamer zag gaan .	-0.38750070333480835
-Om 14 uur ga je niet linksaf , maar rechtdoor .	-0.37759920954704285
-Ik ga links , ik ga rechts , ik ga rechtdoor .	-0.3285731375217438
-Zullen we in plaats daarvan naar mijn huis gaan ?	-0.5146028399467468
-Die man was verdomd onbeleefd , hij kan meteen naar de hel lopen .	-0.4984942674636841
-Als je daarheen gaat , kom je er nog steeds uit .	-0.5213432908058167
-Ga rechtstreeks naar Helion Five , de laatste planeet in het systeem .	-0.3725690245628357
-Jullie zijn vast moe en willen meteen naar bed .	-0.3375072479248047
-Zodra ik Thomas heb , gaan we direct naar de baai .	-0.315125048160553
-Ik ga direct naar de DIA directeur om erachter te komen .	-0.40254223346710205
-Als we nu weggaan , gaan we direct naar de guillotine .	-0.332157701253891
-Als je het goed doet , gaan we direct naar de top .	-0.3901699185371399
-Tara , Stephen en ik gaan direct naar de politie van Bradenton .	-0.2761922776699066
-Wil je de cellen in ?	-0.6715747714042664
-Laten we gewoon zijn bekentenis halen en dan direct naar de politie gaan .	-0.4290531873703003
-- Ga rechtdoor , sla rechtsaf bij de volgende twee hoeken .	-0.46649929881095886
-Dus we gaan rechtdoor tot we bij de ...	-0.434885710477829
-Ze kan tegen de Britten liegen en meteen gaan biechten .	-0.3266191780567169
-Als je één keer verliest , hang je jezelf meteen op .	-0.4270680248737335
-We gaan er recht doorheen .	-0.5133124589920044
-We gaan rechtdoor en volgen de bocht naar links .	-0.25394660234451294
-Je gaat direct terug naar herenkleding , zoals waar die paal is .	-0.5033580660820007
-Als we Ahktar niet pakken , ga je meteen terug naar de maximale beveiliging .	-0.41029104590415955
-Jij gaat direct naar buiten en slaat rechtsaf .	-0.7780179381370544
-Je gaat rechtdoor langs de Gouwe tot het startpunt .	-0.32570022344589233
-Ik wil dat je meteen naar huis gaat , hoor je me ?	-0.37844938039779663
-Harry , ga direct naar de politie om alles uit te leggen .	-0.3265547454357147
-Als ik de politie bel , gaat hij direct terug naar de gevangenis .	-0.28352195024490356
-Als je zo doorgaat , ga je direct naar Dunedin .	-0.41525590419769287
-U kunt ook rechtstreeks naar de NHS harttijdstest gaan :	-0.4924100935459137
-Deze vijf vingers gaan recht naar de ziel van de mens .	-0.2971089482307434
-Je zou direct terug kunnen gaan naar de top van de stapel .	-0.47803688049316406
-Ga direct naar Sixth Street ... ga naar het oosten door de stad ...	-0.4892980456352234
-Passeer de brug en ga dan rechtdoor op Eremia Grigorescu straat .	-0.23157265782356262
-Ga gewoon rechtdoor , zoals ik al zei .	-0.55448317527771
-De mis wil altijd rechtdoor : de eerste wet van Newton .	-0.31111568212509155
-Zeg dat ze direct naar het dierenziekenhuis moet gaan .	-0.47505301237106323
-We zoeken Simmons , halen haar eruit .	-0.5248451828956604
-Vanaf Dirkshorn ga je rechtdoor onder de brug van de N245 .	-0.2265634983778
-En ik bid elke avond dat je niet direct naar de hel gaat .	-0.30084124207496643
-Jasper Hammond ging niet rechtstreeks naar huis gisteravond , hij loog tegen ons .	-0.31046634912490845
-De rest gaat rechtstreeks in een bedrijf , waar ze verwerven een conditio sine qua non .	-0.5355051159858704
-Ik hoop dat ik niet direct naar de hel ga .	-0.3421522080898285
-Ga rechtdoor en sla rechtsaf bij de kruising na ongeveer 600 meter .	-0.37720516324043274
-Ongeveer drie kilometer hier vandaan ga je linksaf , recht naar het noorden .	-0.4907251000404358
-Is dit het vagevuur of ben ik direct naar de hel gegaan ?	-0.4200802445411682
-Als je zo blijft graven , ga je rechtstreeks naar China .	-0.3164839446544647
-Ik ging niet rechtstreeks van jeugdgevangenis naar de gevangenis , ik ging naar huis en ...	-0.39151710271835327
-Als je rechtdoor gaat op Nostrand , komen we er sneller .	-0.5255256295204163
-Of je kunt direct teruggaan naar je huis op straat .	-0.45385047793388367
-Bij de verkeerslichten gaat u rechtdoor tot u de zee bereikt .	-0.3966689109802246
-We gaan meteen naar het vliegveld .	-0.4883722960948944
-Neem dan een potentieel niet-bestaande lichte waar en ga direct naar fase zeven .	-0.5588856339454651
-Ik zal meteen ter zake komen : ik ben het slachtoffer van een ondraaglijke vervolging .	-0.4618626832962036
-Als ik ooit hetero zou gaan ... zou ik hem moeten dumpen .	-0.3884347677230835
-Als ze ons daarmee zien , gaan we allebei direct naar de SHU .	-0.3732611835002899
-Tony wilde direct naar Frank Patterson 's appartement om het geld te halen .	-0.3321760594844818
-Ik kan maar beter een Epsom zoutbad nemen en direct naar bed gaan .	-0.463260293006897
-Ga rechtdoor door de rotonde en vind het hotel aan de linkerkant .	-0.27112337946891785
-Als ik dacht dat ik gewoon een bemoeial was , zou ik meteen naar huis gaan .	-0.3601865768432617
-Dat betekent dat we limbo overslaan en meteen naar de hel gaan .	-0.5088071823120117
-Ga meteen terug naar het huis .	-0.5488426089286804
-Rowdy draaide over het spoor .	-0.45300668478012085
-Ik ben gewoon een ex-gevangene die probeert mijn kinderen terug te krijgen .	-0.37589311599731445
-Als ik eekhoorns zie , ga ik direct naar Captain Correlli .	-0.35653024911880493
-Bij de rotonde gaat u rechtdoor . Na 4 km slaat u rechtsaf de Hoofdweg/N520 op .	-0.2452809065580368
-Ik heb elke avond gebeden , maar mijn gebeden gaan rechtstreeks naar zijn voicemail .	-0.25212550163269043
-Maar de grote dozen , deze , moeten direct naar de plek .	-0.5042880773544312
-Er staat dat je rechtdoor moet gaan en de eerste opening links moet nemen .	-0.5031989812850952
-Ja , ga direct door die deuren , daar is een deur die zegt dat Caballero ...	-0.41747137904167175
-Nu , persoonlijk , zou ik hem trainen om rechtstreeks naar de gek te gaan .	-0.6586344242095947
-Ik sla de hors d'oeuvres tafel over en ga direct naar de bar .	-0.23978279531002045
-Misschien moet ik ... laten we direct naar de auto gaan ...	-0.5520830750465393
-Ga rechtdoor bij de rotonde , twee verkeerslichten , en bij de tweede rotonde .	-0.25265368819236755
-Waarom slaan we dat deel niet over en gaan we direct naar het hoofdgerecht ?	-0.35430243611335754
-Je zou er recht doorheen kunnen gaan als je naar die schaal kon gaan .	-0.559429407119751
-De klim is steil : eerst gaan we rechtdoor , dan winden we tussen verschillende muren .	-0.3476318120956421
-Voor je vrij komt betaal je me , of we gaan direct naar de politie .	-0.43315914273262024
-Ik denk dat ik meteen naar Emily ga en haar dit alles vertel .	-0.45924583077430725
-Zodra we de anderen vinden , gaan we direct naar de crypte .	-0.3376349210739136
-Je gaat direct naar buiten en koopt jezelf een dubbele zijden , avondjurk stropdas .	-0.5793569087982178
-Ik heb te maken met een passagier .	-0.4842616617679596
-Mijn moeder zegt dat ik direct naar huis moet , maar ... ik zag een puppy .	-0.3080698847770691
-Waarom ging je meteen naar Lindsay O'Connell als je terug bent ?	-0.2932218611240387
-Dus als mij iets overkomt , gaan ze direct naar de politie .	-0.33096030354499817
-Maar volgens onze theorie ging Ransom niet rechtstreeks terug naar Los Feliz , of wel ?	-0.2904126048088074
-Mal , wil je nu bekennen of direct naar de gevangenis ?	-0.4166322946548462
-Je gaat recht door de stad tot je een klein hotel aan je linkerkant ziet .	-0.4072258174419403
-Ga direct terug naar je flat en blijf bij je vrouw tot het aankomt .	-0.32701852917671204
-Autoflowering cannabis zaden stammen zullen direct in bloei gaan , ongeacht de uren van licht .	-0.4089411795139313
-Baas , Leah , jullie gaan recht langs het laadperron , dan gaan jullie links .	-0.40863513946533203
-U gaat rechtdoor en passeert Mc Donalds.Er is een lange duiker onder de snelweg A12 .	-0.29194214940071106
-Wat er ook gebeurt , hoe in paniek je ook raakt , ga niet recht omhoog .	-0.34899309277534485
-( 1u25 ) We gaan nu recht naar de top , geleid door heel grote cairns .	-0.37109240889549255
-Bij de 1e rotonde neemt u de 2e afslag en gaat u rechtdoor over de 2e rotonde .	-0.23861299455165863
-Met deze benadering gaan we recht door de loop naar de hippocampus .	-0.34216251969337463
-Ga dan direct naar links om de bijbehorende tijd op de verticale as te vinden .	-0.3402911424636841
-Nou , de snelste manier is om recht uit het raam te gaan en Adam 's kamer in te gaan .	-0.4392271041870117
-White Queen en Black Rook gaan rechtdoor naar de gevangeniskeuken .	-0.3300466537475586
-Dus , kan Deena zelf toegang krijgen tot het fonds of ging het rechtstreeks naar haar rekening ?	-0.45232632756233215
-We gaan recht omhoog , maar eerst moet je eens kijken naar het prachtige landschap :	-0.4283883571624756
-Je gaat niet direct naar binnen met een groot romantisch gebaar totdat je de basis hebt gedaan .	-0.45034059882164
-Dit maakt het niet gemakkelijk om rechtstreeks naar het jaarverslag van de Commissie te gaan .	-0.4745482802391052
-Ga rechtdoor , steek de rivier twee keer over en neem na de tweede brug de tweede afslag ( u Bulhara ) .	-0.2312597781419754
-Als je rechtdoor moet gaan zoals je aandringt , Adama , dan is dit de weg .	-0.3712339997291565
-Die jongen is wild , maar zelfs hij is niet gek genoeg om direct achter Reaper 's trucks aan te gaan .	-0.3046133518218994
-Gebruik de onderstaande link om rechtstreeks naar de vragenlijst op de Reisemobil International website te gaan :	-0.3016379475593567
-- Weet je , ik heb nagedacht , hij is geen man waar je recht op kunt gaan .	-0.4915660321712494
-Sterker nog , ik zou graag samen mocktail uur overslaan en direct naar het diner gaan .	-0.6450466513633728
-De pijpen moeten recht door de berg , misschien in de stad van de Daleks .	-0.40564480423927307
-Ontdek het verhaal achter Reportret op deze pagina of ga direct naar de galeriepagina .	-0.2415938675403595
-( 2u45 ) We gaan natuurlijk rechtdoor , en heel snel komen we op het pad tussen muren .	-0.3237602412700653
-Als we in Dallas komen en je wilt niet getuigen , kun je direct naar de gevangenis gaan .	-0.423287034034729
-Als je in de stad bent , ga je direct naar de bank , je plundert de limousine rekening .	-0.3940577507019043
-Hector , ik wil dat je direct naar het controlecentrum gaat en dat zendertje vernietigt !	-0.40866246819496155
-Wil je eerst de boot controleren of gaan we meteen naar het hotel ?	-0.42042508721351624
-Ze komt om Gan heen , als de staart op de laser projectie staat , ga ik direct naar binnen .	-0.4857114851474762
-Ik heb wat papierwerk te doen , en dan gaan we direct naar het kantoor van de OvJ , oké ?	-0.3734332323074341
-Je weet verdomd goed dat ik probeer eerlijk te zijn ... zonder rotzooi .	-0.6253687143325806
-'Het Parthenon stond al 2.400 jaar . 'Reggie 's belofte om recht te gaan duurde twee weken . '	-0.4426918923854828
-Ga in het bebouwde gebied rechtdoor in de richting van de stuwdam ( Rue du Barrage ) .	-0.3341157138347626
-Ga direct naar een kruising , blijf links , een bord wijst naar `` de boerderij Fignols .	-0.3856288194656372
-Het prijzengeld is 300 , hij geeft 100 uit , dus de 200 gaan rechtstreeks naar zijn zak .	-0.3927086293697357
-De deal was dat we de man pakken , we direct naar de luchtlift gaan , de Duitsers zullen ...	-0.5407141447067261
-Op het punt waar je rechtsaf gaat naar Cala d'Hort , ga je rechtdoor op de onverharde weg .	-0.3136473596096039
-Als D32 linksaf slaat in het dorpscentrum , gaan we rechtdoor en verlaten het dorp .	-0.348324716091156
-Ik ga meteen naar de Washington Post .	-0.4512377381324768
-Ga rechtdoor naar Pennsylvania Avenue , het grote witte huis met de pilaren .	-0.35413309931755066
-Dus besloot ik de middelste stappen over te slaan en direct naar nummer negen te gaan ... om het goed te maken .	-0.36381715536117554
-Kies om 'eerste woorden ' of eten te leren , of je kunt rechtstreeks naar de quiz sectie gaan .	-0.39521273970603943
-Ik moet je nu verlaten , maar ik wil dat je meteen naar huis gaat en daar blijft .	-0.2928674519062042
-Natuurlijk , hij is zo ' n sterke persoonlijkheid , hij zal waarschijnlijk direct naar je man gaan en alles bekennen .	-0.394568532705307
-Ik zal niet boos worden als je direct naar je kamer gaat , je leest voor tien minuten .	-0.4265579581260681
-Vanaf daar gaan ze rechtdoor naar de finish in Royan , op het Place du Maréchal Foch .	-0.27168306708335876
-We doen de uitwisseling en dan gaan we direct naar de kroegen om Juan Garcia te ontmoeten .	-0.5613905787467957
-Je liegt niet alleen tegen mij , maar je gaat ook rechtstreeks naar je vader en praat met hem .	-0.39142438769340515
-Zullen we simpel beginnen , jongen bovenop , of gaan we recht naar Cirque du Soleil ?	-0.4059418737888336
-`` Müze ? '' ( museum ) Grote glimlach , `` ga rechtdoor en ... ehm ... links '' met de rechterhand om enthousiast te zwaaien .	-0.33867254853248596
-Meneer , ik heb informatie dat u niet rechtstreeks naar uw kantoor bent gegaan van de officiersmess .	-0.428764671087265
-Ik doe m ' n pyjama aan en ga meteen naar bed als we thuis zijn .	-0.4096890091896057
-Het is onmogelijk dat hij rechtstreeks van het diner met Nana naar Lavon 's feest gaat zonder een snelle douche .	-0.44516387581825256
-Als je me hier nu uit laat gaan , gaan we direct naar de politie , ik mors alles .	-0.5038073062896729
-We zullen ons geen zorgen maken over mijn beweging , maar neem aan dat ik recht naar beneden ga .	-0.40653806924819946
-U kunt direct gedurende 50 m naar de kruising met de `` Monde Sauvage '' ( Wild World ) weg .	-0.3287789821624756
-Hij gaat direct naar de pers en zegt dat hij advies geeft over de zaak .	-0.49200984835624695
-Het duurde precies een uur voordat we naar binnen gingen .	-0.45140647888183594
-Laat Tara helemaal in de steek zodat ze precies kan ingaan op waar ik bang voor was voor haar ...	-0.4911451041698456
-Maar nu probeer ik voor het eerst in mijn leven het rechte pad op te gaan .	-0.47281381487846375
-Ik ga direct naar Parijs om koning Francis te ontmoeten en het nieuwe verdrag tussen Uwe Majesteiten te ratificeren .	-0.23625382781028748
-Wij zijn ons er terdege van bewust dat een aanzienlijk deel daarvan rechtstreeks in de zakken van fraudeurs terecht zal komen .	-0.42253077030181885
-Agios Stefanos ! Hier is weer een pad rechts naar een kapel , maar we gaan weer rechtdoor .	-0.3120277225971222
-Als je landt , moet je rechtstreeks naar het Ministerie van Cultuur en Islamitische Begeleiding om de ring te kussen .	-0.3755429685115814
-We gaan rechtdoor ( het wandelbord geeft de richting van Léfkes aan ) en het mooie pad klimt weer omhoog .	-0.28429505228996277
-Het is niet zo dat omni wielen niet recht kunnen gaan , tenzij ... ben je bang dat je er niet in kunt rijden ?	-0.36306631565093994
-Ik ga direct naar Mandalay Bay .	-0.5147770047187805
-Ik geloof het meest sterk in mijn hart dat wanneer een kind sterft , ze direct naar God gaan .	-0.42323237657546997
-Begin naar het noordwesten bij de N7 in de richting van afslag 64 ; ga rechtdoor over een rotonde .	-0.28925198316574097
-Na deze formaliteit moest ik meteen naar de Hirado basisschool om een presentatie te doen voor groep 3 .	-0.3659650981426239
-Vanaf de afslag Albufeira slaat u linksaf bij de 3e rotonde , Albufeira nascente , en gaat u rechtdoor naar de rotonde 'wormen ' .	-0.31838908791542053
-Volg de weg door bossen en over heuvels , steek de kreek over en verhoog tot een kruispunt . Ga rechtdoor .	-0.3368666470050812
-Stel je jezelf voor , of ga je meteen naar het deel waar je me probeert te vermoorden ?	-0.3809494078159332
-Als je broer thuiskomt , ga je meteen naar je kamer en doe je je huiswerk .	-0.33141475915908813
-( Opgelet : 18 kilometer geen huizen . ) Bij de asfaltweg linksaf.Waar de snelweg naar links buigt , gaan we rechtdoor .	-0.2895941138267517
-' ... gas dat rechtstreeks naar uw huizen gaat of de turbines in onze centrales die elektriciteit produceren . ' PHONE BEEPS	-0.5151739120483398
-Het duo Maika Cotton en Sambhavi Mathiyaznagan , beide achttien jaar oud , gaan rechtstreeks naar de eerste verdieping om te beginnen spinnen .	-0.22115857899188995
-Bij de volgende verkeerslichten gaat u rechtsaf richting Artis Zoo . Bij de kruising met verkeerslichten gaat u rechtdoor ( Sarphatistraat ) .	-0.2385139763355255
-Ik ga niet naar het prikbord kijken , maar naar de meisjeskleedkamer .	-0.4284847676753998
-Toen we terugkwamen van de camping trip , moest ik meteen naar de dierenkliniek om het werk af te maken .	-0.34990984201431274
-Maar dan , op de 4 minuten , 34 seconden , gaan de bandensporen rechtdoor , direct naar de rand van de klif .	-0.371612548828125
-Nou , kapitein , als u het niet leuk vindt zoals ik het doe , bent u vrij om uw ballen te pakken en direct naar huis te gaan .	-0.45929592847824097
-Twee weken lang ga je meteen naar school en kom je daarna meteen naar huis , geen activiteiten , geen rondhangen met vrienden .	-0.5323424935340881
-Ik zal , als u mij toestaat , meteen ingaan op het probleem van de technische barrières , naar aanleiding van de uitnodiging in Sir James ' eigen toespraak .	-0.570462167263031
-Neem links . • Ga rechtdoor voorbij de INA-markt aan uw linkerkant & bij AIIMS flyover neemt u de 2e linksafrit .	-0.46973520517349243
-Ja , James en ik kenden elkaar in die tijd , in Treme , voordat hij hetero probeerde te worden .	-0.4669189751148224
-Ze genieten van elke denkbare vorm van ongehoorzaamheid , gaan dan direct naar de kerk en bidden : `` Heer , ik heb u mijn beste gegeven .	-0.4693716764450073
-Dus je moet zeggen , je weet wel , `` Ga rechtdoor die grote weg en ga rechtsaf bij het rare ding . ''	-0.4926103949546814
-We zouden morgen een rollenspel doen over slechte spaghetti diners , maar ik denk dat we meteen naar het bedriegen van vriendinnen kunnen gaan .	-0.3905169367790222
-Ga dan rechtdoor naar Aussiedlerhof .. Voordat de boerderij heeft een bord op het hek aan de linkerkant op het veld .	-0.3140520453453064
-Hij zei : `` Uw gebed is verhoord , dus ga rechtdoor , en volg niet het pad van degenen die het niet weten .	-0.3560110032558441
-Voorwaar , degenen die zeggen : `` Onze Heer is Allah '' en dan rechtuit gaan : voor hen is er geen vrees en zij zullen niet treuren .	-0.41456010937690735
-Ik ga een simpele duik maken , tot 50 mijl per uur en hou de vleugels stabiel en ga recht naar beneden .	-0.37384966015815735
-Vis naar Oberstdorf , ongeveer 1 km rechtsaf richting het einde van het dorp vissen sportpark , ga rechtdoor tot het einde	-0.3195348083972931
-Vanuit het centrum van Phan Thiet City ziet u de supermarkt van Coop Mart . Sla rechtsaf Nguyen Tat Thanh Street en ga rechtdoor .	-0.33363470435142517
-We moeten echter niet verder omhoog gaan , want na een paar zigzags gaan we rechtdoor , hoog boven de vallei .	-0.30284780263900757
-Er zijn geen getuigen , want de taxichauffeur eindigt dood en je gaat direct naar de eerste politieman die je kunt vinden .	-0.3170523941516876
-Bovendien kun je vanuit het dorp direct de bergen in , waar goede wandelwegen en paden voor mountainbikers beschikbaar zijn .	-0.3996196389198303
-Na de brug zien we rechts het dorpje Brittenwerd , maar bij het zijkanaal gaan we rechtdoor richting Oosterlittens ( Easterlittens ) .	-0.30740901827812195
-De widget moet nu verschijnen op uw site , en bezoekers kunnen gemakkelijk beginnen met het kopen van tickets en ga direct naar uw evenement lijst !	-0.26477593183517456
-Nee , ze heeft het soort hoofdpijn waar je direct naar bed gaat en om de vier uur een paar Sammy 's neemt .	-0.43985715508461
-Vergeet niet dat ik hier ook geld voor heb .	-0.6192187070846558
-Ik wil hem daar oprecht hulde voor brengen en nu zal ik meteen ingaan op de kwestie van de institutionele hervorming .	-0.5544170141220093
-Nee , het is , `` Ga rechtdoor de gang af , hang een rechter , een andere rechts , een links . `` Dan rechtdoor op de eerste trap ,	-0.5811147689819336
-De eerste verleiding is om direct te gaan in de auto update of Faciliteiten en besteden al uw geld aan het maken van uw auto direct sneller .	-0.5151892304420471
-Ik dacht dat ik direct naar de hemel zou gaan , maar er was een kleine verwarring , en ik werd wakker in iemand anders zijn lichaam .	-0.4033418595790863
-A : we kunnen romantisch gaan , zachte muziek spelen , kaarsen aansteken . Of B : recht naar de ... God , het is zo lang geleden .	-0.33692461252212524
-Ik dacht dat ik direct naar de hemel zou gaan , maar er was een kleine verwarring en ik werd wakker in iemand anders zijn lichaam .	-0.39498552680015564
-U kunt de'springlijst ' hieronder gebruiken om rechtstreeks naar een van de afdelingen te gaan - in dit geval vooral georganiseerd door de prijs ...	-0.45864591002464294
-Je gaat terug naar Washington ... ga direct naar het Witte Huis ... en stort je hart uit over wat je hier denkt te zien .	-0.5439636707305908
-We gaan rechtdoor , op een lange en mooie trap en komen na weer vijf minuten bij de gymnásio ( de middelbare school ) .	-0.34240904450416565
-Het enige probleem is , als je verloofde dood is , waarom ging je dan niet direct naar de politie ?	-0.3557373583316803
-Anders gaan we meteen naar de hel .	-0.7474636435508728
-Ga vanaf Xuan Dieu Road rechtdoor naar Au Co Road , dat parallel loopt met An Duong Vuong . Blijf een paar minuten doorgaan .	-0.39655089378356934
-Ik dacht dat ik direct naar de hemel zou gaan , maar er was een kleine verwarring ... en ik werd wakker in iemand anders zijn lichaam .	-0.37529104948043823
-Over de weg : Vanaf de snelweg A8 neemt u afslag 36 naar `` Le Muy '' en gaat u rechtdoor naar de RN555 - richting Draguignan .	-0.3749638497829437
-Vreemd feit : er is een betonnen brug die geen zin lijkt te hebben - onze pogingen om recht door de velden te gaan waren niet succesvol !	-0.4198267161846161
-Ja , maar deze laat me direct vanuit het museum naar huis gaan in plaats van helemaal terug naar school te moeten .	-0.49358922243118286
-Na 3-4 minuten gaan we natuurlijk rechtdoor , en na 6 minuten steken we samen een brug over met een bron ernaast .	-0.2781250774860382
-We gaan rechtdoor , op een lange en mooie trap en komen na weer vijf minuten bij de gymnásio ( de middelbare school ) .	-0.40251457691192627
-Op dit punt kunnen we rechtdoor gaan , hoger omhoog , bij de gymnásio komen we dan bij de hoofdstraat van Chóra .	-0.429636687040329
-Weet je , voor iemand die hetero probeert te zijn , heb je een grappige manier om het te laten zien .	-0.48755624890327454
-Jullie en wie met jullie berouw toont , gaan dus op de juiste weg , zoals jullie bevolen is en weest niet onbeschaamd . Voorwaar , Hij is Alziende over wat jullie doen .	-0.589314341545105
-Als ik hem ontsla , gaat hij direct naar de pers , hij blaast het fluitje op de club en begint namen te noemen .	-0.4192788898944855
-( 1u27 ) Als we daarentegen liever verder gaan naar de vuurtoren , moeten we RECHTS gaan terwijl we de grindweg nog 4 minuten volgen .	-0.3890693485736847
-Hij wil dat ik direct naar zijn huis ga , al zijn porno verzamelen , zijn favoriete kussen , en wat snacks , en hem op deze locatie ontmoeten .	-0.2899571359157562
-Jullie en wie met jullie berouw toont , gaan dus op de juiste weg , zoals jullie bevolen is en weest niet onbeschaamd . Voorwaar , Hij is Alziende over wat jullie doen .	-0.589314341545105
-Stephanie ontmoet je op het vliegveld van Buffalo met een autoservice ... en dan ga je direct naar Niagara Falls voor de eerste oriëntatie .	-0.44039833545684814
-De Voorzitter . - Aan de orde is het gecombineerd debat over de volgende verslagen :	-0.6161240339279175
-Vanaf het kasteel , steek het brugje over en neem de D130 rechts ongeveer 250m . Sla rechtsaf , steek de Créquoise over en ga rechtdoor .	-0.2839125394821167
-Ik vraag het alleen omdat het meestal tijd bespaart ... en een hoop rotzooi ... om recht op de vingers van de dominante hand af te gaan .	-0.35127270221710205
-Na de langste etappe van deze 74ste editie van de Race naar de zon leek Nacer Bouhanni ( Cofidis , solutions crédits ) meteen naar de overwinning te gaan .	-0.2197364717721939
-Onderteken onze naam , zweer aan wie dan ook of wat je ook zweert . Accepteer de gratie en ga dan direct terug naar de rekening .	-0.5363790392875671
-Daarna keren we terug naar de vallei en bij de hoek van de muur gaan we rechtdoor en omhoog op een mooi geplaveid pad naar Pláka .	-0.27822017669677734
-Start in oostelijke richting op de N13/Route de Paris naar Rue Arianne en volg de N13	-0.5540391206741333
-Je gaat naar binnen via de lobby , neemt de lift naar de bovenste verdieping , gaat direct naar Stofeles ' kantoor en vraagt waar je zoon is ?	-0.3818747401237488
-Bij de volgende rotonde gaan we rechtdoor . Na een bocht naar rechts gaan we links naar het recreatiegebied en dan weer linksaf .	-0.2952471375465393
-Ik dacht dat ik direct naar de hemel zou gaan , maar er was een kleine verwarring , en ik werd wakker in iemand anders zijn lichaam .	-0.39061474800109863
-( 0u44 ) Een minuut verder gaan we rechtdoor ; het rotsachtige pad wordt breder en loopt nog steeds min of meer parallel aan de asfaltweg .	-0.24809706211090088
-Aan mij is geopenbaard dat jouw God één God is . Loopt dus met Hem mee en vraagt Hem om vergeving en wee de veelgodenaanbidders	-0.4694892466068268
-Zo passeren we naast de twee molens.In een bocht naar links , na weer 2-3 minuten , gaan we rechtdoor op de brede en geplaveide straat .	-0.3445042669773102
-Ja , eeuwen geleden introduceerden kerkmannen een niet-Bijbels concept : onsterfelijke zielen die het lichaam in de dood achterlaten en rechtstreeks naar de hemel , het vagevuur , Limbo of de hel gaan .	-0.3303946554660797
-Na twintig treden gaan we links , dan rechtdoor ; na enkele treden dalen we scherp naar links ( 2 X [ 6 ] ) .	-0.30815592408180237
-Hier gaan we rechtdoor op een iets overgroeide trap en via een steile betonnen helling komen we op een betonweg ( [ 6 ] op een boom ) .	-0.2705908715724945
-De 2 sturende en aangedreven voorassen trekken de truck rond een bocht waar een vrachtwagen met een stijve tandem de neiging heeft om rechtdoor te gaan .	-0.2776831090450287
-Cormon , Verlat , Toergenjev , Balzac , Daudet Omdat ik denk dat mijn verblijf in Antwerpen mij na alles nuttig heeft gemaakt denk ik dat we rechtdoor moeten gaan .	-0.4290643632411957
-Als u al online hebt ingecheckt dan kunt u gewoon rechtdoor de douane ( naast eventuele bagage die u kunt verlaten op de bagage drop-off punten ) .	-0.5179101228713989
-Maar het is tijd om het licht nu te zien , en jezelf te bevrijden van al deze vallen . Ga rechtstreeks naar de Bron voor begeleiding , en sluit de MIDDENMAN uit .	-0.43009424209594727
-Om in te korten kun je ook rechtdoor gaan , maar het is beter om linksaf te gaan om een erg charmant en grappig technisch stuk single track niet te missen .	-0.3721287250518799
-Met deze inleidende opmerkingen wil ik meteen ingaan op de amendementen en zeggen dat : a ) deze richtlijn voorziet in een alomvattende herziening van alle soorten verpakkingen .	-0.5332448482513428
-De weg eindigt bij de eerste huizen : we gaan rechtdoor in een rijstrook , buigen links en gaan dan rechts , en zo komen we onder de kerk uit .	-0.34612929821014404
-Om rechtstreeks van school naar de gelederen van de werklozen te gaan is de werkelijke angst van veel jongeren , een angst die rechtstreeks verband houdt met het gevoel van onzekerheid .	-0.45343682169914246
-( 1u31 ) Voor de terugweg keren we terug langs de gevel van het klooster , maar naast de twee zuilen gaan we rechtdoor ( wandelbord Chóra 2u15 + [ 1 ] ) .	-0.18693813681602478
-( 1u08 ) Vandaag gaan we rechtdoor.Er zijn een aantal mooie bochten , die geleidelijk omhoog gaan en dan komen we op een plat grindpad dat meer naar links buigt .	-0.39358511567115784
-Als u beperkte tijd hebt om Zwitserland te zien , raden wij u aan direct naar de Alpen te gaan : bijvoorbeeld naar het oostelijke deel van het Meer van Genève , Zermatt of het Berner Oberland .	-0.344748854637146
-Je kunt het hoofd eerst duiken in een geïllustreerde cursus die gericht is op het introduceren van teledetectie bij het grote publiek , of direct naar de glossarium om een definitie op te zoeken .	-0.41992583870887756
-Daarna passeren we een tweede kapel en we gaan rechtdoor de helling op en deze helling is ook geplaveid met rotsstenen , dus dit is het oude pad .	-0.39104315638542175
-We gaan de hele tijd rechtdoor en zo komen we aan het eind van het dorp.Hier vinden we de mooie estiatório I Voláx met een zeer aangenaam buitenterras .	-0.3761206865310669
-Maar als je vader dat niet kan zien , dan denk ik dat je geen andere keuze hebt dan direct naar huis te gaan en woedend op hem te zijn .	-0.3960219621658325
-Na ongeveer 600m kom je bij een ronde-a-bout , rechtdoor en na nog eens 400m rechts vind je Residence Villa Rosa ( in Via della Pace , 7 ) .	-0.26412567496299744
-Verder naar beneden buigt de rechtermuur naar rechts ; hier moeten we NIET het pad volgen dat langs de muur lijkt te buigen.In plaats daarvan gaan we rechtdoor .	-0.3764864504337311
-Als kind leerde ik al vroeg dat als ik zou gaan concurreren in een wereld die groter was dan ik was , ik recht op dingen moest gaan .	-0.4593357443809509
-Autoweg A9 , afslag Nîmes-Ouest richting Alès . Ga rechtdoor naar Sauve of Le Vigan . Bij de halte linksaf richting Vacquerolles . Bij de rotonde Intermarché , neem de eerste straat rechts .	-0.27874699234962463
-Daarna gaan we weer rechtdoor naar de stad , door het kleine en zeer pittoreske steegje links van de tandartspraktijk te nemen . De steeg die van naast de molens komt ...	-0.42799848318099976
-Na een paar twee minuten en 88 treden houden we rechts op de aflopende straat , naast een huis met een rood dak.We gaan NIET rechtdoor .	-0.4117286801338196
-Net voorbij een betonnen helling komen we op een ander pad ( dat we volgen op de wandeling van Filóti naar Chalkí ) en we gaan rechtdoor op een heel mooi en smal pad .	-0.2795572578907013
-( 3u32 ) Het vervolg is heel duidelijk : een rotsachtige afdaling van 5 minuten , bij het kruispunt gaan we rechtdoor en dan volgen we nog 6 minuten een grindpad .	-0.30181974172592163
-Eenmaal aan de rand , ga rechtdoor in het bos op stoned dan grasachtige manier . Bij het kruis slaat u rechtsaf ; na 500m , ga naar beneden op een kleine grasachtige weg aan de rechterkant .	-0.37933146953582764
-Als je je realiseert dat je iets verloren hebt terwijl je op het vliegveld bent , moet je direct naar het verloren vastgoedkantoor gaan en vragen of het gevonden is .	-0.445274293422699
-Misschien zou het eenvoudigweg mogelijk zijn om uit de opgedane ervaring te veronderstellen dat ontbranding kan worden verkregen , en zo direct naar de bouw van een demonstratie ( of prototype ) reactor te gaan .	-0.5862438678741455
-We gaan deze helling op en lopen onder een kapel ; we gaan rechtdoor op de grindweg , die we ongeveer 6 minuten volgen tot de bocht rechts .	-0.40728020668029785
-Verlaat het station via de afslag naar Gendarmenmarkt , ga rechtdoor tot Markgrafenstrasse , sla rechtsaf de Markgrafenstrasse in en neem dan de volgende straat links , Kronenstrasse , ongeveer 400 meter .	-0.2600052058696747
-Vanaf daar gaan ze rechtdoor naar het zuiden naar de sprint in La Machine voordat ze het laatste deel van de etappe starten die naar het westen gaat richting het autocircuit ten zuiden van Nevers .	-0.41256392002105713
-Drie minuten na de afslag naar Schinopí gaan we rechtdoor langs een kapel en dalen we gauw in een vallei af door een paar bochten te volgen die nog geplaveid zijn .	-0.35834917426109314
-Vanaf de snelwegen A7 neemt u de A46 richting Genève en Grenoble , neemt u de afslag n°6 Décines centrum en volgt u richting Décines centrum , u gaat rechtdoor tot het einde van de avenue Jean Jaurès .	-0.25661909580230713
-Zou een arts het er gewoon niet mee eens zijn als een van zijn collega 's bleef geloven dat hij direct van het behandelen van dode lichamen in een lijkenhuis naar het onderzoeken van zieke patiënten in een ziekenhuisafdeling kon gaan ?	-0.44150984287261963
-Een prachtige trap ! ( 3u04 ) Daarna komen we bij de splitsing met het pad dat van Spathí komt , waar we rechtdoor gaan [ 1 ] en na iets meer dan een minuut komen we bij de bron van Venjamin .	-0.3229210376739502
-Na 10 km fietsen door het bos splitst de route zich : rechts de oorspronkelijke route maar we gaan rechtdoor via Köniz , via Könizertal naar Kehrsatz , om het zo maar te zeggen , rond de Berner Home-Mountain `` Gurten . ''	-0.3447318375110626
-Vanaf het winkelcentrum , afslag van de middelste ingang waar u Pawia Street te zien . Ga rechtdoor Pawia en de Kurniki Street naar Plac Matejki en blijf lopen rechtdoor naar Św . Filipa Street .	-0.3666073977947235
-We kunnen naar het westen gaan , waar het nieuwe ijs is ... wat waarschijnlijk gekarteld is ... of we kunnen rechtdoor gaan of naar het oosten ... wat oud ijs zal zijn , wat angstaanjagend is .	-0.5219072699546814
-De belangrijkste doelstelling is om direct ter zake te komen , de procedures te vereenvoudigen en de uitvoering van de uit het Cohesiefonds , de structuurfondsen en het Europees Fonds voor Regionale Ontwikkeling gefinancierde programma 's te versnellen .	-0.39288628101348877
-Tegenover het station ga je rechtsaf richting Akersloot . Na 1.0 km ga je rechtsaf de Castricummerweg op . We gaan rechtdoor en aan het eind sla je linksaf bij de T-kruising ( Middelweg ) .	-0.3232063055038452
-Van deze hymnen en van de religieuze opvoeding die ik op school kreeg , leerde ik de kerk onderricht over de dubbele bestemming van de mensheid : goede mensen gaan rechtstreeks naar de hemel bij de dood ; slechte naar helvuur .	-0.4359891414642334
-Ga rechtdoor door het volgende kruispunt , ga iets naar links en ga dan direct rechtsaf in de Braamstraat ; volg deze straat en ga dan rechtdoor in de Leo Van Hullebuschstraat , tot je niet verder kunt .	-0.3717218339443207
-Er zijn geen getuigen , maar de taxichauffeur eindigt dood en je gaat direct naar het eerste politiebureau . Je zegt dat hij een pistool op je richtte en wat er gebeurde was zelfverdediging van jouw kant .	-0.326741486787796
-Dan is er de G. gids ( gids ) , in deze modus kunt u de Digi-Dice gebruiken voor een richting om dit te bepalen , ga volledig willekeurig terug Er zijn drie mogelijkheden , draai links , draai rechts en ga rechtdoor .	-0.3289201259613037
-Overal bloemen ( 27 april 2011 ) ! ( 3u32 ) Het vervolg is echt eenduidig : een rotsachtige afdaling van 5 minuten , bij het kruispunt gaan we rechtdoor en dan volgen we nog 6 minuten een grindpad .	-0.2784985601902008
-In een bocht naar links , na weer 2-3 minuten , gaan we rechtdoor op de brede en geplaveide straat . We nemen dan de vijfde straat rechts ( bij een blauwe inscriptie op de muur ) .	-0.3491670787334442
-... naar het noorden - een eenvoudige route leidt u naar het centrum van de stad als u van de noordelijke snelweg D8 komt . Ga rechtdoor , steek de rivier twee keer over en na de tweede brug neemt u de tweede afslag ( u Bulhara ) .	-0.32434719800949097
-We gaan rechtdoor en passeren een pad dat links omhoog gaat en we gaan nog steeds rechtdoor ( wandelbordje ) . Al snel wordt onze weg zanderig , maar hier en daar zien we nog steeds het oude plaveisel .	-0.3870343267917633
-Mijnheer de Voorzitter , mevrouw de vice-voorzitter van de Commissie , mijnheer de fungerend voorzitter van de Raad , mijnheer Haarder , ik ben blij dat u hier aanwezig bent en dat wij in discussie zijn , maar ik moet meteen naar de kern van al deze debatten gaan .	-0.37930694222450256
-Ronde van 22 km : Vanaf Vissershang ga je naar het zuiden op het hoofdkanaal en dan rechtsaf.Het gaat rechtdoor en je komt bij het brede water Spijkerboor.Paddle naar de andere kant en dan linksaf .	-0.46242088079452515
-[ Wil je verder op het pad gaan , dan kunnen we rechtdoor , bij het huis , links van een muur . Even verder volgen we een terras , dat in de lente bedekt is met gras en bloemen .	-0.33456629514694214
-Het Tiroolse skigebied biedt meer dan 238 km lange droompisten met 45 liften van de Silvretta Arena . Vanaf Ischgl centrum gaan 3 liften rechtstreeks naar de Idalp , waar het ski- en snowboardplezier kan beginnen .	-0.23998413980007172
-De terugweg is heel duidelijk , maar voor het vertrek moeten we goed om ons heen kijken . We hoeven niet recht naar beneden ; in plaats daarvan moeten we een brede bocht naar links beschrijven , op een pad tussen muren .	-0.42326435446739197
-Dit is de nieuwste wetenschappelijke ontwikkeling in gunstige voedingsstoffen absorptie door de huid , dus de van nature afgeleide therapeutische ingrediënten , botanische extracten , vitamine complexen en antioxidanten gaan direct in de weefsels van de penis - snel , specifiek gericht , en onmiddellijk effectief .	-0.26861515641212463
-Bij de kerk , 1 minuut verder , zien we nog een pad rechts - zie de wandeling Chorió-Monastíria-Soúfi en terug - maar weer gaan we rechtdoor , de straat links van de kerk volgend .	-0.33352717757225037
-Waarom de aankoopbeslissingen baseren op impressionistische commercials over een breed scala aan consumentenproducten wanneer personen die bereid zijn om een bepaald product te kopen direct naar de bron van de informatie kunnen gaan en precies weten wat ze moeten weten ?	-0.44677844643592834
-Hoewel er geen wiskundeleraar was op het moment dat hij in 1951 in staat was om direct naar de derde jaar Wiskunde aan de Canterbury University College van de Universiteit van Nieuw-Zeeland , de voorloper van de Universiteit van Canterbury .	-0.33762550354003906
-Omstreeks deze tijd Jan was te wijten aan een radiologie-examen en ze stopte haar onmiddellijk in een ambulance om direct naar het ziekenhuis te gaan toen ze ontdekte dat ze DVT had en de stolsels waren gemigreerd waardoor een longembolie .	-0.4926791489124298
-Je gaat direct de voordeur uit , alsof je het hele gebouw bezit , dus als ze een rapport inleveren , kun je hun aandacht vestigen op het feit dat je hier nauwelijks lang genoeg was ...	-0.3991352319717407
-Judas in de stad ( 1972.2 ) 183:2.1 Nadat Judas zo abrupt de tafel verliet tijdens het eten van het Laatste Avondmaal , ging hij direct naar het huis van zijn neef , en gingen de twee direct naar de kapitein van de tempelwachten .	-0.2860221862792969
-We volgen nu een zeer heldere en rotsachtige track gedurende 7-8 minuten tot aan de top van een heuvelrug - er is halverwege een splitsing waar we rechtdoor kunnen gaan , maar het is beter om rechts te houden .	-0.3875679671764374
-Ga rechtdoor en dit is de Leo Terzweillaan . Blijf rechtdoor gaan en automatisch ziet u de hoofdingang en parkeerplaats van SEBECO CENTER , Kerkstraat 106 , BE-9050 GHENT . In het hoofdgebouw kunt u zich melden bij de receptie .	-0.210897296667099
-Op het vliegveld ga je direct naar de gate en laat je de barcode lezen op het scherm van je smartphone door een scanner . Als je de bagage wilt inchecken , gebruik dan de speciale bagage drop-off bureau of de Check-in bureau .	-0.37604421377182007
-( 0u41 ) We gaan rechts , passeren over een brugje , maar al in de eerste bocht kunnen we rechtdoor op een prachtig en breed trappad - dat is alles wat er overblijft van de voormalige verbinding Agios Geórgios - Panagiá .	-0.35936209559440613
-Na weer 2 minuten komen we bij een kruising , waar we rechtdoor en omhoog gaan . Ongeveer 6 minuten verder komen we op een splitsing tussen de huizen van Mesathoúri ; bij een hoge muur van natuursteen gaan we links .	-0.25799357891082764
-Even later komen we bij de eerste huizen van Pitrofós , waar we weer links houden.Later gaan we rechtdoor , nog na het nummer [ 9 ] .We komen zo bij de wasplaats met de Barbéri-well en met heel verfrissend water .	-0.4069858491420746
-En hoe zouden de veelgodenaanbidders een verbond met Allah en Zijn Boodschapper kunnen sluiten , behalve met degenen met wie jullie een verbond hebben gesloten in de Masdjid al Harâm ( de Masdjid al Harâm ) ? Zolang zij met jullie eerlijk zijn , treden jullie met hen op de rechte weg . Voorwaar , Allah houdt van de Moettaqôen .	-0.4705050587654114
-Daarna keren we terug naar het hoofdpad . ( 0u53 ) Daar gaan we recht omhoog ( bord en [ 4 ] ) en na een steil eind komen we op een grindweg , waar we RECHTS naar de Panagía Rachidiótissa gaan - helaas is deze kerk altijd gesloten .	-0.2899649739265442
-Wanneer u voor het eerst start , bent u alleen in de weergavemodus . Om uw instellingen te wijzigen , klikt u op Administratormodus . Als u als root bent ingelogd , gaat u direct naar het dialoogvenster Wijzigen . Zo niet , dan zal & kde ; om een superuser wachtwoord vragen .	-0.3672322928905487
-In het dorp zal er een teken zijn dat deze weg een doodlopende weg is . Aarzel niet maar ga rechtdoor en je komt bij het hek aan het zuiden van de luchthaven . Hier zie je het baken achter dit hek .	-0.36543798446655273
-Ik heb zaterdag m ' n eerste afspraak met een dyslexiespecialist ... en hij is de beste in Ohio ... dus hij kon me er alleen om zeven uur in stoppen ... wat betekent dat ik direct naar huis moet na de wedstrijd .	-0.42475420236587524
-En hoe zouden de veelgodenaanbidders een verbond met Allah en Zijn Boodschapper kunnen sluiten , behalve met degenen met wie jullie een verbond hebben gesloten in de Masdjid al Harâm ( de Masdjid al Harâm ) ? Zolang zij met jullie eerlijk zijn , treden jullie met hen op de rechte weg . Voorwaar , Allah houdt van de Moettaqôen .	-0.4705050587654114
-Als je dit over een week komt bekijken , zal dit compleet anders zijn , dynamisch , net als het web , en net als het web , is alles afkomstig , dus klik op je link , en je gaat rechtstreeks naar Flickr en zie de bronafbeelding .	-0.4043268859386444
-Snelgroeiende bomen , het huis bereikt 50 m hoogte , kroon piramidale , vrijstaande takken gaan recht van de grond schors van een donkere as-grijs , gerimpeld , afpellen van de platen , horizontale takken , verspreiden , de bovenste - verhoogd , jonge scheuten glabrous , licht harsachtig , donkerder met de leeftijd .	-0.38790732622146606
-We gaan rechtdoor , passeren veel winkels en aan het eind van de voetgangersstraat , naast een brug , gaan we links , voor of na de bedding van de rivier - er is een wegwijzer naar het strand van Tis Griás naar Pídima .	-0.23319897055625916
-Mijn bedoeling heeft mij zoveel goeds van u verteld , mijn lieve jongedame , zei de tamme Raven . Uw verhaal is zeer van invloed . Als u de lamp , Ik zal gaan voor . We zullen rechtdoor gaan , want we zullen niemand ontmoeten .	-0.4298837184906006
-Ga rechtdoor en snel rechtsaf na het restaurant Boi nos Aires in de kleine zijstraat ( Rua Amendoeiras ) en vervolgens in de 2. straat aan uw linkerkant ( Rua do Ipe ) - en hier bent u.Vliegtuig en bus verbindingen.Dichtstbijzijnde luchthaven : Porto Seguro 10 km .	-0.230848029255867
-( 0u25 ) We gaan rechtdoor en een paar minuten later passeren we onder een elegante dubbele kapel , het pad blijft aangenaam en loopt altijd naast de watergoot . Weer kunnen we genieten van het mooie uitzicht op Mélanes , inclusief de lelijke structuur van een onvoltooide kerk .	-0.32243040204048157
-( 1u 10 ) Voorbij het hek gaan we rechtdoor , ongeveer 3 minuten links van een muur . Dan gaan we nog rechtdoor , maar weg van de muur [ 8 ] . Het prachtige , roodbruine pad daalt af , maar blijft hoog boven de eenzame rotskust .	-0.3353942334651947
-Geniet van uw maaltijd ! Serveer uw tafel Bestel nu uw drankje tokens Zo hoeft u niet in de rij te staan en kunt u direct naar de bar gaan Bestellen Meer AB tips voor u za 26.10.19 André Hazes Koop tickets AB Main Hall Fanmail Deel uw nieuwste muzikale ontdekkingen met ons !	-0.2859230041503906
-Geniet van je maaltijd ! Serveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je meteen naar de bar gaan Bestellen Meer AB tips voor jou di 26.03.19 Maribou State Koop tickets AB Hoofdzaal Fanmail Deel je laatste muzikale ontdekkingen met ons !	-0.2747892141342163
-De stad is vol met cafés en bars voor jongeren uit waarvan we raden aan om naar de discotheek `` Cocomo '' . En als je wilt een echt nachtfeest en een leuke tijd , dan kunt u direct naar het strand Zrće dat is slechts een paar mijl afstand .	-0.37928691506385803
-Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je meteen naar de bar gaan Bestellen Meer AB tips voor jou vr 08.03.19 Kate Carr Field-recording artist brengt het laatste werk naar Brussel Gratis AB Salon Fanmail Deel je laatste muzikale ontdekkingen met ons !	-0.26921582221984863
-Deze band staat bol van talent , want afgezien van het feit dat we te maken hebben met klassiek getrainde muzikanten , zijn ze in staat om een aantal aanstekelijke songs te schrijven die direct naar het hart gaan , maar met genoeg zware riffs en inventieve gitaar ornamenten ( eens weer een vrouw ! ) om met belangstelling te blijven luisteren .	-0.43237146735191345
-Vanuit Utrecht neemt u de N230 richting Maarssen . Ga rechtdoor over twee rotondes en ga naar de A2 richting Amsterdam . Ga verder op de S110 . Na 2,8 km rechtsaf bij s100/Stadhouderskade . Ga verder op de S100 . Sla na 2,3 km rechtsaf de Zeeburgerdijk in . Na 200 meter is de Lombokstraat rechts .	-0.2903488874435425
-Wandelen : Neem de `` Rua Marinho Falcão '' in de voorkant van het metrostation Exit , steek de `` Rua Paulistania '' over en ga rechtdoor de trap tot aan de `` Rua Harmonia . '' Sla linksaf in de `` Rua Harmonia '' en loop tot aan de `` Rua Rodésia '' wanneer u rechtsaf en dan linksaf op `` Rua Girassol . ''	-0.47987744212150574
-Toegang : van Lednice via de weg naar Podivin , na ongeveer 2 km ( achter de brug over de Thaya rivier ) linksaf , ga door de poort binnen het hek ( dit hek zal waarschijnlijk worden verwijderd door de tijd ) , ga rechtdoor langs de brede weg , na 200 m kom je bij de Obelisk .	-0.24815143644809723
-U kunt naar de Celebrate Safe stand gaan als u vragen heeft over alcohol en/of drugs . De medewerkers van Unity geven u graag tips en uitleg als u zich niet lekker voelt , maar gaan direct naar het eerste hulppunt met ernstige problemen . Ze zijn er om u waar nodig te helpen .	-0.31152790784835815
-Om door de pagina 's van & UNIX ; Info te bladeren , voert u info in : / dir brengt u naar de map op het hoogste niveau van Info , dan is het gewoon een kwestie van klikken op de juiste links om de pagina te vinden die u wilt . U kunt ook info gebruiken : / commandonaam om direct naar de pagina Informatie te gaan die u wilt .	-0.3846835792064667
-Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestellen Meer AB tips voor jou wo 12.06.19 Wilco Experimental top-americana met Jeff Tweedy en co Koop tickets AB Main Hall Fanmail Deel je laatste muzikale ontdekkingen met ons !	-0.22570791840553284
-Daarna gaan we weer rechtdoor naar het stadje , door links van de tandartspraktijk het kleine en zeer pittoreske steegje te nemen . Aan het eind van deze straat gaan we even rechts , in de Odós Mitropóleoos.We nemen dan de eerste straat links , de Odós Enóploon Dinámeoon .	-0.3789903521537781
-Na een tijdje verandert deze weg in een kronkelend pad , dat wat verder naar beneden splitst : links is er een pad dat leidt naar een olijfboomgaard ( ook dit pad zou ons in ongeveer 10 minuten op de juiste weg brengen ) . We gaan echter rechtdoor , op een wat overgroeid stuk .	-0.4488716423511505
-( 1u33 ) Het pad gaat links van de kapel van Agios Spyrídonas , we gaan rechtdoor ( [ 3 ] op een telefoonpaal ) en dalen snel af door enkele pijnbomen - en zo komen we op een geplaveide weg , links van de mooie kerk met de blauwe koepel van Karyá .	-0.27470651268959045
-We zijn nu recht onder de grote weg : we gaan rechtdoor de betonnen helling op en zo komen we op de weg Sagrí `` Trytí '' Filóti . Rechtdoor en een beetje rechts vinden we het pleintje bij de taverne O Giánnis met het meest aangename buitenterras van Chalkí . ( 3u10 )	-0.4790875315666199
-Routebeschrijving Vanaf `` Jorge Chávez '' International Airport , sla rechtsaf naar Elmer Faucett Avenue en ga rechtdoor naar La Marina Avenue in de wijk San Miguel . Twee blokken voordat u aankomt op de Marina Avenue sla linksaf door Contisuyo Street ( BancoContinental ) een blok , sla dan rechtsaf door Mollocmarca straat en ga rechtdoor tot Machu Picchu Park .	-0.2127894163131714
-Galleria dell'Accademia : hal van de Colossus Italië Tickets Menu Nederlands ( US ) Help Tickets Downloaden Winkelwagen Nederlands ( US ) Help Tickets Downloaden Winkelwagen Galleria dell'Accademia : hal van de Colossus Galleria dell'Accademia : hal van de Colossus Wanneer we praten over de Galleria dell'Accademia in Florence , gaan onze gedachten rechtstreeks naar de David en de krachtige sculpturen van Michelangelo .	-0.20572064816951752
-Geniet van je maaltijd ! Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je meteen naar de bar gaan Bestellen Meer AB tips voor jou za 02.02.19 Wannes Cappelle & Broeder Dieleman & Frans Grapperhaus : Dit Is De Bedoeling Koop tickets AB Club Fanmail Deel je laatste muzikale ontdekkingen met ons !	-0.24282915890216827
-( 2u53 ) We komen dan bij de splitsing met het pad dat van Spathí komt , waar we rechtdoor gaan [ 1 ] en na iets meer dan een minuut komen we bij de bron van Venjamin . Hier wordt het pad breed en loopt het horizontaal verder ( bordje Leeuw van Kéa . ) : het buigt naar links en we krijgen een mooi zicht op Ioulída .	-0.4182577133178711
-Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je meteen naar de bar gaan Bestel Meer AB tips voor jou za 09.03.19 Blu Samu Het zusje in de Brusselse hiphop scene Koop tickets AB Club do 28.03.19 Zwangere Guy - Extra show Zet Gee in da mothafukin gebouw !	-0.21783658862113953
-Vervoer Vanaf Cristesti invoeren Targu Mures , houden de hoofdweg , aan de rechterkant zie je AUCHAN MALL , passeren Auchan en de rotonde , en bij het eerste licht gaan we links , dan rechtdoor tot een kerk , houd de voorrang weg tot de rotonde , ga dan links , ga rechtdoor , en na het tankstation , maak een rechts	-0.28459396958351135
-Als we rechtdoor gaan , zien we kort na een straatje dat rechts naar beneden gaat ( marmerbord `` Pros Loutrá '' = `` Naar Loutrá '' + rode stip ) , maar we gaan bijna direct weer links ( rode stip ) . Aan het eind van het dorp ( ander marmeren bordje ) gaan we scherp rechts en dalen we een mooie , schaduwrijke trap af .	-0.3708711564540863
-Natuurlijk is dit de `` officiële '' teller die alleen mensen telt die door de `` voordeur '' komen ; alleen de allereerste pagina van onze site.Als u onze site eerder hebt bezocht , gaat u waarschijnlijk direct naar een subpagina en wordt u niet geteld.Er is ook een overeenkomst tussen Avalon-leden om onze eerste pagina niet te bezoeken , om te voorkomen dat we onze eigen teller optrekken .	-0.35848498344421387
-Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou do 07.02.19 Good Charlotte + Sleeping With Sirens + The Dose , Boston Manor Pop-punk helden creëren een nostalgisch feest met oud en nieuw materiaal Koop tickets AB Main Hall do 21.02.19 Broederliefde Rotterdammers blijven doorgaan !	-0.21887192130088806
-Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou do 07.02.19 Good Charlotte + Sleeping With Sirens + The Dose , Boston Manor Pop-punk helden creëren een nostalgisch feest met oud en nieuw materiaal Koop tickets AB Main Hall Fanmail Deel je nieuwste muzikale ontdekkingen met ons !	-0.20609718561172485
-Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou Zo 05.05.19 Wandelen op auto 's Opstaan van een Ierse pop sensatie Algemeen in de aanbieding start op 25-01 AB Box zo 12.05.19 Veugels Algemeen in de verkoop start op 01-02 AB Hoofdzaal Fanmail Deel je laatste muzikale ontdekkingen met ons !	-0.30253562331199646
-De heer Maher ( LDR ) . - ( EN ) Mijnheer de Voorzitter , ik wil de heer Maher danken voor zijn antwoord .	-0.7849946022033691
-Maar als het volk des lands voor het aangezicht des HEEREN komt op de vaste hoogtijden , zo zal hij , die bij de noorderpoort komt om te aanbidden , uitgaan bij de zuiderpoort ; en die bij de zuiderpoort komt , zal uitgaan bij de noorderdeur ; hij zal niet wederkeren bij de deuropening , waarheen hij gegaan is , maar hij zal recht voor zijn aangezicht gaan .	-0.5233591794967651
-We volgen deze betonweg ongeveer 3 minuten en gaan dan weer 7 minuten verder op een grindwegje , waarbij we niet op de zijpaden of zijwegen letten en we gaan nog steeds richting Minóa . Tien minuten na ons vertrek van Rachídi en op het moment dat de weg naar Minóa rechts buigt , moeten we rechtdoor : we zien de dam al voor ons .	-0.4556182026863098
-Geniet van je maaltijd ! Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou di 26.03.19 Maribou State Koop tickets AB Hoofdzaal wo 10.04.19 Giorgio Moroder De viering van de jaren 80 Uitverkocht AB Hoofdzaal za 11.05.19 Kruder & Dorfmeister 25 jaar Legendary DJ duo markeert 25 jaar met drie uur lange set !	-0.28071340918540955
-[ Het pad rechtdoor , dat we een tijdje voor ons omhoog kunnen zien gaan , gaat naar de grindweg die van de Profítis Ilías komt en naar de hoofdweg naar Manganári - zie de wandeling Chóra - Agia Theodóti . ] ( 1u01 ) We dalen links af en houden eerst liever links van ons doel , Agios Prokópios ; daarna gaan we recht naar dit klooster .	-0.2874494194984436
-Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou wo 13.02.19 Analog Africa presents Gyedu-Blay Ambolley & His Sekondi Band The 'James Brown of Ghana ' serveert full-cream afro-funk & highlife Koop tickets AB Club za 02.03.19 Neneh Cherry Pop presents vijfde album 'Broken Politics ' , geproduceerd door Four Tet Koop tickets Ballroom Fanmail Deel je laatste muzikale ontdekkingen met ons !	-0.1776360124349594
-Geniet van je maaltijd ! Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestellen Meer AB tips voor jou vr 01.03.19 Bakermat Koop tickets AB Grote Zaal ma 11.03.19 The Blaze Uitverkocht AB Grote Zaal di 19.03.19 Martin Solveig Koop tickets AB Grote Zaal vr 22.11.19 Kid Noize Live De man met een apengezicht Koop tickets AB Hoofdzaal Fanmail Deel je laatste muzikale ontdekkingen met ons !	-0.19843126833438873
-Daar is het parcours iets anders dan vorig jaar , want na een korte up/down ten zuiden van Maastricht/Bemelen gaan de renners rechtsaf richting de beklimming van de Bemelerberg voordat ze naar het zuiden gaan richting het parcours van de groene lus waar ze deze keer rechtdoor gaan na de beklimming van de Loorberg , voordat ze linksaf gaan richting de Gulpenerberg waarna ze de Kruisberg gaan vinden ( in plaats van naar de Plettenberg als in de eerste lus ) en de Eyserbosweg en Fromberg .	-0.32344678044319153
-Met de auto naar Yes hotel in het centrum van Rome : Uitgang luchthaven volgende richtingen Rome . Neem de afslag met vermelding van Cristoforo Colombo - Roma Centro . Ga rechtdoor tot je aankomt op het Piazza San Giovanni in Laterano , vanaf hier moet je de Via Merulana nemen totdat je aankomt bij de Basilica Santa Maria Maggiore , rechtsaf en je zult het station voor je zien . Ga linksaf aan het einde van de weg en ga verder tot de verkeerslichten in Piazza del Cinquecento , neem een rechtse en ga rechtdoor op Via San Martino della Battaglia rechtsaf Via Magenta .	-0.38074299693107605
-Links kunnen we genieten van een prachtig uitzicht op de bergketen met de Fanari , en verder kunnen we de hele vallei vol met olijfbomen bewonderen . Aan het einde van dit traject gaan we weer rechtdoor , zonder aandacht te besteden aan het rotsachtige pad dat rechts omhoog gaat . ( 1u54 ) We passeren onder mooie , grote eikenbomen - sommige zijn echt een kunstwerk - en gaan nu verder op een heel breed rotspad dat tussen muren afdaalt , met een prachtig uitzicht over de vallei , met Chalkí en Filóti . Het pad smalt en zo komen we onder een grote mediterrane eik en op een grindweg .	-0.3398548364639282
+Rechtdoor?
+Rechtdoor.
+Ga dan rechtdoor.
+Ga het podium op.
+Ga gewoon rechtdoor.
+- Ga rechtdoor...
+Ga rechtdoor.
+Ga direct naar Rex.
+Jij gaat meteen naar huis.
+Ga direct naar de mijne.
+Ga gewoon daarheen.
+Oh, ga direct naar binnen.
+Jij gaat meteen naar huis.
+- Ga er recht doorheen.
+Ga nu rechtdoor.
+- We gaan rechtdoor.
+- Ga rechtdoor.
+Ik ga meteen naar huis.
+Ga er gewoon doorheen.
+Ga nu rechtdoor.
+Ga rechtdoor door deze gang.
+Waarom ga je niet rechtdoor?
+En ik ga rechtdoor.
+Ik beloof dat ik rechtdoor ga.
+Een man moet rechtdoor gaan.
+Blijf rechtdoor gaan.
+We gaan direct naar Sam.
+Ze zei dat ze meteen naar huis zou gaan.
+Loop naar de hel, Ike.
+Ze gaan rechtstreeks naar Washington.
+Oké, ga nu direct naar binnen.
+Ga direct naar de poort.
+Kunnen ze daar niet rechtdoor gaan?
+Het ging niet recht naar beneden.
+- Nou, winkelverkeer, ga rechtdoor.
+Giles kan rechtstreeks naar de hel gaan.
+- Ga direct naar Nickkurtdale.
+Ga direct naar de meisjesnaam.
+Hij zei dat ik meteen naar binnen moest gaan.
+Ga dwars door dat gat, oké?
+Ga rechtdoor langs de naaldboomspar.
+En jij gaat direct naar de gevangenis.
+We gaan direct naar de dokter.
+Rechtdoor en dan rechts.
+Ga rechtdoor bij de eerste rotonde.
+Ga rechtdoor, volg de rivierbedding.
+Ging ze direct naar haar kamer?
+Ga meteen naar huis, lolly.
+Ga direct naar RC South, Spud.
+Ik ga meteen naar de hel.
+Om rechtstreeks naar de handleiding te gaan
+Je gaat meteen ter zake.
+Ga rechtdoor over een rotonde.
+Waarom ga je niet direct naar Basie?
+Ga rechtdoor, voorbij dat gebouw.
+- Ze probeerde rechtdoor te gaan...
+Ga rechtdoor en vragen en zo, dus...
+Deze bubbels gaan recht naar mijn hoofd.
+We kunnen direct naar het vliegtuig gaan.
+We gaan direct naar de groene kamer.
+- Zorg ervoor dat je rechtdoor gaat voor...
+- Zeg dan gewoon, "Ga rechtdoor."
+Je kunt beter direct naar de basis gaan.
+- Jij gaat rechtdoor, ik ga er omheen.
+We gaan direct naar de FBI.
+Jij gaat meteen naar bed.
+- Ik zei hem direct naar huis te gaan.
+Ga er recht doorheen en probeer geen gekkenwerk.
+Ga naar huis en ga direct naar bed.
+Was ermee, ga direct naar de hemel.
+Claire wilde direct naar de hemel gaan.
+Waarom ga je niet direct naar de bron?
+- Ga direct naar z'n kleedkamer.
+Dan kun je beter meteen naar bed gaan.
+Verlaat ons en ga direct naar de hel.
+Om meer vervloekte kinderen op het rechte pad te helpen?
+Laten we direct naar de bron gaan.
+Ga rechtdoor.
+Ga rechtdoor bij de verkeerslichten.
+Ik zei haar direct naar huis te gaan.
+Ze zwoer me dat ze hetero zou worden.
+Je kunt direct naar de top gaan.
+Je gaat altijd recht naar de dood, Max.
+Ik zal meteen ter zake komen.
+Ik ga recht naar de top, Ari!"
+Dus we gaan direct na school, ja?
+De beren gaan rechtstreeks naar de dealers.
+Zeg me niet dat je recht wilt gaan.
+Ga daarheen, ik laat hem je ontmoeten.
+Donnelly, eindig het spel, en ga recht voorbij.
+Het gaat rechtstreeks naar Morbo's voorhoofd.
+Jij gaat daar rechtdoor, recht achteruit, niet stoppen.
+Nee, je ging die dag niet direct naar huis.
+We moeten de trap op.
+Ze kan rechtstreeks naar de zedenpolitie gaan.
+Bij de volgende rotonde ga je rechtdoor.
+Gaat het rechtstreeks naar het hooggerechtshof?
+We moeten direct naar Algiers.
+Wiens idee was het om rechtdoor te gaan?
+Nee, ik ga meteen naar de executie.
+Kate moest direct naar San Francisco.
+- Hij zou recht op ons afkomen.
+Na de procedure kun je direct naar huis.
+Kunnen we hier meteen om lachen?
+Waarom ga je niet direct naar de politie?
+Ongeveer zestien uur als we er dwars doorheen gaan.
+Oké, maar daarna ga je meteen naar huis.
+Je moet direct naar de goudmijn.
+En jij dwong je kinderen om rechtdoor te gaan...
+Nee, ik wil dat je meteen naar binnen gaat.
+En je zei dat je direct naar de bron moest gaan.
+We gaan nu meteen naar de tweede lezing.
+Hij zei dat hij rechtdoor wilde gaan.
+- Ga rechtdoor naar de snelweg!
+Oké, we kunnen daar meteen naartoe gaan.
+Kom uit de cel, ga direct naar Havenhurst.
+Dan kijken we hoe het recht naar de hemel gaat.
+Waarom denk je dat hij direct naar Harrison gaat?
+Laten we direct naar de voorwaarden van overgave gaan.
+Oké, ik ga direct naar de bron.
+Dus dan gaan we direct naar vermenigvuldiging en verdeling.
+We kunnen direct naar Key Red gaan, Mr. President.
+Ik denk dat ik beter meteen kan gaan slapen.
+Je moet direct na school naar huis gaan.
+De leider komt hier, de rest gaat rechtdoor!
+Een van hen kan rechtstreeks naar het conservatorium.
+Ik wil niet direct naar het hotel.
+Hij ging meteen naar bed en viel in slaap.
+Ik zou direct na school naar huis gaan.
+Gaat het recht door naar Salt Lake?
+Mannen als deze gaan niet hetero, ze worden bekwaam.
+Ik hoop dat het niet rechtstreeks naar mijn kont gaat.
+Je gaat meteen naar bed voor een paar uur.
+We gaan rechtstreeks naar de andere schoten, oké?
+Na de eerste snelweg buiten de stad rechtdoor gaan.
+Als u er klaar voor bent, Mr Vidales, gaan we meteen naar boven.
+Gewoon, je weet wel, ga de wereld rechtzetten, wil je?
+Falk wordt gek als we niet meteen teruggaan.
+Niet zo kapot dat je niet direct naar Emmett ging.
+Deze gaan rechtdoor richting de tweede Exloërmod / Musselkanaal.
+Je gaat recht naar de top van de trap.
+Voor wie van jullie het rechte pad wil volgen:
+Mijn zoon vroeg me om te proberen het rechte pad op te gaan, oké?
+En dan, als je klaar bent, moet je rechtdoor gaan.
+We vergeten de mafkees en gaan direct naar de poort.
+Ik ben gek op Nick Collins.
+Ik wilde direct naar Joyce, maar ik kon het niet.
+Loop naar de hel, klootzak.
+Ga nog een keer naar de Imam en je bent dood.
+Ga die verdomde heuvel op en val ze nu aan.
+2. Ga direct naar het vegdeel van de supermarkt.
+Mijn man gaat er ook recht op af.
+Ga recht onder de brug, er zal een oprit zijn.
+Want als je dat doet, ga je meteen naar de hel.
+- Hij was een goeie vent die hetero probeerde te zijn.
+Ik denk dat ik hem recht naar zijn kamer zag gaan.
+Om 14 uur ga je niet linksaf, maar rechtdoor.
+Ik ga links, ik ga rechts, ik ga rechtdoor.
+Zullen we in plaats daarvan naar mijn huis gaan?
+Die man was verdomd onbeleefd, hij kan meteen naar de hel lopen.
+Als je daarheen gaat, kom je er nog steeds uit.
+Ga rechtstreeks naar Helion Five, de laatste planeet in het systeem.
+Jullie zijn vast moe en willen meteen naar bed.
+Zodra ik Thomas heb, gaan we direct naar de baai.
+Ik ga direct naar de DIA directeur om erachter te komen.
+Als we nu weggaan, gaan we direct naar de guillotine.
+Als je het goed doet, gaan we direct naar de top.
+Tara, Stephen en ik gaan direct naar de politie van Bradenton.
+Wil je de cellen in?
+Laten we gewoon zijn bekentenis halen en dan direct naar de politie gaan.
+- Ga rechtdoor, sla rechtsaf bij de volgende twee hoeken.
+Dus we gaan rechtdoor tot we bij de...
+Ze kan tegen de Britten liegen en meteen gaan biechten.
+Als je één keer verliest, hang je jezelf meteen op.
+We gaan er recht doorheen.
+We gaan rechtdoor en volgen de bocht naar links.
+Je gaat direct terug naar herenkleding, zoals waar die paal is.
+Als we Ahktar niet pakken, ga je meteen terug naar de maximale beveiliging.
+Jij gaat direct naar buiten en slaat rechtsaf.
+Je gaat rechtdoor langs de Gouwe tot het startpunt.
+Ik wil dat je meteen naar huis gaat, hoor je me?
+Harry, ga direct naar de politie om alles uit te leggen.
+Als ik de politie bel, gaat hij direct terug naar de gevangenis.
+Als je zo doorgaat, ga je direct naar Dunedin.
+U kunt ook rechtstreeks naar de NHS harttijdstest gaan:
+Deze vijf vingers gaan recht naar de ziel van de mens.
+Je zou direct terug kunnen gaan naar de top van de stapel.
+Ga direct naar Sixth Street... ga naar het oosten door de stad...
+Passeer de brug en ga dan rechtdoor op Eremia Grigorescu straat.
+Ga gewoon rechtdoor, zoals ik al zei.
+De mis wil altijd rechtdoor: de eerste wet van Newton.
+Zeg dat ze direct naar het dierenziekenhuis moet gaan.
+We zoeken Simmons, halen haar eruit.
+Vanaf Dirkshorn ga je rechtdoor onder de brug van de N245.
+En ik bid elke avond dat je niet direct naar de hel gaat.
+Jasper Hammond ging niet rechtstreeks naar huis gisteravond, hij loog tegen ons.
+De rest gaat rechtstreeks in een bedrijf, waar ze verwerven een conditio sine qua non.
+Ik hoop dat ik niet direct naar de hel ga.
+Ga rechtdoor en sla rechtsaf bij de kruising na ongeveer 600 meter.
+Ongeveer drie kilometer hier vandaan ga je linksaf, recht naar het noorden.
+Is dit het vagevuur of ben ik direct naar de hel gegaan?
+Als je zo blijft graven, ga je rechtstreeks naar China.
+Ik ging niet rechtstreeks van jeugdgevangenis naar de gevangenis, ik ging naar huis en...
+Als je rechtdoor gaat op Nostrand, komen we er sneller.
+Of je kunt direct teruggaan naar je huis op straat.
+Bij de verkeerslichten gaat u rechtdoor tot u de zee bereikt.
+We gaan meteen naar het vliegveld.
+Neem dan een potentieel niet-bestaande lichte waar en ga direct naar fase zeven.
+Ik zal meteen ter zake komen: ik ben het slachtoffer van een ondraaglijke vervolging.
+Als ik ooit hetero zou gaan... zou ik hem moeten dumpen.
+Als ze ons daarmee zien, gaan we allebei direct naar de SHU.
+Tony wilde direct naar Frank Patterson's appartement om het geld te halen.
+Ik kan maar beter een Epsom zoutbad nemen en direct naar bed gaan.
+Ga rechtdoor door de rotonde en vind het hotel aan de linkerkant.
+Als ik dacht dat ik gewoon een bemoeial was, zou ik meteen naar huis gaan.
+Dat betekent dat we limbo overslaan en meteen naar de hel gaan.
+Ga meteen terug naar het huis.
+Rowdy draaide over het spoor.
+Ik ben gewoon een ex-gevangene die probeert mijn kinderen terug te krijgen.
+Als ik eekhoorns zie, ga ik direct naar Captain Correlli.
+Bij de rotonde gaat u rechtdoor. Na 4 km slaat u rechtsaf de Hoofdweg/N520 op.
+Ik heb elke avond gebeden, maar mijn gebeden gaan rechtstreeks naar zijn voicemail.
+Maar de grote dozen, deze, moeten direct naar de plek.
+Er staat dat je rechtdoor moet gaan en de eerste opening links moet nemen.
+Ja, ga direct door die deuren, daar is een deur die zegt dat Caballero...
+Nu, persoonlijk, zou ik hem trainen om rechtstreeks naar de gek te gaan.
+Ik sla de hors d'oeuvres tafel over en ga direct naar de bar.
+Misschien moet ik... laten we direct naar de auto gaan...
+Ga rechtdoor bij de rotonde, twee verkeerslichten, en bij de tweede rotonde.
+Waarom slaan we dat deel niet over en gaan we direct naar het hoofdgerecht?
+Je zou er recht doorheen kunnen gaan als je naar die schaal kon gaan.
+De klim is steil: eerst gaan we rechtdoor, dan winden we tussen verschillende muren.
+Voor je vrij komt betaal je me, of we gaan direct naar de politie.
+Ik denk dat ik meteen naar Emily ga en haar dit alles vertel.
+Zodra we de anderen vinden, gaan we direct naar de crypte.
+Je gaat direct naar buiten en koopt jezelf een dubbele zijden, avondjurk stropdas.
+Ik heb te maken met een passagier.
+Mijn moeder zegt dat ik direct naar huis moet, maar... ik zag een puppy.
+Waarom ging je meteen naar Lindsay O'Connell als je terug bent?
+Dus als mij iets overkomt, gaan ze direct naar de politie.
+Maar volgens onze theorie ging Ransom niet rechtstreeks terug naar Los Feliz, of wel?
+Mal, wil je nu bekennen of direct naar de gevangenis?
+Je gaat recht door de stad tot je een klein hotel aan je linkerkant ziet.
+Ga direct terug naar je flat en blijf bij je vrouw tot het aankomt.
+Autoflowering cannabis zaden stammen zullen direct in bloei gaan, ongeacht de uren van licht.
+Baas, Leah, jullie gaan recht langs het laadperron, dan gaan jullie links.
+U gaat rechtdoor en passeert Mc Donalds.Er is een lange duiker onder de snelweg A12.
+Wat er ook gebeurt, hoe in paniek je ook raakt, ga niet recht omhoog.
+(1u25) We gaan nu recht naar de top, geleid door heel grote cairns.
+Bij de 1e rotonde neemt u de 2e afslag en gaat u rechtdoor over de 2e rotonde.
+Met deze benadering gaan we recht door de loop naar de hippocampus.
+Ga dan direct naar links om de bijbehorende tijd op de verticale as te vinden.
+Nou, de snelste manier is om recht uit het raam te gaan en Adam's kamer in te gaan.
+White Queen en Black Rook gaan rechtdoor naar de gevangeniskeuken.
+Dus, kan Deena zelf toegang krijgen tot het fonds of ging het rechtstreeks naar haar rekening?
+We gaan recht omhoog, maar eerst moet je eens kijken naar het prachtige landschap:
+Je gaat niet direct naar binnen met een groot romantisch gebaar totdat je de basis hebt gedaan.
+Dit maakt het niet gemakkelijk om rechtstreeks naar het jaarverslag van de Commissie te gaan.
+Ga rechtdoor, steek de rivier twee keer over en neem na de tweede brug de tweede afslag (u Bulhara).
+Als je rechtdoor moet gaan zoals je aandringt, Adama, dan is dit de weg.
+Die jongen is wild, maar zelfs hij is niet gek genoeg om direct achter Reaper's trucks aan te gaan.
+Gebruik de onderstaande link om rechtstreeks naar de vragenlijst op de Reisemobil International website te gaan:
+- Weet je, ik heb nagedacht, hij is geen man waar je recht op kunt gaan.
+Sterker nog, ik zou graag samen mocktail uur overslaan en direct naar het diner gaan.
+De pijpen moeten recht door de berg, misschien in de stad van de Daleks.
+Ontdek het verhaal achter Reportret op deze pagina of ga direct naar de galeriepagina.
+(2u45) We gaan natuurlijk rechtdoor, en heel snel komen we op het pad tussen muren.
+Als we in Dallas komen en je wilt niet getuigen, kun je direct naar de gevangenis gaan.
+Als je in de stad bent, ga je direct naar de bank, je plundert de limousine rekening.
+Hector, ik wil dat je direct naar het controlecentrum gaat en dat zendertje vernietigt!
+Wil je eerst de boot controleren of gaan we meteen naar het hotel?
+Ze komt om Gan heen, als de staart op de laser projectie staat, ga ik direct naar binnen.
+Ik heb wat papierwerk te doen, en dan gaan we direct naar het kantoor van de OvJ, oké?
+Je weet verdomd goed dat ik probeer eerlijk te zijn... zonder rotzooi.
+'Het Parthenon stond al 2.400 jaar. 'Reggie's belofte om recht te gaan duurde twee weken. '
+Ga in het bebouwde gebied rechtdoor in de richting van de stuwdam (Rue du Barrage).
+Ga direct naar een kruising, blijf links, een bord wijst naar "de boerderij Fignols.
+Het prijzengeld is 300, hij geeft 100 uit, dus de 200 gaan rechtstreeks naar zijn zak.
+De deal was dat we de man pakken, we direct naar de luchtlift gaan, de Duitsers zullen...
+Op het punt waar je rechtsaf gaat naar Cala d'Hort, ga je rechtdoor op de onverharde weg.
+Als D32 linksaf slaat in het dorpscentrum, gaan we rechtdoor en verlaten het dorp.
+Ik ga meteen naar de Washington Post.
+Ga rechtdoor naar Pennsylvania Avenue, het grote witte huis met de pilaren.
+Dus besloot ik de middelste stappen over te slaan en direct naar nummer negen te gaan... om het goed te maken.
+Kies om 'eerste woorden' of eten te leren, of je kunt rechtstreeks naar de quiz sectie gaan.
+Ik moet je nu verlaten, maar ik wil dat je meteen naar huis gaat en daar blijft.
+Natuurlijk, hij is zo'n sterke persoonlijkheid, hij zal waarschijnlijk direct naar je man gaan en alles bekennen.
+Ik zal niet boos worden als je direct naar je kamer gaat, je leest voor tien minuten.
+Vanaf daar gaan ze rechtdoor naar de finish in Royan, op het Place du Maréchal Foch.
+We doen de uitwisseling en dan gaan we direct naar de kroegen om Juan Garcia te ontmoeten.
+Je liegt niet alleen tegen mij, maar je gaat ook rechtstreeks naar je vader en praat met hem.
+Zullen we simpel beginnen, jongen bovenop, of gaan we recht naar Cirque du Soleil?
+"Müze?" (museum) Grote glimlach, "ga rechtdoor en... ehm...links" met de rechterhand om enthousiast te zwaaien.
+Meneer, ik heb informatie dat u niet rechtstreeks naar uw kantoor bent gegaan van de officiersmess.
+Ik doe m'n pyjama aan en ga meteen naar bed als we thuis zijn.
+Het is onmogelijk dat hij rechtstreeks van het diner met Nana naar Lavon's feest gaat zonder een snelle douche.
+Als je me hier nu uit laat gaan, gaan we direct naar de politie, ik mors alles.
+We zullen ons geen zorgen maken over mijn beweging, maar neem aan dat ik recht naar beneden ga.
+U kunt direct gedurende 50 m naar de kruising met de "Monde Sauvage" (Wild World) weg.
+Hij gaat direct naar de pers en zegt dat hij advies geeft over de zaak.
+Het duurde precies een uur voordat we naar binnen gingen.
+Laat Tara helemaal in de steek zodat ze precies kan ingaan op waar ik bang voor was voor haar...
+Maar nu probeer ik voor het eerst in mijn leven het rechte pad op te gaan.
+Ik ga direct naar Parijs om koning Francis te ontmoeten en het nieuwe verdrag tussen Uwe Majesteiten te ratificeren.
+Wij zijn ons er terdege van bewust dat een aanzienlijk deel daarvan rechtstreeks in de zakken van fraudeurs terecht zal komen.
+Agios Stefanos!Hier is weer een pad rechts naar een kapel, maar we gaan weer rechtdoor.
+Als je landt, moet je rechtstreeks naar het Ministerie van Cultuur en Islamitische Begeleiding om de ring te kussen.
+We gaan rechtdoor (het wandelbord geeft de richting van Léfkes aan) en het mooie pad klimt weer omhoog.
+Het is niet zo dat omni wielen niet recht kunnen gaan, tenzij... ben je bang dat je er niet in kunt rijden?
+Ik ga direct naar Mandalay Bay.
+Ik geloof het meest sterk in mijn hart dat wanneer een kind sterft, ze direct naar God gaan.
+Begin naar het noordwesten bij de N7 in de richting van afslag 64; ga rechtdoor over een rotonde.
+Na deze formaliteit moest ik meteen naar de Hirado basisschool om een presentatie te doen voor groep 3.
+Vanaf de afslag Albufeira slaat u linksaf bij de 3e rotonde, Albufeira nascente, en gaat u rechtdoor naar de rotonde 'wormen'.
+Volg de weg door bossen en over heuvels, steek de kreek over en verhoog tot een kruispunt. Ga rechtdoor.
+Stel je jezelf voor, of ga je meteen naar het deel waar je me probeert te vermoorden?
+Als je broer thuiskomt, ga je meteen naar je kamer en doe je je huiswerk.
+(Opgelet: 18 kilometer geen huizen.) Bij de asfaltweg linksaf.Waar de snelweg naar links buigt, gaan we rechtdoor.
+'...gas dat rechtstreeks naar uw huizen gaat of de turbines in onze centrales die elektriciteit produceren.' PHONE BEEPS
+Het duo Maika Cotton en Sambhavi Mathiyaznagan, beide achttien jaar oud, gaan rechtstreeks naar de eerste verdieping om te beginnen spinnen.
+Bij de volgende verkeerslichten gaat u rechtsaf richting Artis Zoo. Bij de kruising met verkeerslichten gaat u rechtdoor (Sarphatistraat).
+Ik ga niet naar het prikbord kijken, maar naar de meisjeskleedkamer.
+Toen we terugkwamen van de camping trip, moest ik meteen naar de dierenkliniek om het werk af te maken.
+Maar dan, op de 4 minuten, 34 seconden, gaan de bandensporen rechtdoor, direct naar de rand van de klif.
+Nou, kapitein, als u het niet leuk vindt zoals ik het doe, bent u vrij om uw ballen te pakken en direct naar huis te gaan.
+Twee weken lang ga je meteen naar school en kom je daarna meteen naar huis, geen activiteiten, geen rondhangen met vrienden.
+Ik zal, als u mij toestaat, meteen ingaan op het probleem van de technische barrières, naar aanleiding van de uitnodiging in Sir James' eigen toespraak.
+Neem links. • Ga rechtdoor voorbij de INA-markt aan uw linkerkant & bij AIIMS flyover neemt u de 2e linksafrit.
+Ja, James en ik kenden elkaar in die tijd, in Treme, voordat hij hetero probeerde te worden.
+Ze genieten van elke denkbare vorm van ongehoorzaamheid, gaan dan direct naar de kerk en bidden: "Heer, ik heb u mijn beste gegeven.
+Dus je moet zeggen, je weet wel, "Ga rechtdoor die grote weg en ga rechtsaf bij het rare ding."
+We zouden morgen een rollenspel doen over slechte spaghetti diners, maar ik denk dat we meteen naar het bedriegen van vriendinnen kunnen gaan.
+Ga dan rechtdoor naar Aussiedlerhof.. Voordat de boerderij heeft een bord op het hek aan de linkerkant op het veld.
+Hij zei: "Uw gebed is verhoord, dus ga rechtdoor, en volg niet het pad van degenen die het niet weten.
+Voorwaar, degenen die zeggen: "Onze Heer is Allah" en dan rechtuit gaan: voor hen is er geen vrees en zij zullen niet treuren.
+Ik ga een simpele duik maken, tot 50 mijl per uur en hou de vleugels stabiel en ga recht naar beneden.
+Vis naar Oberstdorf, ongeveer 1 km rechtsaf richting het einde van het dorp vissen sportpark, ga rechtdoor tot het einde
+Vanuit het centrum van Phan Thiet City ziet u de supermarkt van Coop Mart. Sla rechtsaf Nguyen Tat Thanh Street en ga rechtdoor.
+We moeten echter niet verder omhoog gaan, want na een paar zigzags gaan we rechtdoor, hoog boven de vallei.
+Er zijn geen getuigen, want de taxichauffeur eindigt dood en je gaat direct naar de eerste politieman die je kunt vinden.
+Bovendien kun je vanuit het dorp direct de bergen in, waar goede wandelwegen en paden voor mountainbikers beschikbaar zijn.
+Na de brug zien we rechts het dorpje Brittenwerd, maar bij het zijkanaal gaan we rechtdoor richting Oosterlittens (Easterlittens).
+De widget moet nu verschijnen op uw site, en bezoekers kunnen gemakkelijk beginnen met het kopen van tickets en ga direct naar uw evenement lijst!
+Nee, ze heeft het soort hoofdpijn waar je direct naar bed gaat en om de vier uur een paar Sammy's neemt.
+Vergeet niet dat ik hier ook geld voor heb.
+Ik wil hem daar oprecht hulde voor brengen en nu zal ik meteen ingaan op de kwestie van de institutionele hervorming.
+Nee, het is, "Ga rechtdoor de gang af, hang een rechter, een andere rechts, een links. "Dan rechtdoor op de eerste trap,
+De eerste verleiding is om direct te gaan in de auto update of Faciliteiten en besteden al uw geld aan het maken van uw auto direct sneller.
+Ik dacht dat ik direct naar de hemel zou gaan, maar er was een kleine verwarring, en ik werd wakker in iemand anders zijn lichaam.
+A: we kunnen romantisch gaan, zachte muziek spelen, kaarsen aansteken. Of B: recht naar de... God, het is zo lang geleden.
+Ik dacht dat ik direct naar de hemel zou gaan, maar er was een kleine verwarring en ik werd wakker in iemand anders zijn lichaam.
+U kunt de'springlijst' hieronder gebruiken om rechtstreeks naar een van de afdelingen te gaan - in dit geval vooral georganiseerd door de prijs...
+Je gaat terug naar Washington... ga direct naar het Witte Huis... en stort je hart uit over wat je hier denkt te zien.
+We gaan rechtdoor, op een lange en mooie trap en komen na weer vijf minuten bij de gymnásio (de middelbare school).
+Het enige probleem is, als je verloofde dood is, waarom ging je dan niet direct naar de politie?
+Anders gaan we meteen naar de hel.
+Ga vanaf Xuan Dieu Road rechtdoor naar Au Co Road, dat parallel loopt met An Duong Vuong. Blijf een paar minuten doorgaan.
+Ik dacht dat ik direct naar de hemel zou gaan, maar er was een kleine verwarring... en ik werd wakker in iemand anders zijn lichaam.
+Over de weg: Vanaf de snelweg A8 neemt u afslag 36 naar "Le Muy" en gaat u rechtdoor naar de RN555 - richting Draguignan.
+Vreemd feit: er is een betonnen brug die geen zin lijkt te hebben - onze pogingen om recht door de velden te gaan waren niet succesvol!
+Ja, maar deze laat me direct vanuit het museum naar huis gaan in plaats van helemaal terug naar school te moeten.
+Na 3-4 minuten gaan we natuurlijk rechtdoor, en na 6 minuten steken we samen een brug over met een bron ernaast.
+We gaan rechtdoor, op een lange en mooie trap en komen na weer vijf minuten bij de gymnásio (de middelbare school).
+Op dit punt kunnen we rechtdoor gaan, hoger omhoog, bij de gymnásio komen we dan bij de hoofdstraat van Chóra.
+Weet je, voor iemand die hetero probeert te zijn, heb je een grappige manier om het te laten zien.
+Jullie en wie met jullie berouw toont, gaan dus op de juiste weg, zoals jullie bevolen is en weest niet onbeschaamd. Voorwaar, Hij is Alziende over wat jullie doen.
+Als ik hem ontsla, gaat hij direct naar de pers, hij blaast het fluitje op de club en begint namen te noemen.
+(1u27) Als we daarentegen liever verder gaan naar de vuurtoren, moeten we RECHTS gaan terwijl we de grindweg nog 4 minuten volgen.
+Hij wil dat ik direct naar zijn huis ga, al zijn porno verzamelen, zijn favoriete kussen, en wat snacks, en hem op deze locatie ontmoeten.
+Jullie en wie met jullie berouw toont, gaan dus op de juiste weg, zoals jullie bevolen is en weest niet onbeschaamd. Voorwaar, Hij is Alziende over wat jullie doen.
+Stephanie ontmoet je op het vliegveld van Buffalo met een autoservice... en dan ga je direct naar Niagara Falls voor de eerste oriëntatie.
+De Voorzitter. - Aan de orde is het gecombineerd debat over de volgende verslagen:
+Vanaf het kasteel, steek het brugje over en neem de D130 rechts ongeveer 250m. Sla rechtsaf, steek de Créquoise over en ga rechtdoor.
+Ik vraag het alleen omdat het meestal tijd bespaart... en een hoop rotzooi... om recht op de vingers van de dominante hand af te gaan.
+Na de langste etappe van deze 74ste editie van de Race naar de zon leek Nacer Bouhanni (Cofidis, solutions crédits) meteen naar de overwinning te gaan.
+Onderteken onze naam, zweer aan wie dan ook of wat je ook zweert. Accepteer de gratie en ga dan direct terug naar de rekening.
+Daarna keren we terug naar de vallei en bij de hoek van de muur gaan we rechtdoor en omhoog op een mooi geplaveid pad naar Pláka.
+Start in oostelijke richting op de N13/Route de Paris naar Rue Arianne en volg de N13 
+Je gaat naar binnen via de lobby, neemt de lift naar de bovenste verdieping, gaat direct naar Stofeles' kantoor en vraagt waar je zoon is?
+Bij de volgende rotonde gaan we rechtdoor. Na een bocht naar rechts gaan we links naar het recreatiegebied en dan weer linksaf.
+Ik dacht dat ik direct naar de hemel zou gaan, maar er was een kleine verwarring, en ik werd wakker in iemand anders zijn lichaam.
+(0u44) Een minuut verder gaan we rechtdoor; het rotsachtige pad wordt breder en loopt nog steeds min of meer parallel aan de asfaltweg.
+Aan mij is geopenbaard dat jouw God één God is. Loopt dus met Hem mee en vraagt Hem om vergeving en wee de veelgodenaanbidders
+Zo passeren we naast de twee molens.In een bocht naar links, na weer 2-3 minuten, gaan we rechtdoor op de brede en geplaveide straat.
+Ja, eeuwen geleden introduceerden kerkmannen een niet-Bijbels concept: onsterfelijke zielen die het lichaam in de dood achterlaten en rechtstreeks naar de hemel, het vagevuur, Limbo of de hel gaan.
+Na twintig treden gaan we links, dan rechtdoor; na enkele treden dalen we scherp naar links (2 X [6]).
+Hier gaan we rechtdoor op een iets overgroeide trap en via een steile betonnen helling komen we op een betonweg ([6] op een boom).
+De 2 sturende en aangedreven voorassen trekken de truck rond een bocht waar een vrachtwagen met een stijve tandem de neiging heeft om rechtdoor te gaan.
+Cormon, Verlat, Toergenjev, Balzac, Daudet Omdat ik denk dat mijn verblijf in Antwerpen mij na alles nuttig heeft gemaakt denk ik dat we rechtdoor moeten gaan.
+Als u al online hebt ingecheckt dan kunt u gewoon rechtdoor de douane (naast eventuele bagage die u kunt verlaten op de bagage drop-off punten).
+Maar het is tijd om het licht nu te zien, en jezelf te bevrijden van al deze vallen. Ga rechtstreeks naar de Bron voor begeleiding, en sluit de MIDDENMAN uit.
+Om in te korten kun je ook rechtdoor gaan, maar het is beter om linksaf te gaan om een erg charmant en grappig technisch stuk single track niet te missen.
+Met deze inleidende opmerkingen wil ik meteen ingaan op de amendementen en zeggen dat: a) deze richtlijn voorziet in een alomvattende herziening van alle soorten verpakkingen.
+De weg eindigt bij de eerste huizen: we gaan rechtdoor in een rijstrook, buigen links en gaan dan rechts, en zo komen we onder de kerk uit.
+Om rechtstreeks van school naar de gelederen van de werklozen te gaan is de werkelijke angst van veel jongeren, een angst die rechtstreeks verband houdt met het gevoel van onzekerheid.
+(1u31) Voor de terugweg keren we terug langs de gevel van het klooster, maar naast de twee zuilen gaan we rechtdoor (wandelbord Chóra 2u15 + [1]).
+(1u08) Vandaag gaan we rechtdoor.Er zijn een aantal mooie bochten, die geleidelijk omhoog gaan en dan komen we op een plat grindpad dat meer naar links buigt.
+Als u beperkte tijd hebt om Zwitserland te zien, raden wij u aan direct naar de Alpen te gaan: bijvoorbeeld naar het oostelijke deel van het Meer van Genève, Zermatt of het Berner Oberland.
+Je kunt het hoofd eerst duiken in een geïllustreerde cursus die gericht is op het introduceren van teledetectie bij het grote publiek, of direct naar de glossarium om een definitie op te zoeken.
+Daarna passeren we een tweede kapel en we gaan rechtdoor de helling op en deze helling is ook geplaveid met rotsstenen, dus dit is het oude pad.
+We gaan de hele tijd rechtdoor en zo komen we aan het eind van het dorp.Hier vinden we de mooie estiatório I Voláx met een zeer aangenaam buitenterras.
+Maar als je vader dat niet kan zien, dan denk ik dat je geen andere keuze hebt dan direct naar huis te gaan en woedend op hem te zijn.
+Na ongeveer 600m kom je bij een ronde-a-bout, rechtdoor en na nog eens 400m rechts vind je Residence Villa Rosa (in Via della Pace, 7).
+Verder naar beneden buigt de rechtermuur naar rechts; hier moeten we NIET het pad volgen dat langs de muur lijkt te buigen.In plaats daarvan gaan we rechtdoor.
+Als kind leerde ik al vroeg dat als ik zou gaan concurreren in een wereld die groter was dan ik was, ik recht op dingen moest gaan.
+Autoweg A9, afslag Nîmes-Ouest richting Alès. Ga rechtdoor naar Sauve of Le Vigan. Bij de halte linksaf richting Vacquerolles. Bij de rotonde Intermarché, neem de eerste straat rechts.
+Daarna gaan we weer rechtdoor naar de stad, door het kleine en zeer pittoreske steegje links van de tandartspraktijk te nemen. De steeg die van naast de molens komt...
+Na een paar twee minuten en 88 treden houden we rechts op de aflopende straat, naast een huis met een rood dak.We gaan NIET rechtdoor.
+Net voorbij een betonnen helling komen we op een ander pad (dat we volgen op de wandeling van Filóti naar Chalkí) en we gaan rechtdoor op een heel mooi en smal pad.
+(3u32) Het vervolg is heel duidelijk: een rotsachtige afdaling van 5 minuten, bij het kruispunt gaan we rechtdoor en dan volgen we nog 6 minuten een grindpad.
+Eenmaal aan de rand, ga rechtdoor in het bos op stoned dan grasachtige manier. Bij het kruis slaat u rechtsaf; na 500m, ga naar beneden op een kleine grasachtige weg aan de rechterkant.
+Als je je realiseert dat je iets verloren hebt terwijl je op het vliegveld bent, moet je direct naar het verloren vastgoedkantoor gaan en vragen of het gevonden is.
+Misschien zou het eenvoudigweg mogelijk zijn om uit de opgedane ervaring te veronderstellen dat ontbranding kan worden verkregen, en zo direct naar de bouw van een demonstratie (of prototype) reactor te gaan.
+We gaan deze helling op en lopen onder een kapel; we gaan rechtdoor op de grindweg, die we ongeveer 6 minuten volgen tot de bocht rechts.
+Verlaat het station via de afslag naar Gendarmenmarkt, ga rechtdoor tot Markgrafenstrasse, sla rechtsaf de Markgrafenstrasse in en neem dan de volgende straat links, Kronenstrasse, ongeveer 400 meter.
+Vanaf daar gaan ze rechtdoor naar het zuiden naar de sprint in La Machine voordat ze het laatste deel van de etappe starten die naar het westen gaat richting het autocircuit ten zuiden van Nevers.
+Drie minuten na de afslag naar Schinopí gaan we rechtdoor langs een kapel en dalen we gauw in een vallei af door een paar bochten te volgen die nog geplaveid zijn.
+Vanaf de snelwegen A7 neemt u de A46 richting Genève en Grenoble, neemt u de afslag n°6 Décines centrum en volgt u richting Décines centrum, u gaat rechtdoor tot het einde van de avenue Jean Jaurès.
+Zou een arts het er gewoon niet mee eens zijn als een van zijn collega's bleef geloven dat hij direct van het behandelen van dode lichamen in een lijkenhuis naar het onderzoeken van zieke patiënten in een ziekenhuisafdeling kon gaan?
+Een prachtige trap! (3u04) Daarna komen we bij de splitsing met het pad dat van Spathí komt, waar we rechtdoor gaan [1] en na iets meer dan een minuut komen we bij de bron van Venjamin.
+Na 10 km fietsen door het bos splitst de route zich: rechts de oorspronkelijke route maar we gaan rechtdoor via Köniz, via Könizertal naar Kehrsatz, om het zo maar te zeggen, rond de Berner Home-Mountain "Gurten."
+Vanaf het winkelcentrum, afslag van de middelste ingang waar u Pawia Street te zien. Ga rechtdoor Pawia en de Kurniki Street naar Plac Matejki en blijf lopen rechtdoor naar Św. Filipa Street.
+We kunnen naar het westen gaan, waar het nieuwe ijs is... wat waarschijnlijk gekarteld is... of we kunnen rechtdoor gaan of naar het oosten... wat oud ijs zal zijn, wat angstaanjagend is.
+De belangrijkste doelstelling is om direct ter zake te komen, de procedures te vereenvoudigen en de uitvoering van de uit het Cohesiefonds, de structuurfondsen en het Europees Fonds voor Regionale Ontwikkeling gefinancierde programma's te versnellen.
+Tegenover het station ga je rechtsaf richting Akersloot. Na 1.0 km ga je rechtsaf de Castricummerweg op. We gaan rechtdoor en aan het eind sla je linksaf bij de T-kruising (Middelweg).
+Van deze hymnen en van de religieuze opvoeding die ik op school kreeg, leerde ik de kerk onderricht over de dubbele bestemming van de mensheid: goede mensen gaan rechtstreeks naar de hemel bij de dood; slechte naar helvuur.
+Ga rechtdoor door het volgende kruispunt, ga iets naar links en ga dan direct rechtsaf in de Braamstraat; volg deze straat en ga dan rechtdoor in de Leo Van Hullebuschstraat, tot je niet verder kunt.
+Er zijn geen getuigen, maar de taxichauffeur eindigt dood en je gaat direct naar het eerste politiebureau. Je zegt dat hij een pistool op je richtte en wat er gebeurde was zelfverdediging van jouw kant.
+Dan is er de G. gids (gids), in deze modus kunt u de Digi-Dice gebruiken voor een richting om dit te bepalen, ga volledig willekeurig terug Er zijn drie mogelijkheden, draai links, draai rechts en ga rechtdoor.
+Overal bloemen (27 april 2011)! (3u32) Het vervolg is echt eenduidig: een rotsachtige afdaling van 5 minuten, bij het kruispunt gaan we rechtdoor en dan volgen we nog 6 minuten een grindpad.
+In een bocht naar links, na weer 2-3 minuten, gaan we rechtdoor op de brede en geplaveide straat. We nemen dan de vijfde straat rechts (bij een blauwe inscriptie op de muur).
+... naar het noorden - een eenvoudige route leidt u naar het centrum van de stad als u van de noordelijke snelweg D8 komt. Ga rechtdoor, steek de rivier twee keer over en na de tweede brug neemt u de tweede afslag (u Bulhara).
+We gaan rechtdoor en passeren een pad dat links omhoog gaat en we gaan nog steeds rechtdoor (wandelbordje). Al snel wordt onze weg zanderig, maar hier en daar zien we nog steeds het oude plaveisel.
+Mijnheer de Voorzitter, mevrouw de vice-voorzitter van de Commissie, mijnheer de fungerend voorzitter van de Raad, mijnheer Haarder, ik ben blij dat u hier aanwezig bent en dat wij in discussie zijn, maar ik moet meteen naar de kern van al deze debatten gaan.
+Ronde van 22 km: Vanaf Vissershang ga je naar het zuiden op het hoofdkanaal en dan rechtsaf.Het gaat rechtdoor en je komt bij het brede water Spijkerboor.Paddle naar de andere kant en dan linksaf.
+[Wil je verder op het pad gaan, dan kunnen we rechtdoor, bij het huis, links van een muur. Even verder volgen we een terras, dat in de lente bedekt is met gras en bloemen.
+Het Tiroolse skigebied biedt meer dan 238 km lange droompisten met 45 liften van de Silvretta Arena. Vanaf Ischgl centrum gaan 3 liften rechtstreeks naar de Idalp, waar het ski- en snowboardplezier kan beginnen.
+De terugweg is heel duidelijk, maar voor het vertrek moeten we goed om ons heen kijken. We hoeven niet recht naar beneden; in plaats daarvan moeten we een brede bocht naar links beschrijven, op een pad tussen muren.
+Dit is de nieuwste wetenschappelijke ontwikkeling in gunstige voedingsstoffen absorptie door de huid, dus de van nature afgeleide therapeutische ingrediënten, botanische extracten, vitamine complexen en antioxidanten gaan direct in de weefsels van de penis - snel, specifiek gericht, en onmiddellijk effectief.
+Bij de kerk, 1 minuut verder, zien we nog een pad rechts - zie de wandeling Chorió-Monastíria-Soúfi en terug - maar weer gaan we rechtdoor, de straat links van de kerk volgend.
+Waarom de aankoopbeslissingen baseren op impressionistische commercials over een breed scala aan consumentenproducten wanneer personen die bereid zijn om een bepaald product te kopen direct naar de bron van de informatie kunnen gaan en precies weten wat ze moeten weten?
+Hoewel er geen wiskundeleraar was op het moment dat hij in 1951 in staat was om direct naar de derde jaar Wiskunde aan de Canterbury University College van de Universiteit van Nieuw-Zeeland, de voorloper van de Universiteit van Canterbury.
+Omstreeks deze tijd Jan was te wijten aan een radiologie-examen en ze stopte haar onmiddellijk in een ambulance om direct naar het ziekenhuis te gaan toen ze ontdekte dat ze DVT had en de stolsels waren gemigreerd waardoor een longembolie.
+Je gaat direct de voordeur uit, alsof je het hele gebouw bezit, dus als ze een rapport inleveren, kun je hun aandacht vestigen op het feit dat je hier nauwelijks lang genoeg was...
+Judas in de stad (1972.2) 183:2.1 Nadat Judas zo abrupt de tafel verliet tijdens het eten van het Laatste Avondmaal, ging hij direct naar het huis van zijn neef, en gingen de twee direct naar de kapitein van de tempelwachten.
+We volgen nu een zeer heldere en rotsachtige track gedurende 7-8 minuten tot aan de top van een heuvelrug - er is halverwege een splitsing waar we rechtdoor kunnen gaan, maar het is beter om rechts te houden.
+Ga rechtdoor en dit is de Leo Terzweillaan. Blijf rechtdoor gaan en automatisch ziet u de hoofdingang en parkeerplaats van SEBECO CENTER, Kerkstraat 106, BE-9050 GHENT. In het hoofdgebouw kunt u zich melden bij de receptie.
+Op het vliegveld ga je direct naar de gate en laat je de barcode lezen op het scherm van je smartphone door een scanner. Als je de bagage wilt inchecken, gebruik dan de speciale bagage drop-off bureau of de Check-in bureau.
+(0u41) We gaan rechts, passeren over een brugje, maar al in de eerste bocht kunnen we rechtdoor op een prachtig en breed trappad - dat is alles wat er overblijft van de voormalige verbinding Agios Geórgios - Panagiá.
+Na weer 2 minuten komen we bij een kruising, waar we rechtdoor en omhoog gaan. Ongeveer 6 minuten verder komen we op een splitsing tussen de huizen van Mesathoúri; bij een hoge muur van natuursteen gaan we links.
+Even later komen we bij de eerste huizen van Pitrofós, waar we weer links houden.Later gaan we rechtdoor, nog na het nummer [9].We komen zo bij de wasplaats met de Barbéri-well en met heel verfrissend water.
+En hoe zouden de veelgodenaanbidders een verbond met Allah en Zijn Boodschapper kunnen sluiten, behalve met degenen met wie jullie een verbond hebben gesloten in de Masdjid al Harâm (de Masdjid al Harâm)? Zolang zij met jullie eerlijk zijn, treden jullie met hen op de rechte weg. Voorwaar, Allah houdt van de Moettaqôen.
+Daarna keren we terug naar het hoofdpad.(0u53) Daar gaan we recht omhoog (bord en [4]) en na een steil eind komen we op een grindweg, waar we RECHTS naar de Panagía Rachidiótissa gaan - helaas is deze kerk altijd gesloten.
+Wanneer u voor het eerst start, bent u alleen in de weergavemodus. Om uw instellingen te wijzigen, klikt u op Administratormodus. Als u als root bent ingelogd, gaat u direct naar het dialoogvenster Wijzigen. Zo niet, dan zal & kde; om een superuser wachtwoord vragen.
+In het dorp zal er een teken zijn dat deze weg een doodlopende weg is. Aarzel niet maar ga rechtdoor en je komt bij het hek aan het zuiden van de luchthaven. Hier zie je het baken achter dit hek.
+Ik heb zaterdag m'n eerste afspraak met een dyslexiespecialist... en hij is de beste in Ohio... dus hij kon me er alleen om zeven uur in stoppen... wat betekent dat ik direct naar huis moet na de wedstrijd.
+En hoe zouden de veelgodenaanbidders een verbond met Allah en Zijn Boodschapper kunnen sluiten, behalve met degenen met wie jullie een verbond hebben gesloten in de Masdjid al Harâm (de Masdjid al Harâm)? Zolang zij met jullie eerlijk zijn, treden jullie met hen op de rechte weg. Voorwaar, Allah houdt van de Moettaqôen.
+Als je dit over een week komt bekijken, zal dit compleet anders zijn, dynamisch, net als het web, en net als het web, is alles afkomstig, dus klik op je link, en je gaat rechtstreeks naar Flickr en zie de bronafbeelding.
+Snelgroeiende bomen, het huis bereikt 50 m hoogte, kroon piramidale, vrijstaande takken gaan recht van de grond schors van een donkere as-grijs, gerimpeld, afpellen van de platen, horizontale takken, verspreiden, de bovenste - verhoogd, jonge scheuten glabrous, licht harsachtig, donkerder met de leeftijd.
+We gaan rechtdoor, passeren veel winkels en aan het eind van de voetgangersstraat, naast een brug, gaan we links, voor of na de bedding van de rivier - er is een wegwijzer naar het strand van Tis Griás naar Pídima.
+Mijn bedoeling heeft mij zoveel goeds van u verteld, mijn lieve jongedame, zei de tamme Raven. Uw verhaal is zeer van invloed. Als u de lamp, Ik zal gaan voor. We zullen rechtdoor gaan, want we zullen niemand ontmoeten.
+Ga rechtdoor en snel rechtsaf na het restaurant Boi nos Aires in de kleine zijstraat (Rua Amendoeiras) en vervolgens in de 2. straat aan uw linkerkant (Rua do Ipe) - en hier bent u.Vliegtuig en bus verbindingen.Dichtstbijzijnde luchthaven: Porto Seguro 10 km.
+(0u25) We gaan rechtdoor en een paar minuten later passeren we onder een elegante dubbele kapel, het pad blijft aangenaam en loopt altijd naast de watergoot. Weer kunnen we genieten van het mooie uitzicht op Mélanes, inclusief de lelijke structuur van een onvoltooide kerk.
+(1u 10) Voorbij het hek gaan we rechtdoor, ongeveer 3 minuten links van een muur. Dan gaan we nog rechtdoor, maar weg van de muur [8]. Het prachtige, roodbruine pad daalt af, maar blijft hoog boven de eenzame rotskust.
+Geniet van uw maaltijd!Serveer uw tafel Bestel nu uw drankje tokens Zo hoeft u niet in de rij te staan en kunt u direct naar de bar gaan Bestellen Meer AB tips voor u za 26.10.19 André Hazes Koop tickets AB Main Hall Fanmail Deel uw nieuwste muzikale ontdekkingen met ons!
+Geniet van je maaltijd!Serveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je meteen naar de bar gaan Bestellen Meer AB tips voor jou di 26.03.19 Maribou State Koop tickets AB Hoofdzaal Fanmail Deel je laatste muzikale ontdekkingen met ons!
+De stad is vol met cafés en bars voor jongeren uit waarvan we raden aan om naar de discotheek "Cocomo". En als je wilt een echt nachtfeest en een leuke tijd, dan kunt u direct naar het strand Zrće dat is slechts een paar mijl afstand.
+Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je meteen naar de bar gaan Bestellen Meer AB tips voor jou vr 08.03.19 Kate Carr Field-recording artist brengt het laatste werk naar Brussel Gratis AB Salon Fanmail Deel je laatste muzikale ontdekkingen met ons!
+Deze band staat bol van talent, want afgezien van het feit dat we te maken hebben met klassiek getrainde muzikanten, zijn ze in staat om een aantal aanstekelijke songs te schrijven die direct naar het hart gaan, maar met genoeg zware riffs en inventieve gitaar ornamenten (eens weer een vrouw!) om met belangstelling te blijven luisteren.
+Vanuit Utrecht neemt u de N230 richting Maarssen. Ga rechtdoor over twee rotondes en ga naar de A2 richting Amsterdam. Ga verder op de S110. Na 2,8 km rechtsaf bij s100/Stadhouderskade. Ga verder op de S100. Sla na 2,3 km rechtsaf de Zeeburgerdijk in. Na 200 meter is de Lombokstraat rechts.
+Wandelen: Neem de "Rua Marinho Falcão" in de voorkant van het metrostation Exit, steek de "Rua Paulistania" over en ga rechtdoor de trap tot aan de "Rua Harmonia." Sla linksaf in de "Rua Harmonia" en loop tot aan de "Rua Rodésia" wanneer u rechtsaf en dan linksaf op "Rua Girassol."
+Toegang: van Lednice via de weg naar Podivin, na ongeveer 2 km (achter de brug over de Thaya rivier) linksaf, ga door de poort binnen het hek (dit hek zal waarschijnlijk worden verwijderd door de tijd), ga rechtdoor langs de brede weg, na 200 m kom je bij de Obelisk.
+U kunt naar de Celebrate Safe stand gaan als u vragen heeft over alcohol en/of drugs. De medewerkers van Unity geven u graag tips en uitleg als u zich niet lekker voelt, maar gaan direct naar het eerste hulppunt met ernstige problemen. Ze zijn er om u waar nodig te helpen.
+Om door de pagina's van & UNIX; Info te bladeren, voert u info in: / dir brengt u naar de map op het hoogste niveau van Info, dan is het gewoon een kwestie van klikken op de juiste links om de pagina te vinden die u wilt. U kunt ook info gebruiken: / commandonaam om direct naar de pagina Informatie te gaan die u wilt.
+Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestellen Meer AB tips voor jou wo 12.06.19 Wilco Experimental top-americana met Jeff Tweedy en co Koop tickets AB Main Hall Fanmail Deel je laatste muzikale ontdekkingen met ons!
+Daarna gaan we weer rechtdoor naar het stadje, door links van de tandartspraktijk het kleine en zeer pittoreske steegje te nemen. Aan het eind van deze straat gaan we even rechts, in de Odós Mitropóleoos.We nemen dan de eerste straat links, de Odós Enóploon Dinámeoon.
+Na een tijdje verandert deze weg in een kronkelend pad, dat wat verder naar beneden splitst: links is er een pad dat leidt naar een olijfboomgaard (ook dit pad zou ons in ongeveer 10 minuten op de juiste weg brengen). We gaan echter rechtdoor, op een wat overgroeid stuk.
+(1u33) Het pad gaat links van de kapel van Agios Spyrídonas, we gaan rechtdoor ([3] op een telefoonpaal) en dalen snel af door enkele pijnbomen - en zo komen we op een geplaveide weg, links van de mooie kerk met de blauwe koepel van Karyá.
+We zijn nu recht onder de grote weg: we gaan rechtdoor de betonnen helling op en zo komen we op de weg Sagrí "Trytí" Filóti. Rechtdoor en een beetje rechts vinden we het pleintje bij de taverne O Giánnis met het meest aangename buitenterras van Chalkí. (3u10)
+Routebeschrijving Vanaf "Jorge Chávez" International Airport, sla rechtsaf naar Elmer Faucett Avenue en ga rechtdoor naar La Marina Avenue in de wijk San Miguel. Twee blokken voordat u aankomt op de Marina Avenue sla linksaf door Contisuyo Street ( BancoContinental) een blok, sla dan rechtsaf door Mollocmarca straat en ga rechtdoor tot Machu Picchu Park.
+Galleria dell'Accademia: hal van de Colossus Italië Tickets Menu Nederlands (US) Help Tickets Downloaden Winkelwagen Nederlands (US) Help Tickets Downloaden Winkelwagen Galleria dell'Accademia: hal van de Colossus Galleria dell'Accademia: hal van de Colossus Wanneer we praten over de Galleria dell'Accademia in Florence, gaan onze gedachten rechtstreeks naar de David en de krachtige sculpturen van Michelangelo.
+Geniet van je maaltijd!Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je meteen naar de bar gaan Bestellen Meer AB tips voor jou za 02.02.19 Wannes Cappelle & Broeder Dieleman & Frans Grapperhaus: Dit Is De Bedoeling Koop tickets AB Club Fanmail Deel je laatste muzikale ontdekkingen met ons!
+(2u53) We komen dan bij de splitsing met het pad dat van Spathí komt, waar we rechtdoor gaan [1] en na iets meer dan een minuut komen we bij de bron van Venjamin. Hier wordt het pad breed en loopt het horizontaal verder (bordje Leeuw van Kéa.): het buigt naar links en we krijgen een mooi zicht op Ioulída.
+Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je meteen naar de bar gaan Bestel Meer AB tips voor jou za 09.03.19 Blu Samu Het zusje in de Brusselse hiphop scene Koop tickets AB Club do 28.03.19 Zwangere Guy - Extra show Zet Gee in da mothafukin gebouw!
+Vervoer Vanaf Cristesti invoeren Targu Mures, houden de hoofdweg, aan de rechterkant zie je AUCHAN MALL, passeren Auchan en de rotonde, en bij het eerste licht gaan we links, dan rechtdoor tot een kerk, houd de voorrang weg tot de rotonde, ga dan links, ga rechtdoor, en na het tankstation, maak een rechts
+Als we rechtdoor gaan, zien we kort na een straatje dat rechts naar beneden gaat (marmerbord "Pros Loutrá" = "Naar Loutrá" + rode stip), maar we gaan bijna direct weer links (rode stip). Aan het eind van het dorp (ander marmeren bordje) gaan we scherp rechts en dalen we een mooie, schaduwrijke trap af.
+Natuurlijk is dit de "officiële" teller die alleen mensen telt die door de "voordeur" komen; alleen de allereerste pagina van onze site.Als u onze site eerder hebt bezocht, gaat u waarschijnlijk direct naar een subpagina en wordt u niet geteld.Er is ook een overeenkomst tussen Avalon-leden om onze eerste pagina niet te bezoeken, om te voorkomen dat we onze eigen teller optrekken.
+Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou do 07.02.19 Good Charlotte + Sleeping With Sirens + The Dose, Boston Manor Pop-punk helden creëren een nostalgisch feest met oud en nieuw materiaal Koop tickets AB Main Hall do 21.02.19 Broederliefde Rotterdammers blijven doorgaan!
+Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou do 07.02.19 Good Charlotte + Sleeping With Sirens + The Dose, Boston Manor Pop-punk helden creëren een nostalgisch feest met oud en nieuw materiaal Koop tickets AB Main Hall Fanmail Deel je nieuwste muzikale ontdekkingen met ons!
+Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou Zo 05.05.19 Wandelen op auto's Opstaan van een Ierse pop sensatie Algemeen in de aanbieding start op 25-01 AB Box zo 12.05.19 Veugels Algemeen in de verkoop start op 01-02 AB Hoofdzaal Fanmail Deel je laatste muzikale ontdekkingen met ons!
+De heer Maher (LDR). - (EN) Mijnheer de Voorzitter, ik wil de heer Maher danken voor zijn antwoord.
+Maar als het volk des lands voor het aangezicht des HEEREN komt op de vaste hoogtijden, zo zal hij, die bij de noorderpoort komt om te aanbidden, uitgaan bij de zuiderpoort; en die bij de zuiderpoort komt, zal uitgaan bij de noorderdeur; hij zal niet wederkeren bij de deuropening, waarheen hij gegaan is, maar hij zal recht voor zijn aangezicht gaan.
+We volgen deze betonweg ongeveer 3 minuten en gaan dan weer 7 minuten verder op een grindwegje, waarbij we niet op de zijpaden of zijwegen letten en we gaan nog steeds richting Minóa. Tien minuten na ons vertrek van Rachídi en op het moment dat de weg naar Minóa rechts buigt, moeten we rechtdoor: we zien de dam al voor ons.
+Geniet van je maaltijd!Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou di 26.03.19 Maribou State Koop tickets AB Hoofdzaal wo 10.04.19 Giorgio Moroder De viering van de jaren 80 Uitverkocht AB Hoofdzaal za 11.05.19 Kruder & Dorfmeister 25 jaar Legendary DJ duo markeert 25 jaar met drie uur lange set!
+[Het pad rechtdoor, dat we een tijdje voor ons omhoog kunnen zien gaan, gaat naar de grindweg die van de Profítis Ilías komt en naar de hoofdweg naar Manganári - zie de wandeling Chóra - Agia Theodóti.] (1u01) We dalen links af en houden eerst liever links van ons doel, Agios Prokópios; daarna gaan we recht naar dit klooster.
+Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestel Meer AB tips voor jou wo 13.02.19 Analog Africa presents Gyedu-Blay Ambolley & His Sekondi Band The 'James Brown of Ghana' serveert full-cream afro-funk & highlife Koop tickets AB Club za 02.03.19 Neneh Cherry Pop presents vijfde album 'Broken Politics', geproduceerd door Four Tet Koop tickets Ballroom Fanmail Deel je laatste muzikale ontdekkingen met ons!
+Geniet van je maaltijd!Reserveer je tafel Bestel nu je drankje tokens Zo hoef je niet in de rij te staan en kun je direct naar de bar gaan Bestellen Meer AB tips voor jou vr 01.03.19 Bakermat Koop tickets AB Grote Zaal ma 11.03.19 The Blaze Uitverkocht AB Grote Zaal di 19.03.19 Martin Solveig Koop tickets AB Grote Zaal vr 22.11.19 Kid Noize Live De man met een apengezicht Koop tickets AB Hoofdzaal Fanmail Deel je laatste muzikale ontdekkingen met ons!
+Daar is het parcours iets anders dan vorig jaar, want na een korte up/down ten zuiden van Maastricht/Bemelen gaan de renners rechtsaf richting de beklimming van de Bemelerberg voordat ze naar het zuiden gaan richting het parcours van de groene lus waar ze deze keer rechtdoor gaan na de beklimming van de Loorberg, voordat ze linksaf gaan richting de Gulpenerberg waarna ze de Kruisberg gaan vinden (in plaats van naar de Plettenberg als in de eerste lus) en de Eyserbosweg en Fromberg.
+Met de auto naar Yes hotel in het centrum van Rome: Uitgang luchthaven volgende richtingen Rome. Neem de afslag met vermelding van Cristoforo Colombo - Roma Centro. Ga rechtdoor tot je aankomt op het Piazza San Giovanni in Laterano, vanaf hier moet je de Via Merulana nemen totdat je aankomt bij de Basilica Santa Maria Maggiore, rechtsaf en je zult het station voor je zien. Ga linksaf aan het einde van de weg en ga verder tot de verkeerslichten in Piazza del Cinquecento, neem een rechtse en ga rechtdoor op Via San Martino della Battaglia rechtsaf Via Magenta.
+Links kunnen we genieten van een prachtig uitzicht op de bergketen met de Fanari, en verder kunnen we de hele vallei vol met olijfbomen bewonderen. Aan het einde van dit traject gaan we weer rechtdoor, zonder aandacht te besteden aan het rotsachtige pad dat rechts omhoog gaat.(1u54) We passeren onder mooie, grote eikenbomen - sommige zijn echt een kunstwerk - en gaan nu verder op een heel breed rotspad dat tussen muren afdaalt, met een prachtig uitzicht over de vallei, met Chalkí en Filóti. Het pad smalt en zo komen we onder een grote mediterrane eik en op een grindweg.

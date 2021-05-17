@@ -1,45 +1,45 @@
-Agent een pleidooi .	-0.6435332894325256
-Je gaat een bekentenis afleggen .	-0.5687443614006042
-- Ze gaan een bekentenis afleggen .	-0.5939540863037109
-Ik wil een deal sluiten .	-0.46176403760910034
-We willen een deal sluiten .	-0.46905213594436646
-We zijn niet op zoek naar een schuldbekentenis .	-0.5268179178237915
-Ik heb haar niet vermoord .	-0.254337877035141
-Ik vind dat we een deal moeten sluiten .	-0.4935191869735718
-Als Hayes veroordeeld wordt , kan hij een bekentenis afleggen .	-0.4555341899394989
-Ik wilde een deal sluiten .	-0.6290474534034729
-Gaat hij eindelijk een deal sluiten ?	-0.4259042739868164
-Hij heeft een FBI-agent vermoord .	-0.3767169415950775
-- Mijn advocaat wil dat ik een bekentenis afleg .	-0.5708237290382385
-Je zou een deal kunnen sluiten , misschien , met Mullins .	-0.554668664932251
-Nee , waarom zou je een bekentenis afleggen ?	-0.6505487561225891
-Ik wed dat iemand hem betaalde om een deal te sluiten .	-0.4282151460647583
-Je bent maar een werknemer , toch ?	-0.46542999148368835
-Ik geef je een kans om een deal te sluiten .	-0.416528582572937
-Als we een deal sluiten , doen we het samen .	-0.6576138734817505
-Het lijkt erop dat Lambert bewijs verzamelde om een deal te sluiten .	-0.4497886598110199
-Hij moet een deal sluiten .	-0.4787644147872925
-En als ik hem aanraad om een deal te sluiten ?	-0.5456385612487793
-Je cliënt kan het fatsoenlijke doen en een deal sluiten .	-0.6441211700439453
-Als je bekent , als je een schuld bekent , is het een ander verhaal .	-0.5249537825584412
-Banks gaat een verzoek indienen om de doodstraf te ontlopen .	-0.49383267760276794
-We claimen zelfverdediging , agent een pleidooi , je bent vrij over drie jaar .	-0.5774155855178833
-Omdat mijn briljante advocaten me een schuldbekentenis maakten , daarom .	-0.5632430911064148
-Ik vertel je wat er kan gebeuren als je een bekentenis aflegt .	-0.5380028486251831
-Morgenochtend raadt Nathan 's pro-Deoadvocaat aan om een deal te sluiten .	-0.5773742198944092
-En de enige uitweg voor hem is om een deal te sluiten .	-0.560230553150177
-Meestal bekent hij een bekentenis en gaat hij verder .	-0.8504220843315125
-Ze denken dat ik een deal ga sluiten , ze kraken allebei walnoten in hun reet .	-0.507148027420044
-Je krijgt nog steeds vijf tot tien jaar , zelfs als we een deal sluiten .	-0.5180880427360535
-Luister , als je namens Charlie getuigt , denkt Mr Bauer dat hij een deal kan sluiten .	-0.3910006284713745
-Tegen de tijd dat hij voor de rechter komt ... is hij klaar om een deal te sluiten .	-0.46258705854415894
-Marcy overtuigde me om een deal te sluiten en scheidde van me toen ik binnen was .	-0.406100869178772
-En als Holland een gewone mook was met een openbare verdediger , zou hij smeken om een bekentenis .	-0.4625438153743744
-De Costellos willen een aanklacht indienen die niet de doodstraf betekent .	-0.5398121476173401
-Dat als ik hem er niet uit liet , hij zichzelf zou ontlasten bij de OvJ .	-0.5070306658744812
-Het vertelt me echter niet of het slam-dunks waren , of dat als het moeilijk wordt , je een deal maakt .	-0.5976815223693848
-De OvJ laat ons geen bekentenis afleggen en we gaan een rechtszaak aan met een cliënt die we niet kunnen vertrouwen .	-0.5247235894203186
-En dan kan hij of jouw andere apen die daar zitten mij doodslaan en een pleidooi van zelfverdediging doen .	-0.6443653702735901
-Ik huurde het beste verdedigingsgeld in ... en nadat ze het bewijs tegen mij bekeken hadden , raadden ze me aan een deal te sluiten .	-0.5319716334342957
-Ik bedoel , het juiste spel zou zijn om een deal te sluiten , man één , geen leven aan de achterkant , ze zijn gegarandeerd op een gegeven moment vrij te komen .	-0.5268027782440186
-En weet je , Samantha 's dood zag eruit als een aanslag , totdat we ontdekten dat Virgil Maddox klaar was om een deal te sluiten .	-0.4280555844306946
+Agent een pleidooi.
+Je gaat een bekentenis afleggen.
+- Ze gaan een bekentenis afleggen.
+Ik wil een deal sluiten.
+We willen een deal sluiten.
+We zijn niet op zoek naar een schuldbekentenis.
+Ik heb haar niet vermoord.
+Ik vind dat we een deal moeten sluiten.
+Als Hayes veroordeeld wordt, kan hij een bekentenis afleggen.
+Ik wilde een deal sluiten.
+Gaat hij eindelijk een deal sluiten?
+Hij heeft een FBI-agent vermoord.
+- Mijn advocaat wil dat ik een bekentenis afleg.
+Je zou een deal kunnen sluiten, misschien, met Mullins.
+Nee, waarom zou je een bekentenis afleggen?
+Ik wed dat iemand hem betaalde om een deal te sluiten.
+Je bent maar een werknemer, toch?
+Ik geef je een kans om een deal te sluiten.
+Als we een deal sluiten, doen we het samen.
+Het lijkt erop dat Lambert bewijs verzamelde om een deal te sluiten.
+Hij moet een deal sluiten.
+En als ik hem aanraad om een deal te sluiten?
+Je cliënt kan het fatsoenlijke doen en een deal sluiten.
+Als je bekent, als je een schuld bekent, is het een ander verhaal.
+Banks gaat een verzoek indienen om de doodstraf te ontlopen.
+We claimen zelfverdediging, agent een pleidooi, je bent vrij over drie jaar.
+Omdat mijn briljante advocaten me een schuldbekentenis maakten, daarom.
+Ik vertel je wat er kan gebeuren als je een bekentenis aflegt.
+Morgenochtend raadt Nathan's pro-Deoadvocaat aan om een deal te sluiten.
+En de enige uitweg voor hem is om een deal te sluiten.
+Meestal bekent hij een bekentenis en gaat hij verder.
+Ze denken dat ik een deal ga sluiten, ze kraken allebei walnoten in hun reet.
+Je krijgt nog steeds vijf tot tien jaar, zelfs als we een deal sluiten.
+Luister, als je namens Charlie getuigt, denkt Mr Bauer dat hij een deal kan sluiten.
+Tegen de tijd dat hij voor de rechter komt... is hij klaar om een deal te sluiten.
+Marcy overtuigde me om een deal te sluiten en scheidde van me toen ik binnen was.
+En als Holland een gewone mook was met een openbare verdediger, zou hij smeken om een bekentenis.
+De Costellos willen een aanklacht indienen die niet de doodstraf betekent.
+Dat als ik hem er niet uit liet, hij zichzelf zou ontlasten bij de OvJ.
+Het vertelt me echter niet of het slam-dunks waren, of dat als het moeilijk wordt, je een deal maakt.
+De OvJ laat ons geen bekentenis afleggen en we gaan een rechtszaak aan met een cliënt die we niet kunnen vertrouwen.
+En dan kan hij of jouw andere apen die daar zitten mij doodslaan en een pleidooi van zelfverdediging doen.
+Ik huurde het beste verdedigingsgeld in... en nadat ze het bewijs tegen mij bekeken hadden, raadden ze me aan een deal te sluiten.
+Ik bedoel, het juiste spel zou zijn om een deal te sluiten, man één, geen leven aan de achterkant, ze zijn gegarandeerd op een gegeven moment vrij te komen.
+En weet je, Samantha's dood zag eruit als een aanslag, totdat we ontdekten dat Virgil Maddox klaar was om een deal te sluiten.

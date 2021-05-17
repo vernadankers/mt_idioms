@@ -1,500 +1,500 @@
-Rot op .	-0.5588397979736328
-Rot op .	-0.4101737141609192
-- Rot op .	-0.3812365233898163
-Rot op .	-0.4101737141609192
-Rot op .	-0.4101737141609192
-Rot op .	-0.5588397979736328
-Rot op .	-0.5588397979736328
-Rot op .	-0.5588397979736328
-Hé , knul , rot op .	-0.45999518036842346
-Rot op .	-0.4101737141609192
-Rot op .	-0.5588397979736328
-Rot op .	-0.4101737141609192
-Rot op .	-0.4101737141609192
-Rot op .	-0.4101737141609192
-Rot op .	-0.4101737141609192
-`` Verdwijn . ''	-0.5480244755744934
-Rot op .	-0.4101737141609192
-Rot op .	-0.4101737141609192
-Rot op .	-0.5588397979736328
-Rot op .	-0.5588397979736328
-Rot op .	-0.5588397979736328
-Rot op .	-0.5588397979736328
-Rot op .	-0.4101737141609192
-Rot op .	-0.5588397979736328
-Rot op .	-0.4101737141609192
-- Rot op !	-0.507168710231781
-Rot op .	-0.5588397979736328
-- Rot op !	-0.507168710231781
-Rot op .	-0.4101737141609192
-Verdwijn .	-0.4165419042110443
-Rot op .	-0.5588397979736328
-Rot op .	-0.4101737141609192
-Rot op .	-0.4101737141609192
-- Rot op !	-0.5095326900482178
-- Rot op .	-0.3797397315502167
-Verdwaal niet .	-0.350789338350296
-- Rot op .	-0.3797397315502167
-Rot op , Steve .	-0.28688663244247437
-- Rot op .	-0.3797397315502167
-Ze verdwalen .	-0.31575366854667664
-Je verdwaalt .	-0.49466782808303833
-Rot op , Stewie .	-0.2758125960826874
-Je zult verdwalen .	-0.4383048415184021
-Rot op , Cal .	-0.30946990847587585
-- Rot op .	-0.3797397315502167
-- Rot op !	-0.5095326900482178
-Rot op , engerd .	-0.366463303565979
-Rot op , mafkees .	-0.3157516121864319
-- Rot op !	-0.5095326900482178
-- Rot op !	-0.5095326900482178
-- Rot op .	-0.3797397315502167
-Rot op , Pavarotti .	-0.27287375926971436
-- Rot op .	-0.3797397315502167
-Rot op , Bennett .	-0.35781151056289673
-- Rot op .	-0.3797397315502167
-Rot op , man .	-0.3844311237335205
-- Rot op !	-0.5095326900482178
-- Rot op !	-0.5095326900482178
-- Rot op !	-0.5095326900482178
-- Rot op !	-0.5095326900482178
-Nooit meer .	-0.6285542249679565
-En nu wegwezen .	-0.49379512667655945
-- Rot op !	-0.5095326900482178
-- Rot op !	-0.5095326900482178
-Ga alsjeblieft weg .	-0.3835531771183014
-En nu wegwezen .	-0.49379512667655945
-- Rot op !	-0.5095326900482178
-- Rot op !	-0.5095326900482178
-En nu wegwezen .	-0.5439034104347229
-Ben je verdwaald ?	-0.233027383685112
-Verdwijn dan .	-0.5200183987617493
-- Rot op .	-0.3797397315502167
-Rot op , dame .	-0.42601820826530457
-Rot op , nu !	-0.5173432230949402
-Verdwijn hier .	-0.6376926302909851
-Rot op , knul .	-0.4478548765182495
-Hé , rot op .	-0.42853930592536926
-Rot op .	-0.6176633834838867
-Verdwaal niet .	-0.35078954696655273
-Rot op , Pam .	-0.2973317503929138
-Rot dan maar op .	-0.5599480867385864
-Je kunt maar beter oprotten .	-0.49725696444511414
-Ben je verdwaald ?	-0.2747158706188202
-Je raakt het kwijt .	-0.7389035820960999
-Verdwaal je niet ?	-0.3546874523162842
-Rot op , parasiet .	-0.36827173829078674
-Rot op , wil je ?	-0.4422934651374817
-Rot op , Ed , ga weg .	-0.39323940873146057
-Rot op , blonde klootzak .	-0.34618744254112244
-- Rot op , Harry .	-0.3671906292438507
-Soms verdwaal ik .	-0.27886226773262024
-- Rot op , Morticia .	-0.30691060423851013
-Je kunt maar beter oprotten .	-0.49725696444511414
-Ik zal niet verdwalen .	-0.2378699779510498
-Rot op .	-0.6746574640274048
-En verdwaal niet .	-0.32193097472190857
-Rot op , verdwijn .	-0.4012981653213501
-Het is privé , verdwijn .	-0.37414252758026123
-- Rot op , knul .	-0.4271550178527832
-Ga weg , verdwijn !	-0.5434440970420837
-- Rot op , Flanders .	-0.2716333270072937
-Het is voorbij .	-0.4104357659816742
-Soms verdwaal ik .	-0.190757617354393
-Zo niet , verdwijn dan .	-0.4187338650226593
-- Rot op , knul .	-0.4271550178527832
-Dus alsjeblieft , rot op .	-0.33212921023368835
-Makkelijk te verdwalen .	-0.3525223135948181
-Ik zei : 'Verdwijn ' .	-0.5789274573326111
-- Rot op , trut .	-0.37198764085769653
-Verdwaal niet , oké ?	-0.34862959384918213
-Rot op , verklikker .	-0.4957840144634247
-- Je moet verdwalen .	-0.5339227914810181
-Je kunt verdwalen .	-0.3435479402542114
-- Rot op , dronkaard .	-0.35395047068595886
-We kunnen verdwalen .	-0.23155593872070312
-Wegwezen .	-0.5566155314445496
-Jij ook , verdwijn !	-0.43989288806915283
-- Rot samen op .	-0.5518860816955566
-Rot op , verdomme .	-0.3868892192840576
-Pak aan , verdwijn .	-0.528084397315979
-Fai Fai , niet doen .	-0.29188740253448486
-Oké , hoepel op , verdwijn .	-0.5865269899368286
-Rot op , zeg ik je !	-0.48359647393226624
-Alsjeblieft , verdwaal niet in ...	-0.2772698700428009
-Waarom rot je niet op ?	-0.46062448620796204
-Je zou verdwalen en sterven .	-0.28138139843940735
-Kom op jongens , rot op .	-0.46797454357147217
-- Rot op , wil je .	-0.4859994649887085
-Probeer niet te verdwalen .	-0.229549378156662
-Ben jij ook verdwaald ?	-0.1779583990573883
-En nu oprotten , verraderlijke ongedierte .	-0.7804870009422302
-Alsof het mij wat kan schelen , verdwijn !	-0.5127132534980774
-Rot op , dikke duif .	-0.4749210774898529
-Waarom verdwaal je niet ?	-0.36042067408561707
-Iedereen zei : `` Verdwijn , nietsnut . ''	-0.5488364696502686
-Waarom rot je niet op ?	-0.46062448620796204
-- Ze is schattig .	-0.5214090943336487
-Het is makkelijk om te verdwalen .	-0.36490124464035034
-Zeg hem dat hij moet oprotten .	-0.42981863021850586
-Je kunt maar beter oprotten .	-0.5105922818183899
-Verdwaal hier niet .	-0.34550541639328003
-Wat als we verdwalen ?	-0.20750874280929565
-Ik verdwaal er in .	-0.4340663552284241
-En we zullen niet verdwalen .	-0.22763566672801971
-- Rot op .	-0.4470728933811188
-En ik zou moeten verdwalen .	-0.39044398069381714
-Het is gesloten , dus verdwijn .	-0.382423460483551
-Je kunt niet verdwalen .	-0.21393606066703796
-Probeer niet te verdwalen .	-0.229549378156662
-Verdwaal nu niet .	-0.5269203186035156
-Ben je weer verdwaald ?	-0.14482244849205017
-Oké , rot dan maar op .	-0.6093979477882385
-Wil je dat ik verdwaal ?	-0.3490909934043884
-Wat als zij ook verdwalen ?	-0.28260043263435364
-Hé korporaal , ben je bang dat hij verdwaalt ?	-0.322799950838089
-Ik leid het hotel en verdwijn .	-0.4634057581424713
-Is er iets verloren gegaan in de vertaling ?	-0.4197923243045807
-We verdwalen in de duisternis .	-0.2856070399284363
-Het is heel makkelijk om te verdwalen .	-0.39260685443878174
-Ik verdwaal in mijn werk .	-0.2656502425670624
-Ik zei dat hij moest oprotten .	-0.41465407609939575
-Campers raken de hele tijd verdwaald .	-0.4573390781879425
-Verdwijn , mafkees .	-0.4648033082485199
-Krijg de klere .	-0.508920431137085
-Rot op , vuile klootzak .	-0.7210097312927246
-- En je zult verdwalen .	-0.4576757550239563
-Wat als wij ook verdwalen ?	-0.2831534743309021
-Ik zei dat hij moest oprotten .	-0.41465407609939575
-Ik zei , rot op , jij kleine ...	-0.39826539158821106
-Je raakt verdwaald in je werk .	-0.3200123608112335
-Zoek een slot en verdwijn !	-0.6015306711196899
-Nou , genoeg mannelijke band .	-0.7395914196968079
-Verdwijn voor een tijdje .	-0.5914103388786316
-En dan verdwalen jullie .	-0.47024181485176086
-Een deel van de eiwitten verdwaalt .	-0.41358447074890137
-Maak dat je wegkomt .	-0.5604739189147949
-Zodat je niet meer verdwaalt .	-0.34034523367881775
-Of is mijn uitnodiging verdwaald ?	-0.39076685905456543
-Dus je verdwaalt of zo ?	-0.4176374673843384
-Dus waarom verdwijn je niet ?	-0.4735971689224243
-Als ik ooit verdwaal ...	-0.19692136347293854
-En je verdwaalt daartussenin .	-0.5240386128425598
-- Rot op , zei ik toch .	-0.4127078652381897
-Rot op , engerd , of ik bel de beveiliging .	-0.3525480031967163
-Verdwaal nu niet in de mist .	-0.3035525977611542
-Ik bid nooit .	-0.3660321533679962
-Ik ga hier verdwalen .	-0.2900111675262451
-Wat , ben je verdwaald onderweg ?	-0.39305102825164795
-Is het groot genoeg om te verdwalen ?	-0.3890121281147003
-Ik zal het op de post doen , anders zal het verdwalen .	-0.6476864814758301
-- Ja , bij elkaar blijven , niet verdwalen .	-0.39144471287727356
-Marcello , zeg het me .	-0.38688981533050537
-Doe het goed of verdwijn .	-0.3734516501426697
-Papierbonnen kunnen echter gemakkelijk verloren gaan .	-0.47312554717063904
-Het is makkelijk om hier te verdwalen .	-0.3687974512577057
-Je zou het vreselijk vinden als ze verdwalen .	-0.38514676690101624
-Ben je onderweg verdwaald ?	-0.28434139490127563
-Ik verdwaal in je metafysische gangen .	-0.22638674080371857
-Je kunt verdwalen in deze kelders .	-0.31697502732276917
-- Hij gaat proberen te verdwalen .	-0.4256470799446106
-Ik zou niet willen dat je verdwaalt .	-0.2802128195762634
-Een kerel kan daar verdwalen .	-0.4774829149246216
-- Ik ben niet van plan om te verdwalen .	-0.34878042340278625
-Dus laat een penis groeien of verdwaal .	-0.4617283046245575
-Ik kan onderweg verdwalen .	-0.44650086760520935
-Verdwijn en laat me met rust .	-0.4547584056854248
-Snap je het nog steeds niet ?	-0.29856714606285095
-Homer , nee , je gaat verdwalen .	-0.5101950168609619
-Dingen verdwalen vaak tijdens het vervoer .	-0.7225463390350342
-Als je ooit verdwaalt , Dory ...	-0.2331267148256302
-Ik wilde niet dat het verdwaalde .	-0.36006009578704834
-Soms verdwaal ik in mijn gedachten .	-0.2927755117416382
-Hoe makkelijk is het om te verdwalen ?	-0.2801501452922821
-Hé , records raken de hele tijd verdwaald .	-0.6981475353240967
-Als je hier verdwaalt , ben je er geweest .	-0.3884948790073395
-Ze raakte erin verdwaald .	-0.3849359154701233
-Jij moet verdwalen .	-0.4190141558647156
-- Ik ben niet weer verdwaald .	-0.2682001292705536
-Wees geen zuurstofzwijn .	-0.48377183079719543
-Je gaat verdwalen in het donker .	-0.3643772304058075
-Wacht , Joy , je kunt daar verdwalen !	-0.41637083888053894
-Als ik verdwaal , hou ik dit vast .	-0.21514582633972168
-Wegwezen , wij nemen het wel over .	-0.6078025102615356
-Rot op , ik heb je niet meer nodig .	-0.2791861295700073
-Je gaat verdwalen in mijn ogen , Doc .	-0.3682142496109009
-Er zijn sterke mensen bij betrokken , bewijs verdwaalt .	-0.7197905778884888
-Blijf in de buurt als je niet wilt verdwalen .	-0.27932026982307434
-En nu wegwezen .	-0.45734429359436035
-Dit is niet echt het moment .	-0.44870027899742126
-Je kunt deze auto niet hebben , man .	-0.48494791984558105
-We hebben een bevelschrift , Mrs Pritchard .	-0.2287553995847702
-Opschieten , engerd .	-0.531262993812561
-Dus neem wat nieuwe vrienden ... en verdwijn .	-0.46582844853401184
-Ik moet een paar uur verdwalen .	-0.3151174485683441
-Rot op , Bowen , voordat mijn hoorzitting terugkomt .	-0.38192304968833923
-Of doe iedereen een plezier en verdwijn .	-0.338539719581604
-Hoe was de huwelijksreis ?	-0.20767046511173248
-Je weet dat hij daar niet verdwaalt .	-0.3144092559814453
-Ik weet vrij zeker dat ze zei dat je moest oprotten .	-0.5443227887153625
-Wees alert op de bus : niet verdwalen !	-0.32266172766685486
-En je raakt niet weer verdwaald .	-0.41951942443847656
-Het is makkelijk om te verdwalen in de tunnels .	-0.35340139269828796
-Ging naar binnen , vond de dokter ... was niet verdwaald .	-0.3953646421432495
-Iemand kan hier voor altijd verdwalen .	-0.4037960171699524
-Sobotka zegt dat blikjes de hele tijd verdwalen .	-0.38416582345962524
-Je kunt hier echt verdwalen , hè ?	-0.41892215609550476
-Dit is geen territorium waar je in wilt verdwalen .	-0.42489567399024963
-Schapen zonder herder verdwalen .	-0.46983981132507324
-Ga naar Cuba en verdwaal niet .	-0.44008034467697144
-De grappen gaan natuurlijk verloren in de vertaling .	-0.4687676727771759
-Ik dacht dat ik zei dat je moest oprotten .	-0.4566194713115692
-Ik zou hem gezegd hebben op te rotten .	-0.5146706104278564
-Jezus speelde niet met meisjes .	-0.3411405682563782
-Verdomme , man , ik wil dat je verdwijnt .	-0.38149648904800415
-Pak je ijs en rot op .	-0.47849661111831665
-Het is een vrij veilige periode om te verdwalen .	-0.33729642629623413
-Ze zou niet verdwalen , ik weet zeker dat ze terugkomt .	-0.42816394567489624
-We willen dat het lichaam verdwaalt tijdens transport .	-0.4639812409877777
-Nou , het is makkelijk genoeg om daar te verdwalen .	-0.4096384346485138
-Ik dacht dat ik zei dat jullie moesten oprotten .	-0.43604838848114014
-Ik wil verdwalen in iets heel goeds .	-0.2643173038959503
-Als je geen bewijs hebt , verdwijn dan .	-0.30757471919059753
-Ik wilde zeker weten dat ze nooit zouden verdwalen .	-0.3226237893104553
-Misschien is het een goede plek om te verdwalen .	-0.4131295680999756
-Hoe kan iemand verdwalen in zijn eigen stad ?	-0.36745962500572205
-Je moet verdwalen voordat je jezelf vindt .	-0.30670031905174255
-Wegwezen , kinderen .	-0.5731045603752136
-Rot op , blijf weg , de slangenbeet is giftig .	-0.4486418664455414
-Ja , ik ben gek , ik zie je later .	-0.36882147192955017
-Misschien langer als ik verdwaal in de Ginza .	-0.23437778651714325
-Kijk , dat daar , dat is waar ik verdwaal .	-0.41253548860549927
-Een meisje kan echt verdwalen in die dingen .	-0.42758437991142273
-Het is drie uur rijden , ze kan verdwalen .	-0.38369297981262207
-Zorg voor hem , laat hem niet verdwalen .	-0.2296203225851059
-Ze zeiden dat ik moest oprotten en vertrok .	-0.507964551448822
-Bel me als je verdwaald bent .	-0.2622525691986084
-Kun je ervoor zorgen dat de ring niet verdwaalt ?	-0.2794555127620697
-Je hebt me pijn gedaan .	-0.47489050030708313
-En nu zal dit ... niet verdwalen .	-0.3808610141277313
-Wat de race nu zou verliezen , zou dat zijn om ergens te verdwalen .	-0.42668023705482483
-Je kunt verdwalen op de weg .	-0.44333985447883606
-In theorie kunnen ze onderweg verdwalen .	-0.36710718274116516
-Ons lab is overwerkt , en soms raken dingen verloren .	-0.4020377993583679
-Al die keren dat ik Spike zei om te verdwalen .	-0.3777342438697815
-Heb je ooit een kompas gezien ?	-0.20863336324691772
-Hij kreeg een klap , omdat hij zei'verdwijn ' .	-0.34734949469566345
-Ik zou verdwalen in zo ' n groot huis .	-0.19483081996440887
-Het busje zal volgen zodat je niet verdwaalt .	-0.30219894647598267
-Ik zei dat je hier niet moest komen .	-0.5212966203689575
-Maar dan verdwalen we .	-0.46006762981414795
-Graham , blijf hier , oké ?	-0.3042354881763458
-Want op die manier raken we niet van elkaar verdwaald .	-0.34932228922843933
-Het is voor je bescherming , zodat je niet meer verdwaalt .	-0.3491326570510864
-Weet je , het is echt makkelijk om hier te verdwalen .	-0.3853842318058014
-Ik sta erom bekend dat ik verdwaal in mijn eigen kantoor .	-0.35982000827789307
-Ik hoopte dat het verloren zou gaan in de verhuizing .	-0.3951362371444702
-Geen visueel contact , instrumenten verblind door straling , ze zouden verdwalen .	-0.4950166344642639
-Laten we niet verdwalen in de wie , wat en wanneer .	-0.2675608694553375
-Als er iemand op de brug is , zeg dan dat ze moeten oprotten .	-0.4059986174106598
-En compact dat kinderen in staat stelt om niet snel te verdwalen .	-0.39128419756889343
-Ben je vorige week niet verdwaald in de supermarkt ?	-0.32214558124542236
-Overal waar ik me omdraaide , zeiden mensen dat ik me moest terugtrekken , verdwijn .	-0.4989994764328003
-Dan verdwalen we niet .	-0.39223265647888184
-Zijn jullie verdwaald op weg naar de golfbaan ?	-0.274173766374588
-Want `` door kanalen gaan '' is gewoon diplomatisch dubbelpraat voor `` verdwijn . ''	-0.5619167685508728
-Word wakker , begin in elke richting te lopen , echt , en verdwijn .	-0.4297081232070923
-Beloof me dat als je verdwaalt , we samen verdwalen .	-0.2828432619571686
-We geven hem een lift , zodat hij niet weer verdwaalt .	-0.25289177894592285
-Soms moet je verdwalen voordat je jezelf kunt vinden .	-0.2908952534198761
-Oh , nou , ik denk niet dat ik zou willen verdwalen .	-0.41430026292800903
-Als je iets tegen iemand zegt , vind ik je wel .	-0.4204811453819275
-Laat me je vertellen , als we verdwalen , is dat je reet .	-0.47298136353492737
-Oké , Rupert , ben je klaar om te verdwalen in wat Anne ?	-0.2988145649433136
-Ik heb een geweldige avond gekozen om te verdwalen in het bos .	-0.5078937411308289
-Rot op , maat , voordat je ons allemaal besmet met je consumptie .	-0.42511019110679626
-Als je van plan bent om te tanken , oké , anders verdwijn je .	-0.5388538837432861
-Zorg dat hij niet verdwaalt op weg naar buiten .	-0.3606511950492859
-De sleutel van de kelder is niet verdwaald .	-0.3622584342956543
-Mou mayowa nai kimi met jou , ik zal niet verdwalen .	-0.36922019720077515
-Maar als je bij de anderen bent , verdwaal ik daar .	-0.3621688187122345
-Ga naar Jimmy Moore , Bob Stone , iemand `` Malowinksl , '' en `` Ga weg , lieverd .	-0.3395630717277527
-We zijn niet samen opgegroeid , ik ken je niet , dus verdwijn !	-0.3301178812980652
-Weet je , elke andere avond zou ik je vertellen om te verdwalen .	-0.5031276345252991
-Het oude deel van Lijiang is groot genoeg om binnen te verdwalen .	-0.2539938986301422
-Ik word gek als ik denk dat ik je kwijtraak .	-0.5047187209129333
-Ik hoorde net dat het een geweldige plek was om te verdwalen .	-0.35974305868148804
-We kunnen beter weggaan voordat ze onze ID 's beter bekijken .	-0.5956032276153564
-Het vertelt je hoe je je weg kunt vinden als je verdwaalt .	-0.3231668770313263
-Als je verdwaalt op het eiland , zoek dan naar de zee .	-0.3058129847049713
-Product Informatie Zelfs de grootste lul zal verdwalen tussen deze borsten .	-0.37295934557914734
-Besloten om een tijdje rond te zwerven , weet je - verdwalen .	-0.4766360819339752
-Laten we onze problemen vergeten en verdwalen in de wereld van de boeken .	-0.27027958631515503
-Als we hier verdwalen , vinden we nooit meer de weg terug .	-0.32657745480537415
-Dit is alles voor hem .	-0.3529967963695526
-Er zijn geen geheime dingen die zo nu en dan verloren gaan in die blikjes .	-0.5527682304382324
-Als je verdwaalt , volg dan Mr Kenny G .	-0.3569841682910919
-Als ik instort , sta ik op en verdwaal ik .	-0.4016261696815491
-Ik zou het vreselijk vinden als hij verdwaalde op zo ' n onbekende plek .	-0.34791988134384155
-Als ik je vasthoud , verdwaal je misschien niet .	-0.3279193341732025
-Mijn moeder was zo vluchtig , dat ze zeker te laat komt of verdwaalt .	-0.36285093426704407
-Hoe gegevens verloren gaan of verwijderd van LaCie Porsche ontwerp desktop harde schijf ?	-0.23849697411060333
-Directe kritiek op bijzondere situaties mag niet verloren gaan in multilaterale verklaringen .	-0.3684605062007904
-Verdwalen mannen in je ogen ?	-0.49312105774879456
-Maar er is iets engs aan hem ... dus ik zeg hem dat hij moet oprotten .	-0.39137008786201477
-Ze gaf me nog 50 dollar en zei dat ik moest oprotten .	-0.42756086587905884
-Theseus had een grote bal draad , gebruikte het zodat hij niet zou verdwalen ...	-0.40160760283470154
-Ik denk niet dat ik hier wil verdwalen , want dit zijn de stokken .	-0.47380512952804565
-Als we hem nu niet vinden , raakt hij verdwaald in het spitsverkeer .	-0.31395223736763
-Voordat het rood wordt met de jouwe , wed op zwart en verdwijn voor de avond valt .	-0.4550319015979767
-Ik kan niet beloven dat ik niet verdwaal , in de geest van de concurrentie .	-0.32565948367118835
-De achtergrond & rollen culmineren in een meeslepende omgeving waar gokkers verdwalen in .	-0.3213706314563751
-Nooit meer verdwalen ... Geplaatst door Peter op 12 augustus 2006 om 07:18	-0.2197950780391693
-Als je niet bekend bent met deze delen , kun je verdwalen in dat bos .	-0.39807483553886414
-En trouwens , als we verdwalen dan kunnen we misschien het licht terug volgen .	-0.35714617371559143
-Ik raakte altijd verdwaald toen ik hier begon te werken .	-0.37223249673843384
-We gaan er allemaal doorheen , John , we verdwalen allemaal .	-0.44930723309516907
-We kunnen naar de woonboot gaan en verdwalen in elke inlaat .	-0.3425850570201874
-En als je blijft , kun je hier ook verdwalen .	-0.3678605854511261
-Je weet wel , je verdwaalt , of zoiets , verwacht je dat ik dit draag ?	-0.4738299548625946
-En kiezen voor actie , om te doen , in plaats van te observeren en verdwalen in conventionele clichés .	-0.34990134835243225
-Kijk hier , George ... stel dat je verdwaalt in de 50ste eeuw ...	-0.3788837194442749
-Is dat een beleefde manier om'verdwijn ' te zeggen ?	-0.35321229696273804
-Luister , ik zou gaan wandelen , maar ik kan verdwalen , ik kan opgegeten worden .	-0.4201385974884033
-Omdat iemand er misschien naar komt zoeken , en ik wil niet dat het verdwaalt .	-0.4880409240722656
-Ik hoop alleen dat het niet verloren gaat onder al die andere dingen die je zorgvuldig overweegt .	-0.4474529027938843
-Veel meisjes vinden dat leuk en je kunt zien dat ze willen verdwalen .	-0.5607540011405945
-Villager had ooit het voorrecht om te verdwalen in een Nederlands bos met de schrijver .	-0.4420594871044159
-Het concentreert zich op de belangrijkste centrale kwesties en raakt niet verdwaald in de details .	-0.489067405462265
-Vanaf daar kun je ook zien hoe mensen verdwalen in het nabijgelegen labyrint .	-0.2757291793823242
-We moeten bij elkaar blijven ..... of we gaan gewoon verdwalen .	-0.39656347036361694
-Er worden geen bedreigingen gemaakt dat uw bestanden verloren kunnen gaan na verloop van tijd.Betaal NIET deze criminelen .	-0.2766591012477875
-Nee , we blijven hier ook , als we gaan dwalen , gaan we verdwalen of vermoorden .	-0.5943320989608765
-Als je ver genoeg gaat , kun je gewoon verdwalen , en niemand zal je ooit vinden .	-0.4328823387622833
-Tenzij je schweppes hebt of zoiets als een nantucket nectar , verdwijn .	-0.5162902474403381
-Ik heb geen zwarte mensen gezien in Utah .	-0.3110363781452179
-Als je verdwaalt in dit bos , ben je er geweest .	-0.4844819903373718
-Je wilt niet dat hij verdwaalt in het onkruid Proberen om de pompoen patch te vinden .	-0.4122445583343506
-Pennels , de eigenaar , zag dit gedrag als onplezierig en verlangend om te verdwalen van de kittens .	-0.3154725134372711
-Donder op en volg ons niet .	-0.5273759365081787
-De bezoeker die twijfelt loopt het risico om een antwoord te krijgen als `` Verdwijn , klootzak ! `` .	-0.40713009238243103
-De taxichauffeur gaf haar opdracht naar kamer tien te gaan , die ze aangaf en hem vervolgens vertelde om te verdwalen .	-0.5934325456619263
-Ik weet gewoon dat ik vanavond weer verdwaal in dat bos .	-0.3570775091648102
-Een muziekwoordenboek Engels-Nederlands , Nederlands-Engels . Het bevat woorden die zelfs verloren gaan in de meest geavanceerde woordenboeken .	-0.23057706654071808
-Als ik verdwaal , kan ik hier een maand in overleven .	-0.37126708030700684
-- Zeg ze dat als we doorgaan , we het spoor verliezen , verdwalen en sterven !	-0.4779839515686035
-Ik ben blij om alles te doen wat ik kan om ervoor te zorgen dat Tristan niet verdwaalt in het systeem .	-0.3457828462123871
-Ed duikt hier op met $ 3 miljoen in contanten , en jij zegt hem dat hij moet oprotten ?	-0.5441197156906128
-Deze man heeft je in LYCRA en plastic hakken voordat je het weet .	-0.5076862573623657
-In veel gevallen , Word-bestanden van USB-drive kan verloren / verwijderd als gevolg van vele onvoorziene redenen .	-0.32157114148139954
-De bijeenkomst leek me de perfecte tijd ... veel mensen ... ik kan verdwalen in de menigte .	-0.5084108114242554
-Toen dronken we wat biertjes rond het kampvuur , het was erg warm rond het vuur .	-0.42001044750213623
-Ik vergat de broodjes .	-0.348139226436615
-Na een tijdje dacht ik dat het beste wat ik voor hen beiden kon doen , was verdwalen .	-0.4366697072982788
-In dat geval kunnen de foto 's of video 's die u hebt gebruikt in die filmmaker verloren gaan .	-0.2789979577064514
-In feite , als jij en hubs willen verdwalen , denk ik dat ik er klaar voor ben om alleen te vliegen .	-0.3825063705444336
-Ik wil de wereld rondvliegen zonder een pistool op mijn heup .	-0.39662671089172363
-Zo kunt u ook genieten van de prachtige natuur en de Zweedse landschappen zonder zich zorgen te maken over verdwalen .	-0.3265901803970337
-Dus waarom gaan jullie niet weg voordat ik mijn zondagsschoen in je reet schop !	-0.46462300419807434
-Mr Clèment , u bent vanaf 20:40 in hechtenis voor verkrachting van een minderjarige .	-0.43718719482421875
-Kijk , ik weet dat je mijn baas bent ... en je kunt me vertellen dat ik verdwijn wanneer je wilt , maar er is iets gebeurd .	-0.35294991731643677
-Deze bestanden zijn net als alle andere soorten bestanden ; ze kunnen verloren gaan of verwijderd worden zoals in uw geval .	-0.3835603892803192
-Echter , vaak kunnen uw memorabele foto 's die zijn opgenomen op Sony Alpha NEX5 verloren gaan onder vele omstandigheden .	-0.4138658344745636
-Uw bestanden kunnen verloren gaan terwijl ze in overdracht , als een schijf / partitie per ongeluk is geformatteerd , enz .	-0.33458054065704346
-Onjuist gebruik : Wanneer de camera onjuist wordt gebruikt door gebruikers dan kunnen de gegevens die zijn opgeslagen op de camera SD-kaart verloren gaan .	-0.3263263702392578
-Een van de verschillende redenen waarom gegevens van SD-kaart verloren gaan is te wijten aan corruptie van SD-kaart .	-0.2735306918621063
-Vertel me dat als we verdwalen en in Montreal belanden ... en iedereen Frans spreekt .	-0.4691964089870453
-Het is een nobel idee , captain , maar goede bedoelingen zijn als de reserve ... ze zijn geneigd te verdwalen in de Leegte .	-0.5541020631790161
-De kunstcentra , kunstateliers en galeries in het Pays de Langres nodigen u uit om te verdwalen in uw contemplatie .	-0.2917898893356323
-En als ik er AK 's voor doe , dan wil ik het krijgen .	-0.5473537445068359
-Ga weg voor ik je kop eraf trek en het als voetbal gebruikt .	-0.5996423959732056
-Serieus , kinderen , ik moet tien tv 's wisselen naar de vierde ronde van de NBA tocht , dus verdwijn .	-0.42936041951179504
-Als de bestanden in WD mijn paspoort verloren gaan of per ongeluk verwijderd , bent u zeker om een vrij moeilijke tijd te hebben .	-0.31348344683647156
-Dit is een papierbedrijf , en ik wil niet dat we verdwalen in het onkruid of in een schoonheidswedstrijd .	-0.2954234778881073
-Je weet hoe mannen zijn , ze denken dat 'nee ' betekent 'ja ' en'verdwijn ' betekent 'neem me ' .	-0.41037607192993164
-Natuurlijk , weet je , ik liet hem verdwalen en hij is , hij is vermist voor - het was tenminste 12 uur , toch ?	-0.41894662380218506
-Unifieert , kalmeert , beschermt . Geen behoefte om te kiezen , geen behoefte om te verdwalen in de vele versies van BB , CC , DD crèmes .	-0.27261286973953247
-En dan ... sommige mensen ... verdwalen op weg naar het licht ... en ze hebben iemand nodig om hen er naar toe te leiden .	-0.3558054566383362
-Ik hoop alleen dat Tim Whatley 's elektrische rekeningen niet plotseling verloren raken in de post of dat het licht uit is voor hem .	-0.4608284831047058
-Ondanks de kennis die je hebt van dat gebied op moderne kaarten , kunt u verdwalen bij het eerste onderzoek van de Peutinger Table .	-0.3376018702983856
-Tijdens het overbrengen van proces tussen digitale camera en uw pc , als u SD-kaart plotseling uitwerpt , videobestanden kunnen verloren gaan .	-0.39297017455101013
-Veel mensen trainen hun vogels om namen te herhalen ... en adressen voor het geval ze verdwalen .	-0.3097965121269226
-In intermediaire holdingketens , vooral wanneer er veel tussenpersonen bij betrokken zijn , wordt informatie niet doorgegeven aan aandeelhouders van vennootschappen of aandeelhoudersstemmen verloren gaan .	-0.5384438037872314
-Onjuist uitwerpen : Gegevens kunnen verloren gaan als u uw mobiele telefoon loskoppelt zonder gebruik te maken van de optie `` Veilig verwijderen '' wanneer deze is aangesloten op de computer .	-0.41049057245254517
-Dit gebeurt handmatig , want de zaden zijn in de kleine bloemen . Wanneer geoogst met machines zou veel van dit zaad verloren gaan .	-0.35083717107772827
-Objecten kunnen wetenschappelijk worden ingedeeld in drie grote categorieën : die Russell Baker die niet werkt , die breken en die verdwalen .	-0.3804263472557068
-De meeste zijn cool , maar als een dikke man je vraagt om `` T Eddy Bear in the Hole '' te spelen , zeg hem dan om te verdwalen .	-0.37590324878692627
-Epic Bingo is zeer gemakkelijk om rond te navigeren en met menusystemen langs de boven- en onderkant zodat je niet echt kunt verdwalen .	-0.3605261743068695
-Er is echter geen twijfel dat Nikon camera apparaat bieden goede kwaliteit foto 's , maar de gegevens binnen de geheugenkaart is gevoelig om te verdwalen .	-0.2957729995250702
-Het is gelegen in een authentieke plaats , met weinig auto 's en aangenaam om langs te lopen en verdwalen in de nooit eindigende straten en pleinen .	-0.2878759205341339
-Met een all-terrain voertuig kan leuk zijn om te verdwalen en eindigen in het doolhof van zijsporen die kriskras over de Cape Parrot .	-0.2971116304397583
-We zouden kunnen verdwalen op een van die byways , nooit de weg terug te vinden op de krappe weg die leidt naar het leven .	-0.47375816106796265
-Toepassing Crash : Wanneer Microsoft Powerpoint applicatie crasht plotseling , kunnen uw PPT-bestanden verloren gaan of wanneer de toepassing abrupt eindigt , kunnen PPT-bestanden verloren gaan .	-0.25042784214019775
-Je hebt je Sidekick met tekst , GPS locator voor het geval je verdwaalt en waterdichte zonnebrandcrème , voor het geval het zonnig wordt terwijl het nog regent .	-0.3055855333805084
-Verdwalen in een landschap bestrooid met traditie en maak van deze ervaring een activiteit die je gewoon wilt herhalen keer op keer .	-0.45196494460105896
-Onjuiste Disconnectie : Als u HTC Rezound Android-telefoon loskoppelen van de computer zonder gebruik te maken van	-0.4952775239944458
-Als alles gericht is op het maken van winst voor de grote bedrijven , zie je dat mensenrechten , het milieu , werknemersrechten samen verloren gaan .	-0.4867430031299591
-Ervan uitgaande dat elke leverancier optimaliseert de prestaties van zijn componenten in smallere bewegende ruimte , is het niet langer geschikt dat vloeistoffen verloren gaan in een doolhof van interconnecties .	-0.25881826877593994
-Hoewel er vele doelen , activiteiten en geheimen te ontdekken , in het hart Hohokum is een speeltuin - een plek om rond te dwalen en verdwalen in .	-0.2876167595386505
-Verdwaal tussen oude boeken , rollen en voorwerpen d'art in Dublin 's Chester Beatty Library , beschreven door Lonely Planet als `` een van de beste musea in Europa . '' 8 .	-0.28759169578552246
-Ik vroeg je dat papiertje na vier jaar te tekenen en dan voorgoed te verdwijnen .	-0.5718058943748474
-Laten we verdwalen in BoTu ! Doe mee met de vijf Rotterdamse schrijvers Tommy Ventevogel , Edna Azulay , Simon Weeda , Umeu Bartelds en Gino van Weenen op een tour langs alle locaties .	-0.23951877653598785
-En , oh , ja , verdwaal niet , want het is erg donker , het is erg gevaarlijk en er is een kans dat je nooit meer gezien of gehoord wordt .	-0.3427894115447998
-Ik ben niet zoals jij , het gaat niet , dit heeft genoeg tandenborstel alleen en stoom van de broek aan het einde van de week helemaal . broek !	-0.47387441992759705
-De tang heeft groeven aan de binnenkant en de buitenkant van hun klem uiteinden ontworpen om de juwelen stevig vast te houden , zodat het niet verdwalen of wegglijden .	-0.3741602301597595
-Je kapt een buitenaards schip , vliegt een enkele reis naar de Maan , verdwaalt daar ergens in de leegte van de Melkweg , en je zult nog steeds niet sterven .	-0.3649660348892212
-Een van de dokters zei hem : `` Matt , als ik in jouw schoenen stond , zou ik het gordijn dicht hebben , mijn hoofd bedekken , en iedereen vertellen om te verdwalen. ``	-0.46480169892311096
-De stekkers uit deze categorie zijn smal in hun middelste deel en breder aan de rand . Zo blijft de stekker in de juiste positie en kan niet verdwalen .	-0.3179982006549835
-Create , LEES , EN BROWSE Ga voor een minimalistische hand-held modus om een idee te schetsen of gewoon achterover leunen en verdwalen in een artikel of e-book zonder afleiding .	-0.3102654218673706
-Deze RAID 0 harde schijf ondersteunt gegevensopslag tot 20TB zonder enige gedoe dat aan de behoeften van de gebruiker voldoet . Echter , gegevens op LaCie 5big Thunderbolt kunnen op vele manieren verloren gaan .	-0.3090464770793915
-Jullie dwazen , smeek niet zo als jullie willen leven ! Ik zweer het , mensen zo dapper als jullie , worden gearresteerd , geplunderd en gedood door de mannen van de koning ! '	-0.4204760789871216
-Geweldige drankjes , muziek en optredens maken het heel gemakkelijk om in de tijd te verdwalen en te genieten van de gemakkelijke sfeer samen met multiculturele mensen van over de hele wereld voor uren .	-0.34106799960136414
-Gegevensoverdracht Fout : De gegevens van de geheugenkaart kunnen verloren gaan wanneer er een plotselinge stroomstoot tijdens het overbrengen van gegevens van Dell telefoon en PC of vice versa	-0.2954586148262024
-Wij vertrouwen erop dat het Ierse voorzitterschap van de Raad ervoor zal zorgen dat dit niet gebeurt , dat we niet verdwalen in het perfectioneren van details of bezwijken voor politieke erosie .	-0.3707689642906189
-Het is klaar voor serieuze trail kilometers als je gewoon wilt verdwalen in het bos , en het is een perfecte eerste fiets voor iedereen op zoek naar een betrouwbare mountainbike .	-0.3139754831790924
-Het International Medical Center ligt vlak achter een tuin , net achter de bushalte . Als u verdwaalt , aarzel dan niet om contact met ons op te nemen via telefoon 669 79 00 13 .	-0.28043484687805176
-Op deze manier kunt u er zeker van zijn dat uw kleintje lekker warm blijft en niet verdwaalt.Zorg ervoor dat u geen oversized slaapzakken gebruikt voor pasgeboren baby 's .	-0.32130008935928345
-Valsugana behoort verder tot het Dolomieten Lagorai Bike Circuit , in Oost-Trentino , dat ongeveer 1000 km routes omvat , allemaal opgespoord op uw GPS : het is onmogelijk om te verdwalen !	-0.31303390860557556
-Ongeacht uw Word-document verloren gaan van geformatteerde harde schijf , met de hulp van deze bekroonde software kunt u terug te krijgen verloren Word-document voor u binnen enkele klikken .	-0.21677693724632263
-Dus je zult nooit meer verdwalen Bovendien heeft de app een aantal nieuwe functies zoals een groepschat die je kunt maken voor een evenement en de app verbruikt minder batterij .	-0.32201287150382996
-Alles met Mij en Mijn Goddelijke Zoon in de Vader . Verdwaal niet wanneer de verleiding jullie verleidt , Ik ben met jullie . Ik help jullie . Kom daarom en bezoek Mij in de kerk .	-0.289849191904068
-Mocht uw Visa Silver-kaart verloren gaan , gestolen of beschadigd zijn in of na mei 2018 , dan wordt deze automatisch vervangen door een nieuwe Silver Mastercard . Mijn Visa Silver-kaart vervalt vóór mei 2019 .	-0.2630288600921631
-U kunt niet verdwalen in een van de meest visueel prachtige steden van de wereld ! Het heeft de grootste historische binnenstad van Europa en is bekend om zijn internationale en liberale sfeer .	-0.2176922857761383
-2.2 Zowel het voorstel als het begeleidende verslag zijn zo doorspekt met acroniemen dat het gemakkelijk is om te verdwalen te midden van het web van afkortingen en verbanden tussen de verschillende in de tekst genoemde organen .	-0.5094390511512756
-We keken naar de kaart eerder vandaag , en we kwamen met vier mogelijkheden waar een kind zou kunnen verdwalen of zich verbergen voor een hele dag of nacht en niet opgemerkt worden .	-0.45181137323379517
-En als je er zeker van wilt zijn dat Fisher dood is , kun je zelfs een klein explosief maken waardoor de benzinetank omhoog gaat , en het hele ding zou verloren gaan in het wrak .	-0.4837989807128906
-Wij hebben ons tot taak gesteld om er zo snel mogelijk een speciaal verslag over op te stellen en omdat ik ondertussen zelf rapporteur ben geworden , zal ik ervoor zorgen dat het niet verloren gaat .	-0.49239465594291687
-Nu weet ik dat ik haar extra rood vlees , calcium , etc . moet geven.Ook moeten we wat voorbereidingen treffen zoals het maken van de nieuwe puppy kamer , hek van een puppy speeltuin zodat ze niet verdwalen , etc .	-0.3367631435394287
-Toch met miljoenen dollars op de lijn de Live Stream biedt casual kijkers een beter inzicht in wat er aan de pokertafels en de dynamiek die vaak verloren gaan tijdens het bewerken proces .	-0.2572266161441803
-Van zeeniveau op de Adriatische Zee naar Colledimezzo is een klim van 490 meter . De weg is erg rustig en niet te snel klimmen dus het is een goede rit . Je kunt niet verdwalen in een vallei , volg gewoon de weg .	-0.31042352318763733
-Ik vergeef mezelf dat ik mezelf heb geaccepteerd en toegestaan om niet te kunnen genieten van wandelen in het moment uit een constante angst om te verdwalen of bezig te zijn met gedachten/scenario 's van wat als ik verdwaal .	-0.3431721031665802
-Je kunt naar deze club gaan , één kamer kiezen en het gevoel hebben dat je de hele nacht in je eigen club bent geweest . Als alternatief kun je een avontuur beleven - verdwalen in het doolhof van pompende dansvloeren en verwarrende gangen .	-0.316510409116745
-Als u houdt van avontuurlijke sporten , excursies en het verkennen ... als u op zoek bent naar rust en stilte , de kans om te genieten van de natuur of comfort ... als u zin hebt in een uitstapje met het gezin , wilt u plezier hebben met vrienden of verdwalen met uw partner ...	-0.35525283217430115
-Wandel naar de Port Vell om de jachten in de haven te zien , verdwaal in de middeleeuwse straten van de Gotische wijk , of bezoek de nabijgelegen Boqueria , een van de grootste en meest spectaculaire markten in Europa.Service 4.0Locatie 4.5	-0.22889156639575958
-Echter , Lillesand is een geweldige plek om te verdwalen voor een paar dagen in de winter ook . Kleed je warm en maak een ontspannen wandeling in het centrum van de stad , langs de smalle straatjes die elegant buigen tussen witte houten huizen .	-0.25957363843917847
-Op korte afstand vindt u veel pittoreske dorpjes , zoals St.Quentin-la-Poterie , La Capelle-Masmolène , St.Victor-la-Coste , Castillon-du-Gard , Collias , Lussan . Uzès , een klein stadje op sympathieke grootte waar het heerlijk is om te verdwalen in de kleine voetgangersstraatjes van het gerestaureerde stadscentrum .	-0.22154368460178375
-U kunt het verwijderen en deactiveren op onze webaccount wanneer de telefoon verloren gaat of u hebt geen toegang meer.Wat gebeurt er na de abonnement maanden voorbij ? U kunt ervoor kiezen om het abonnement te verlengen , maar hier is geen verplichting om dit te doen .	-0.35727789998054504
-Rijd onder de middernachtzon in de Arctische Cirkel zomertijd , bergwandelen in diepe maagdelijke bossen in Midden-Zweden , of verdwalen in de bossen van het zuiden ( metaforisch dat wil zeggen , we houden niet van het verliezen van paarden of toeristen , uiteraard .	-0.441535085439682
-JPG-bestanden kunnen verloren / verwijderd als gevolg van een van de onderstaande scenario 's : Formaat : Het is echt vervelend wanneer uw computer toont `` Format Fout '' ( `` Disk moet worden geformatteerd '' ) op het scherm , zodra u uw geheugenkaart aan uw Macintosh .	-0.24102847278118134
-De meeste gebruikers zijn van mening dat de gegevens die zijn opgeslagen op de schijf zal persistent blijven , maar het feitelijke feit is dat de opgeslagen gegevens kan elk moment verloren gaan als er een inconsistentie in de computer of door gebruikers ongepast gebruik .	-0.4086207449436188
-Het is waar dat het een uitzonderlijk geval was als gevolg van wat verwarring binnen de Commissie , maar een van de problemen is dat heel vaak vragen van de ene afdeling naar de andere worden geschoven en in het proces dat ze verdwalen of duivenholten en vergeten worden .	-0.5402867794036865
-De reden waarom zo veel links worden gepresenteerd in de FrontPage is dat je meestal terug te krijgen op de tekst die u leest door terug te gaan naar de FrontPage en herstart van daar als je verdwaalt op deze website ...	-0.3072201907634735
-Dus ik dacht ... de eerste keer dat ik het licht uit deed en daar stond , dacht ik dat we het licht aan moesten houden en aan de overkant blijven waar we zijn ... want anders zal het makkelijk zijn om daar beneden te verdwalen .	-0.45583730936050415
-En door het aansluiten van koptelefoons , kunt u verdwalen in muzikale reizen dag of nacht zonder storende huisgenoten of buren.Highly Portable for Life on the Move Verkrijgbaar in wit of zwart , de FP-30 biedt een strakke , elegante look die een welkome aanvulling op elke kamer .	-0.24016159772872925
-Ontdek de kleine wijk , verdwaal in de tunnels ( casemates ) van de Bock , loop over de Chemin de la Corniche ( nicknamed de mooiste balkon van Europa.En bezoek het kasteel Vianden.Voorbereid uw verblijf op voorhand en krijg de beste prijzen voor het reizen .	-0.4669601023197174
-Het Duitse instituut voor opiniepeilingen in Allensbach kwam tot de conclusie dat driekwart van de Duitse leidinggevenden in economie , politiek en bestuur het met deze mening eens zijn : `` Wanneer religieuze banden in een samenleving zwakker worden , gaan ook belangrijke waarden en normen verloren '' en slechts 22 procent geloofde dit niet .	-0.4080718159675598
-Porsche Design harde schijf data recovery tool : Het is zeer belangrijk om te weten welke recovery applicatie moet worden geïnstalleerd om verloren / verwijderde gegevens terug te krijgen van Porsche Design harde schijf op Mac-machine ; meest voorgestelde en gereputeerde software door computerexperts is Yodot Mac Data Recovery tool .	-0.22230014204978943
-Ik was nooit een Windows-gebruiker en er is iets wat ik gewoon niet kan begrijpen : als je eenmaal je tekstverwerker , je webbrowser , je e-mailtoepassing , je instant messenger software en sommige vensters open om uw bestanden te verkennen , hoe kunnen Windows-gebruikers beheren om niet te verdwalen in deze rommel ?	-0.2905617356300354
-En in het geval dat een transponder verloren moet gaan , gestolen of defect is , kan deze onmiddellijk in het systeem worden verwijderd zodat deze niet meer gebruikt kan worden . In plaats daarvan kan de desbetreffende beheerder binnen enkele minuten vervangingen verstrekken door een nieuwe transponder aan te maken en dezelfde rechten toe te kennen aan deze nieuwe transponder .	-0.40139341354370117
-( EN ) Mijnheer de Voorzitter , zoals soms gebeurt , wil ik na paragraaf 19 van de volgende nieuwe paragraaf een paar woorden kwijtraken in de onderhandelingen of tussen hen en het gedrukte woord , en met de steun van alle betrokken fracties zou ik de toevoeging willen verplaatsen : `` vraagt om meer te investeren in de ontwikkeling en verstrekking van kinderformuleringen voor kinderen ; . ''	-0.48998671770095825
-Hardware Probleem : Een hardware probleem zoals een slechte sector kan leiden tot aanzienlijke hoeveelheid verlies van gegevens . Als mediabestanden werden opgeslagen op een schijf die slechte sectoren heeft , dan kan het niet langer worden geopend en het meest waarschijnlijk om verloren te gaan . Aan de andere kant , mediabestanden die worden opgeslagen na slechte sector zal ook ontoegankelijk worden	-0.3181411921977997
-Voor de fenomenen in dit artikel zou het een uitwisseling of interactie kunnen zijn tussen Moeder Aarde 's energie en kosmische energie.Het is zeer goed mogelijk , vooral in deze tijd , dat is een energetische `` drukke '' een , gaande van de Vissen tijdperk naar Waterman.Een andere suggestie is die van Moeder Aarde , proberen te verdwalen van het negativisme , omdat we haar niet zo goed hebben betrapt .	-0.3416673243045807
-Er zijn overvloedig aantal verantwoordelijke redenen waardoor pen drive gegevens verloren gaat of verwijderd , sommige van hen zijn hieronder vermeld : Wanneer de pen drive wordt verwijderd uit het systeem tijdens de overdracht van gegevens proces , kan er kans op verlies van gegevens of kan krijgen ontoegankelijke gegevens die zijn opgeslagen op de pen drive kunnen verloren gaan als gevolg van ernstige virusaanval , bestandssysteem corruptie , enz .	-0.36108875274658203
-Houd uw tickets veilig Als u Eurojackpot via een erkende winkel binnengaat , teken dan de achterkant van uw ticket om te bewijzen dat u de rechtmatige eigenaar bent en bewaar het op een veilige plaats om ervoor te zorgen dat het niet verloren gaat of beschadigd raakt ( bijvoorbeeld als u het ticket in uw broekzak opslaat en dan vergeet wanneer u ze in de wasmachine plaatst om te worden schoongemaakt ) .	-0.36117371916770935
-Eens toen de vader uitging om te ploegen , zei de kleine : `` Vader , ik zal met u uitgaan . '' `` Gij zou met mij uit willen gaan ? '' zei de vader . `` Blijft hier , gij zult daar geen nut hebben , behalve dat gij zou kunnen verdwalen ! '' Toen begon Thumbling te schreeuwen , en omwille van de vrede legde zijn vader hem in zijn zak , en nam hem mee .	-0.45474886894226074
-Uitgerust met ski 's of sneeuwschoenen , zullen ze u begeleiden door eenvoudige en volledig veilige circuits , evenals het verstrekken van interessante uitleg over de route.Cross-country ski en freeride : voor degenen die geen grenzen kennenAls u wilt de grenzen van een gesloten circuit te overschrijden en verdwalen in ongebreidelde natuur , kunt u verschillende soorten excursies in Andorra.Bijvoorbeeld , cross-country of skimo , dat is een steeds populairder trend .	-0.3026358187198639
-Nee , dit is niet omdat slechte wegen in deze stad , maar omdat het prachtige bos daar gelegen . We hebben het over het bos van Dean , dat was een koninklijk bos in de tijd van Willem de Veroveraar . Dit bos is groot en rijk aan wild , en het is gemakkelijk om hier te verdwalen , dus het is beter om een boswachter of een gids die het terrein kent te huren .	-0.26699310541152954
-Maak deze ridder als een Happy Hero door zijn ware liefde te vinden in dit enorme mysterieuze kasteel . Er zijn veel verwarrende deuren , als uw geheugen is niet in goede staat , zult u gemakkelijk verloren gaan . De ridder moet passeren door een heleboel obstakels en gevaren en ze hebben verschillende manieren om aan te pakken . Er zijn meerdere einden in dit spel , je moet ze allemaal vinden . Veel plezier .	-0.2739180624485016
-( 128 - 176 ) Voor meisjes van 8 - 15 jaar Shop by look Shop by look Looks Girls Zero Looks Girls Lo Looks Girls Mid Looks Girls Hi Inspiratie Meisjes Highlight Nieuwe Aankomsten Rosalie 's favorieten Sale Shop alle Jongens Sale Jongens Sale 50 % Off Girls Sale Meisjes Sale 50 % Off Inspiratie Sale Sluit Mijn account Winkels Service Nederlands Oostenrijk zoeken verlanglijst Verlanglijstje opslaan of delen Laat je verlanglijstje niet verloren gaan .	-0.1950586885213852
-( 128 - 176 ) Voor meisjes van 8 - 15 jaar Shop by look Shop by look Looks Girls Zero Looks Girls Lo Looks Girls Mid Looks Girls Hi Inspiratie Meisjes Highlight Nieuwe Aankomsten Rosalie 's favorieten Sale Shop alle Jongens Sale Jongens Sale 50 % Off Girls Sale Meisjes Sale 50 % Off Inspiratie Sale Sluit Mijn account Winkels Service Nederlands Noorwegen zoeken verlanglijst Verlanglijstje opslaan of delen Laat je verlanglijstje niet verloren gaan .	-0.19785991311073303
-( 128 - 176 ) Voor meisjes van 8 - 15 jaar Shop by look Shop by look Looks Girls Zero Looks Girls Lo Looks Girls Mid Looks Girls Hi Inspiratie Meisjes Highlight Nieuwe Aankomsten Rosalie 's favorieten Sale Shop alle Jongens Sale Jongens Sale 50 % Off Girls Sale Meisjes Sale 50 % Off Inspiratie Sale Sluit Mijn account Winkels Service Nederlands Finland zoeken verlanglijst Verlanglijstje opslaan of delen Laat je verlanglijstje niet verloren gaan .	-0.19746817648410797
+Rot op.
+Rot op.
+- Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Hé, knul, rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+"Verdwijn."
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+Rot op.
+- Rot op!
+Rot op.
+- Rot op!
+Rot op.
+Verdwijn.
+Rot op.
+Rot op.
+Rot op.
+- Rot op!
+- Rot op.
+Verdwaal niet.
+- Rot op.
+Rot op, Steve.
+- Rot op.
+Ze verdwalen.
+Je verdwaalt.
+Rot op, Stewie.
+Je zult verdwalen.
+Rot op, Cal.
+- Rot op.
+- Rot op!
+Rot op, engerd.
+Rot op, mafkees.
+- Rot op!
+- Rot op!
+- Rot op.
+Rot op, Pavarotti.
+- Rot op.
+Rot op, Bennett.
+- Rot op.
+Rot op, man.
+- Rot op!
+- Rot op!
+- Rot op!
+- Rot op!
+Nooit meer.
+En nu wegwezen.
+- Rot op!
+- Rot op!
+Ga alsjeblieft weg.
+En nu wegwezen.
+- Rot op!
+- Rot op!
+En nu wegwezen.
+Ben je verdwaald?
+Verdwijn dan.
+- Rot op.
+Rot op, dame.
+Rot op, nu!
+Verdwijn hier.
+Rot op, knul.
+Hé, rot op.
+Rot op.
+Verdwaal niet.
+Rot op, Pam.
+Rot dan maar op.
+Je kunt maar beter oprotten.
+Ben je verdwaald?
+Je raakt het kwijt.
+Verdwaal je niet?
+Rot op, parasiet.
+Rot op, wil je?
+Rot op, Ed, ga weg.
+Rot op, blonde klootzak.
+- Rot op, Harry.
+Soms verdwaal ik.
+- Rot op, Morticia.
+Je kunt maar beter oprotten.
+Ik zal niet verdwalen.
+Rot op.
+En verdwaal niet.
+Rot op, verdwijn.
+Het is privé, verdwijn.
+- Rot op, knul.
+Ga weg, verdwijn!
+- Rot op, Flanders.
+Het is voorbij.
+Soms verdwaal ik.
+Zo niet, verdwijn dan.
+- Rot op, knul.
+Dus alsjeblieft, rot op.
+Makkelijk te verdwalen.
+Ik zei: 'Verdwijn'.
+- Rot op, trut.
+Verdwaal niet, oké?
+Rot op, verklikker.
+- Je moet verdwalen.
+Je kunt verdwalen.
+- Rot op, dronkaard.
+We kunnen verdwalen.
+Wegwezen.
+Jij ook, verdwijn!
+- Rot samen op.
+Rot op, verdomme.
+Pak aan, verdwijn.
+Fai Fai, niet doen.
+Oké, hoepel op, verdwijn.
+Rot op, zeg ik je!
+Alsjeblieft, verdwaal niet in...
+Waarom rot je niet op?
+Je zou verdwalen en sterven.
+Kom op jongens, rot op.
+- Rot op, wil je.
+Probeer niet te verdwalen.
+Ben jij ook verdwaald?
+En nu oprotten, verraderlijke ongedierte.
+Alsof het mij wat kan schelen, verdwijn!
+Rot op, dikke duif.
+Waarom verdwaal je niet?
+Iedereen zei: "Verdwijn, nietsnut."
+Waarom rot je niet op?
+- Ze is schattig.
+Het is makkelijk om te verdwalen.
+Zeg hem dat hij moet oprotten.
+Je kunt maar beter oprotten.
+Verdwaal hier niet.
+Wat als we verdwalen?
+Ik verdwaal er in.
+En we zullen niet verdwalen.
+- Rot op.
+En ik zou moeten verdwalen.
+Het is gesloten, dus verdwijn.
+Je kunt niet verdwalen.
+Probeer niet te verdwalen.
+Verdwaal nu niet.
+Ben je weer verdwaald?
+Oké, rot dan maar op.
+Wil je dat ik verdwaal?
+Wat als zij ook verdwalen?
+Hé korporaal, ben je bang dat hij verdwaalt?
+Ik leid het hotel en verdwijn.
+Is er iets verloren gegaan in de vertaling?
+We verdwalen in de duisternis.
+Het is heel makkelijk om te verdwalen.
+Ik verdwaal in mijn werk.
+Ik zei dat hij moest oprotten.
+Campers raken de hele tijd verdwaald.
+Verdwijn, mafkees.
+Krijg de klere.
+Rot op, vuile klootzak.
+- En je zult verdwalen.
+Wat als wij ook verdwalen?
+Ik zei dat hij moest oprotten.
+Ik zei, rot op, jij kleine...
+Je raakt verdwaald in je werk.
+Zoek een slot en verdwijn!
+Nou, genoeg mannelijke band.
+Verdwijn voor een tijdje.
+En dan verdwalen jullie.
+Een deel van de eiwitten verdwaalt.
+Maak dat je wegkomt.
+Zodat je niet meer verdwaalt.
+Of is mijn uitnodiging verdwaald?
+Dus je verdwaalt of zo?
+Dus waarom verdwijn je niet?
+Als ik ooit verdwaal...
+En je verdwaalt daartussenin.
+- Rot op, zei ik toch.
+Rot op, engerd, of ik bel de beveiliging.
+Verdwaal nu niet in de mist.
+Ik bid nooit.
+Ik ga hier verdwalen.
+Wat, ben je verdwaald onderweg?
+Is het groot genoeg om te verdwalen?
+Ik zal het op de post doen, anders zal het verdwalen.
+- Ja, bij elkaar blijven, niet verdwalen.
+Marcello, zeg het me.
+Doe het goed of verdwijn.
+Papierbonnen kunnen echter gemakkelijk verloren gaan.
+Het is makkelijk om hier te verdwalen.
+Je zou het vreselijk vinden als ze verdwalen.
+Ben je onderweg verdwaald?
+Ik verdwaal in je metafysische gangen.
+Je kunt verdwalen in deze kelders.
+- Hij gaat proberen te verdwalen.
+Ik zou niet willen dat je verdwaalt.
+Een kerel kan daar verdwalen.
+- Ik ben niet van plan om te verdwalen.
+Dus laat een penis groeien of verdwaal.
+Ik kan onderweg verdwalen.
+Verdwijn en laat me met rust.
+Snap je het nog steeds niet?
+Homer, nee, je gaat verdwalen.
+Dingen verdwalen vaak tijdens het vervoer.
+Als je ooit verdwaalt, Dory...
+Ik wilde niet dat het verdwaalde.
+Soms verdwaal ik in mijn gedachten.
+Hoe makkelijk is het om te verdwalen?
+Hé, records raken de hele tijd verdwaald.
+Als je hier verdwaalt, ben je er geweest.
+Ze raakte erin verdwaald.
+Jij moet verdwalen.
+- Ik ben niet weer verdwaald.
+Wees geen zuurstofzwijn.
+Je gaat verdwalen in het donker.
+Wacht, Joy, je kunt daar verdwalen!
+Als ik verdwaal, hou ik dit vast.
+Wegwezen, wij nemen het wel over.
+Rot op, ik heb je niet meer nodig.
+Je gaat verdwalen in mijn ogen, Doc.
+Er zijn sterke mensen bij betrokken, bewijs verdwaalt.
+Blijf in de buurt als je niet wilt verdwalen.
+En nu wegwezen.
+Dit is niet echt het moment.
+Je kunt deze auto niet hebben, man.
+We hebben een bevelschrift, Mrs Pritchard.
+Opschieten, engerd.
+Dus neem wat nieuwe vrienden... en verdwijn.
+Ik moet een paar uur verdwalen.
+Rot op, Bowen, voordat mijn hoorzitting terugkomt.
+Of doe iedereen een plezier en verdwijn.
+Hoe was de huwelijksreis?
+Je weet dat hij daar niet verdwaalt.
+Ik weet vrij zeker dat ze zei dat je moest oprotten.
+Wees alert op de bus: niet verdwalen!
+En je raakt niet weer verdwaald.
+Het is makkelijk om te verdwalen in de tunnels.
+Ging naar binnen, vond de dokter... was niet verdwaald.
+Iemand kan hier voor altijd verdwalen.
+Sobotka zegt dat blikjes de hele tijd verdwalen.
+Je kunt hier echt verdwalen, hè?
+Dit is geen territorium waar je in wilt verdwalen.
+Schapen zonder herder verdwalen.
+Ga naar Cuba en verdwaal niet.
+De grappen gaan natuurlijk verloren in de vertaling.
+Ik dacht dat ik zei dat je moest oprotten.
+Ik zou hem gezegd hebben op te rotten.
+Jezus speelde niet met meisjes.
+Verdomme, man, ik wil dat je verdwijnt.
+Pak je ijs en rot op.
+Het is een vrij veilige periode om te verdwalen.
+Ze zou niet verdwalen, ik weet zeker dat ze terugkomt.
+We willen dat het lichaam verdwaalt tijdens transport.
+Nou, het is makkelijk genoeg om daar te verdwalen.
+Ik dacht dat ik zei dat jullie moesten oprotten.
+Ik wil verdwalen in iets heel goeds.
+Als je geen bewijs hebt, verdwijn dan.
+Ik wilde zeker weten dat ze nooit zouden verdwalen.
+Misschien is het een goede plek om te verdwalen.
+Hoe kan iemand verdwalen in zijn eigen stad?
+Je moet verdwalen voordat je jezelf vindt.
+Wegwezen, kinderen.
+Rot op, blijf weg, de slangenbeet is giftig.
+Ja, ik ben gek, ik zie je later.
+Misschien langer als ik verdwaal in de Ginza.
+Kijk, dat daar, dat is waar ik verdwaal.
+Een meisje kan echt verdwalen in die dingen.
+Het is drie uur rijden, ze kan verdwalen.
+Zorg voor hem, laat hem niet verdwalen.
+Ze zeiden dat ik moest oprotten en vertrok.
+Bel me als je verdwaald bent.
+Kun je ervoor zorgen dat de ring niet verdwaalt?
+Je hebt me pijn gedaan.
+En nu zal dit... niet verdwalen.
+Wat de race nu zou verliezen, zou dat zijn om ergens te verdwalen.
+Je kunt verdwalen op de weg.
+In theorie kunnen ze onderweg verdwalen.
+Ons lab is overwerkt, en soms raken dingen verloren.
+Al die keren dat ik Spike zei om te verdwalen.
+Heb je ooit een kompas gezien?
+Hij kreeg een klap, omdat hij zei'verdwijn'.
+Ik zou verdwalen in zo'n groot huis.
+Het busje zal volgen zodat je niet verdwaalt.
+Ik zei dat je hier niet moest komen.
+Maar dan verdwalen we.
+Graham, blijf hier, oké?
+Want op die manier raken we niet van elkaar verdwaald.
+Het is voor je bescherming, zodat je niet meer verdwaalt.
+Weet je, het is echt makkelijk om hier te verdwalen.
+Ik sta erom bekend dat ik verdwaal in mijn eigen kantoor.
+Ik hoopte dat het verloren zou gaan in de verhuizing.
+Geen visueel contact, instrumenten verblind door straling, ze zouden verdwalen.
+Laten we niet verdwalen in de wie, wat en wanneer.
+Als er iemand op de brug is, zeg dan dat ze moeten oprotten.
+En compact dat kinderen in staat stelt om niet snel te verdwalen.
+Ben je vorige week niet verdwaald in de supermarkt?
+Overal waar ik me omdraaide, zeiden mensen dat ik me moest terugtrekken, verdwijn.
+Dan verdwalen we niet.
+Zijn jullie verdwaald op weg naar de golfbaan?
+Want "door kanalen gaan" is gewoon diplomatisch dubbelpraat voor "verdwijn."
+Word wakker, begin in elke richting te lopen, echt, en verdwijn.
+Beloof me dat als je verdwaalt, we samen verdwalen.
+We geven hem een lift, zodat hij niet weer verdwaalt.
+Soms moet je verdwalen voordat je jezelf kunt vinden.
+Oh, nou, ik denk niet dat ik zou willen verdwalen.
+Als je iets tegen iemand zegt, vind ik je wel.
+Laat me je vertellen, als we verdwalen, is dat je reet.
+Oké, Rupert, ben je klaar om te verdwalen in wat Anne?
+Ik heb een geweldige avond gekozen om te verdwalen in het bos.
+Rot op, maat, voordat je ons allemaal besmet met je consumptie.
+Als je van plan bent om te tanken, oké, anders verdwijn je.
+Zorg dat hij niet verdwaalt op weg naar buiten.
+De sleutel van de kelder is niet verdwaald.
+Mou mayowa nai kimi met jou, ik zal niet verdwalen.
+Maar als je bij de anderen bent, verdwaal ik daar.
+Ga naar Jimmy Moore, Bob Stone, iemand "Malowinksl," en "Ga weg, lieverd.
+We zijn niet samen opgegroeid, ik ken je niet, dus verdwijn!
+Weet je, elke andere avond zou ik je vertellen om te verdwalen.
+Het oude deel van Lijiang is groot genoeg om binnen te verdwalen.
+Ik word gek als ik denk dat ik je kwijtraak.
+Ik hoorde net dat het een geweldige plek was om te verdwalen.
+We kunnen beter weggaan voordat ze onze ID's beter bekijken.
+Het vertelt je hoe je je weg kunt vinden als je verdwaalt.
+Als je verdwaalt op het eiland, zoek dan naar de zee.
+Product Informatie Zelfs de grootste lul zal verdwalen tussen deze borsten.
+Besloten om een tijdje rond te zwerven, weet je - verdwalen.
+Laten we onze problemen vergeten en verdwalen in de wereld van de boeken.
+Als we hier verdwalen, vinden we nooit meer de weg terug.
+Dit is alles voor hem.
+Er zijn geen geheime dingen die zo nu en dan verloren gaan in die blikjes.
+Als je verdwaalt, volg dan Mr Kenny G.
+Als ik instort, sta ik op en verdwaal ik.
+Ik zou het vreselijk vinden als hij verdwaalde op zo'n onbekende plek.
+Als ik je vasthoud, verdwaal je misschien niet.
+Mijn moeder was zo vluchtig, dat ze zeker te laat komt of verdwaalt.
+Hoe gegevens verloren gaan of verwijderd van LaCie Porsche ontwerp desktop harde schijf?
+Directe kritiek op bijzondere situaties mag niet verloren gaan in multilaterale verklaringen.
+Verdwalen mannen in je ogen?
+Maar er is iets engs aan hem... dus ik zeg hem dat hij moet oprotten.
+Ze gaf me nog 50 dollar en zei dat ik moest oprotten.
+Theseus had een grote bal draad, gebruikte het zodat hij niet zou verdwalen...
+Ik denk niet dat ik hier wil verdwalen, want dit zijn de stokken.
+Als we hem nu niet vinden, raakt hij verdwaald in het spitsverkeer.
+Voordat het rood wordt met de jouwe, wed op zwart en verdwijn voor de avond valt.
+Ik kan niet beloven dat ik niet verdwaal, in de geest van de concurrentie.
+De achtergrond & rollen culmineren in een meeslepende omgeving waar gokkers verdwalen in.
+Nooit meer verdwalen... Geplaatst door Peter op 12 augustus 2006 om 07:18
+Als je niet bekend bent met deze delen, kun je verdwalen in dat bos.
+En trouwens, als we verdwalen dan kunnen we misschien het licht terug volgen.
+Ik raakte altijd verdwaald toen ik hier begon te werken.
+We gaan er allemaal doorheen, John, we verdwalen allemaal.
+We kunnen naar de woonboot gaan en verdwalen in elke inlaat.
+En als je blijft, kun je hier ook verdwalen.
+Je weet wel, je verdwaalt, of zoiets, verwacht je dat ik dit draag?
+En kiezen voor actie, om te doen, in plaats van te observeren en verdwalen in conventionele clichés.
+Kijk hier, George... stel dat je verdwaalt in de 50ste eeuw...
+Is dat een beleefde manier om'verdwijn' te zeggen?
+Luister, ik zou gaan wandelen, maar ik kan verdwalen, ik kan opgegeten worden.
+Omdat iemand er misschien naar komt zoeken, en ik wil niet dat het verdwaalt.
+Ik hoop alleen dat het niet verloren gaat onder al die andere dingen die je zorgvuldig overweegt.
+Veel meisjes vinden dat leuk en je kunt zien dat ze willen verdwalen.
+Villager had ooit het voorrecht om te verdwalen in een Nederlands bos met de schrijver.
+Het concentreert zich op de belangrijkste centrale kwesties en raakt niet verdwaald in de details.
+Vanaf daar kun je ook zien hoe mensen verdwalen in het nabijgelegen labyrint.
+We moeten bij elkaar blijven.....of we gaan gewoon verdwalen.
+Er worden geen bedreigingen gemaakt dat uw bestanden verloren kunnen gaan na verloop van tijd.Betaal NIET deze criminelen.
+Nee, we blijven hier ook, als we gaan dwalen, gaan we verdwalen of vermoorden.
+Als je ver genoeg gaat, kun je gewoon verdwalen, en niemand zal je ooit vinden.
+Tenzij je schweppes hebt of zoiets als een nantucket nectar, verdwijn.
+Ik heb geen zwarte mensen gezien in Utah.
+Als je verdwaalt in dit bos, ben je er geweest.
+Je wilt niet dat hij verdwaalt in het onkruid Proberen om de pompoen patch te vinden.
+Pennels, de eigenaar, zag dit gedrag als onplezierig en verlangend om te verdwalen van de kittens.
+Donder op en volg ons niet.
+De bezoeker die twijfelt loopt het risico om een antwoord te krijgen als "Verdwijn, klootzak!".
+De taxichauffeur gaf haar opdracht naar kamer tien te gaan, die ze aangaf en hem vervolgens vertelde om te verdwalen.
+Ik weet gewoon dat ik vanavond weer verdwaal in dat bos.
+Een muziekwoordenboek Engels-Nederlands, Nederlands-Engels. Het bevat woorden die zelfs verloren gaan in de meest geavanceerde woordenboeken.
+Als ik verdwaal, kan ik hier een maand in overleven.
+- Zeg ze dat als we doorgaan, we het spoor verliezen, verdwalen en sterven!
+Ik ben blij om alles te doen wat ik kan om ervoor te zorgen dat Tristan niet verdwaalt in het systeem.
+Ed duikt hier op met $3 miljoen in contanten, en jij zegt hem dat hij moet oprotten?
+Deze man heeft je in LYCRA en plastic hakken voordat je het weet.
+In veel gevallen, Word-bestanden van USB-drive kan verloren / verwijderd als gevolg van vele onvoorziene redenen.
+De bijeenkomst leek me de perfecte tijd... veel mensen... ik kan verdwalen in de menigte.
+Toen dronken we wat biertjes rond het kampvuur, het was erg warm rond het vuur.
+Ik vergat de broodjes.
+Na een tijdje dacht ik dat het beste wat ik voor hen beiden kon doen, was verdwalen.
+In dat geval kunnen de foto's of video's die u hebt gebruikt in die filmmaker verloren gaan.
+In feite, als jij en hubs willen verdwalen, denk ik dat ik er klaar voor ben om alleen te vliegen.
+Ik wil de wereld rondvliegen zonder een pistool op mijn heup.
+Zo kunt u ook genieten van de prachtige natuur en de Zweedse landschappen zonder zich zorgen te maken over verdwalen.
+Dus waarom gaan jullie niet weg voordat ik mijn zondagsschoen in je reet schop!
+Mr Clèment, u bent vanaf 20:40 in hechtenis voor verkrachting van een minderjarige.
+Kijk, ik weet dat je mijn baas bent... en je kunt me vertellen dat ik verdwijn wanneer je wilt, maar er is iets gebeurd.
+Deze bestanden zijn net als alle andere soorten bestanden; ze kunnen verloren gaan of verwijderd worden zoals in uw geval.
+Echter, vaak kunnen uw memorabele foto's die zijn opgenomen op Sony Alpha NEX5 verloren gaan onder vele omstandigheden.
+Uw bestanden kunnen verloren gaan terwijl ze in overdracht, als een schijf / partitie per ongeluk is geformatteerd, enz.
+Onjuist gebruik: Wanneer de camera onjuist wordt gebruikt door gebruikers dan kunnen de gegevens die zijn opgeslagen op de camera SD-kaart verloren gaan.
+Een van de verschillende redenen waarom gegevens van SD-kaart verloren gaan is te wijten aan corruptie van SD-kaart.
+Vertel me dat als we verdwalen en in Montreal belanden... en iedereen Frans spreekt.
+Het is een nobel idee, captain, maar goede bedoelingen zijn als de reserve... ze zijn geneigd te verdwalen in de Leegte.
+De kunstcentra, kunstateliers en galeries in het Pays de Langres nodigen u uit om te verdwalen in uw contemplatie.
+En als ik er AK's voor doe, dan wil ik het krijgen.
+Ga weg voor ik je kop eraf trek en het als voetbal gebruikt.
+Serieus, kinderen, ik moet tien tv's wisselen naar de vierde ronde van de NBA tocht, dus verdwijn.
+Als de bestanden in WD mijn paspoort verloren gaan of per ongeluk verwijderd, bent u zeker om een vrij moeilijke tijd te hebben.
+Dit is een papierbedrijf, en ik wil niet dat we verdwalen in het onkruid of in een schoonheidswedstrijd.
+Je weet hoe mannen zijn, ze denken dat 'nee' betekent 'ja' en'verdwijn' betekent 'neem me'.
+Natuurlijk, weet je, ik liet hem verdwalen en hij is, hij is vermist voor - het was tenminste 12 uur, toch?
+Unifieert, kalmeert, beschermt. Geen behoefte om te kiezen, geen behoefte om te verdwalen in de vele versies van BB, CC, DD crèmes.
+En dan... sommige mensen... verdwalen op weg naar het licht... en ze hebben iemand nodig om hen er naar toe te leiden.
+Ik hoop alleen dat Tim Whatley's elektrische rekeningen niet plotseling verloren raken in de post of dat het licht uit is voor hem.
+Ondanks de kennis die je hebt van dat gebied op moderne kaarten, kunt u verdwalen bij het eerste onderzoek van de Peutinger Table.
+Tijdens het overbrengen van proces tussen digitale camera en uw pc, als u SD-kaart plotseling uitwerpt, videobestanden kunnen verloren gaan.
+Veel mensen trainen hun vogels om namen te herhalen... en adressen voor het geval ze verdwalen.
+In intermediaire holdingketens, vooral wanneer er veel tussenpersonen bij betrokken zijn, wordt informatie niet doorgegeven aan aandeelhouders van vennootschappen of aandeelhoudersstemmen verloren gaan.
+Onjuist uitwerpen: Gegevens kunnen verloren gaan als u uw mobiele telefoon loskoppelt zonder gebruik te maken van de optie "Veilig verwijderen" wanneer deze is aangesloten op de computer.
+Dit gebeurt handmatig, want de zaden zijn in de kleine bloemen. Wanneer geoogst met machines zou veel van dit zaad verloren gaan.
+Objecten kunnen wetenschappelijk worden ingedeeld in drie grote categorieën: die Russell Baker die niet werkt, die breken en die verdwalen.
+De meeste zijn cool, maar als een dikke man je vraagt om "T Eddy Bear in the Hole" te spelen, zeg hem dan om te verdwalen.
+Epic Bingo is zeer gemakkelijk om rond te navigeren en met menusystemen langs de boven- en onderkant zodat je niet echt kunt verdwalen.
+Er is echter geen twijfel dat Nikon camera apparaat bieden goede kwaliteit foto's, maar de gegevens binnen de geheugenkaart is gevoelig om te verdwalen.
+Het is gelegen in een authentieke plaats, met weinig auto's en aangenaam om langs te lopen en verdwalen in de nooit eindigende straten en pleinen.
+Met een all-terrain voertuig kan leuk zijn om te verdwalen en eindigen in het doolhof van zijsporen die kriskras over de Cape Parrot.
+We zouden kunnen verdwalen op een van die byways, nooit de weg terug te vinden op de krappe weg die leidt naar het leven.
+Toepassing Crash: Wanneer Microsoft Powerpoint applicatie crasht plotseling, kunnen uw PPT-bestanden verloren gaan of wanneer de toepassing abrupt eindigt, kunnen PPT-bestanden verloren gaan.
+Je hebt je Sidekick met tekst, GPS locator voor het geval je verdwaalt en waterdichte zonnebrandcrème, voor het geval het zonnig wordt terwijl het nog regent.
+Verdwalen in een landschap bestrooid met traditie en maak van deze ervaring een activiteit die je gewoon wilt herhalen keer op keer.
+Onjuiste Disconnectie: Als u HTC Rezound Android-telefoon loskoppelen van de computer zonder gebruik te maken van 
+Als alles gericht is op het maken van winst voor de grote bedrijven, zie je dat mensenrechten, het milieu, werknemersrechten samen verloren gaan.
+Ervan uitgaande dat elke leverancier optimaliseert de prestaties van zijn componenten in smallere bewegende ruimte, is het niet langer geschikt dat vloeistoffen verloren gaan in een doolhof van interconnecties.
+Hoewel er vele doelen, activiteiten en geheimen te ontdekken, in het hart Hohokum is een speeltuin - een plek om rond te dwalen en verdwalen in.
+Verdwaal tussen oude boeken, rollen en voorwerpen d'art in Dublin's Chester Beatty Library, beschreven door Lonely Planet als "een van de beste musea in Europa." 8.
+Ik vroeg je dat papiertje na vier jaar te tekenen en dan voorgoed te verdwijnen.
+Laten we verdwalen in BoTu! Doe mee met de vijf Rotterdamse schrijvers Tommy Ventevogel, Edna Azulay, Simon Weeda, Umeu Bartelds en Gino van Weenen op een tour langs alle locaties.
+En, oh, ja, verdwaal niet, want het is erg donker, het is erg gevaarlijk en er is een kans dat je nooit meer gezien of gehoord wordt.
+Ik ben niet zoals jij, het gaat niet, dit heeft genoeg tandenborstel alleen en stoom van de broek aan het einde van de week helemaal. broek!
+De tang heeft groeven aan de binnenkant en de buitenkant van hun klem uiteinden ontworpen om de juwelen stevig vast te houden, zodat het niet verdwalen of wegglijden.
+Je kapt een buitenaards schip, vliegt een enkele reis naar de Maan, verdwaalt daar ergens in de leegte van de Melkweg, en je zult nog steeds niet sterven.
+Een van de dokters zei hem: "Matt, als ik in jouw schoenen stond, zou ik het gordijn dicht hebben, mijn hoofd bedekken, en iedereen vertellen om te verdwalen. "
+De stekkers uit deze categorie zijn smal in hun middelste deel en breder aan de rand. Zo blijft de stekker in de juiste positie en kan niet verdwalen.
+Create, LEES, EN BROWSE Ga voor een minimalistische hand-held modus om een idee te schetsen of gewoon achterover leunen en verdwalen in een artikel of e-book zonder afleiding.
+Deze RAID 0 harde schijf ondersteunt gegevensopslag tot 20TB zonder enige gedoe dat aan de behoeften van de gebruiker voldoet. Echter, gegevens op LaCie 5big Thunderbolt kunnen op vele manieren verloren gaan.
+Jullie dwazen, smeek niet zo als jullie willen leven! Ik zweer het, mensen zo dapper als jullie, worden gearresteerd, geplunderd en gedood door de mannen van de koning!'
+Geweldige drankjes, muziek en optredens maken het heel gemakkelijk om in de tijd te verdwalen en te genieten van de gemakkelijke sfeer samen met multiculturele mensen van over de hele wereld voor uren.
+Gegevensoverdracht Fout: De gegevens van de geheugenkaart kunnen verloren gaan wanneer er een plotselinge stroomstoot tijdens het overbrengen van gegevens van Dell telefoon en PC of vice versa
+Wij vertrouwen erop dat het Ierse voorzitterschap van de Raad ervoor zal zorgen dat dit niet gebeurt, dat we niet verdwalen in het perfectioneren van details of bezwijken voor politieke erosie.
+Het is klaar voor serieuze trail kilometers als je gewoon wilt verdwalen in het bos, en het is een perfecte eerste fiets voor iedereen op zoek naar een betrouwbare mountainbike.
+Het International Medical Center ligt vlak achter een tuin, net achter de bushalte. Als u verdwaalt, aarzel dan niet om contact met ons op te nemen via telefoon 669 79 00 13.
+Op deze manier kunt u er zeker van zijn dat uw kleintje lekker warm blijft en niet verdwaalt.Zorg ervoor dat u geen oversized slaapzakken gebruikt voor pasgeboren baby's.
+Valsugana behoort verder tot het Dolomieten Lagorai Bike Circuit, in Oost-Trentino, dat ongeveer 1000 km routes omvat, allemaal opgespoord op uw GPS: het is onmogelijk om te verdwalen!
+Ongeacht uw Word-document verloren gaan van geformatteerde harde schijf, met de hulp van deze bekroonde software kunt u terug te krijgen verloren Word-document voor u binnen enkele klikken.
+Dus je zult nooit meer verdwalen Bovendien heeft de app een aantal nieuwe functies zoals een groepschat die je kunt maken voor een evenement en de app verbruikt minder batterij.
+Alles met Mij en Mijn Goddelijke Zoon in de Vader. Verdwaal niet wanneer de verleiding jullie verleidt, Ik ben met jullie. Ik help jullie. Kom daarom en bezoek Mij in de kerk.
+Mocht uw Visa Silver-kaart verloren gaan, gestolen of beschadigd zijn in of na mei 2018, dan wordt deze automatisch vervangen door een nieuwe Silver Mastercard. Mijn Visa Silver-kaart vervalt vóór mei 2019.
+U kunt niet verdwalen in een van de meest visueel prachtige steden van de wereld! Het heeft de grootste historische binnenstad van Europa en is bekend om zijn internationale en liberale sfeer.
+2.2 Zowel het voorstel als het begeleidende verslag zijn zo doorspekt met acroniemen dat het gemakkelijk is om te verdwalen te midden van het web van afkortingen en verbanden tussen de verschillende in de tekst genoemde organen.
+We keken naar de kaart eerder vandaag, en we kwamen met vier mogelijkheden waar een kind zou kunnen verdwalen of zich verbergen voor een hele dag of nacht en niet opgemerkt worden.
+En als je er zeker van wilt zijn dat Fisher dood is, kun je zelfs een klein explosief maken waardoor de benzinetank omhoog gaat, en het hele ding zou verloren gaan in het wrak.
+Wij hebben ons tot taak gesteld om er zo snel mogelijk een speciaal verslag over op te stellen en omdat ik ondertussen zelf rapporteur ben geworden, zal ik ervoor zorgen dat het niet verloren gaat.
+Nu weet ik dat ik haar extra rood vlees, calcium, etc. moet geven.Ook moeten we wat voorbereidingen treffen zoals het maken van de nieuwe puppy kamer, hek van een puppy speeltuin zodat ze niet verdwalen, etc.
+Toch met miljoenen dollars op de lijn de Live Stream biedt casual kijkers een beter inzicht in wat er aan de pokertafels en de dynamiek die vaak verloren gaan tijdens het bewerken proces.
+Van zeeniveau op de Adriatische Zee naar Colledimezzo is een klim van 490 meter. De weg is erg rustig en niet te snel klimmen dus het is een goede rit. Je kunt niet verdwalen in een vallei, volg gewoon de weg.
+Ik vergeef mezelf dat ik mezelf heb geaccepteerd en toegestaan om niet te kunnen genieten van wandelen in het moment uit een constante angst om te verdwalen of bezig te zijn met gedachten/scenario's van wat als ik verdwaal.
+Je kunt naar deze club gaan, één kamer kiezen en het gevoel hebben dat je de hele nacht in je eigen club bent geweest. Als alternatief kun je een avontuur beleven - verdwalen in het doolhof van pompende dansvloeren en verwarrende gangen.
+Als u houdt van avontuurlijke sporten, excursies en het verkennen...als u op zoek bent naar rust en stilte, de kans om te genieten van de natuur of comfort...als u zin hebt in een uitstapje met het gezin, wilt u plezier hebben met vrienden of verdwalen met uw partner...
+Wandel naar de Port Vell om de jachten in de haven te zien, verdwaal in de middeleeuwse straten van de Gotische wijk, of bezoek de nabijgelegen Boqueria, een van de grootste en meest spectaculaire markten in Europa.Service 4.0Locatie 4.5
+Echter, Lillesand is een geweldige plek om te verdwalen voor een paar dagen in de winter ook. Kleed je warm en maak een ontspannen wandeling in het centrum van de stad, langs de smalle straatjes die elegant buigen tussen witte houten huizen.
+Op korte afstand vindt u veel pittoreske dorpjes, zoals St.Quentin-la-Poterie, La Capelle-Masmolène, St.Victor-la-Coste, Castillon-du-Gard, Collias, Lussan. Uzès, een klein stadje op sympathieke grootte waar het heerlijk is om te verdwalen in de kleine voetgangersstraatjes van het gerestaureerde stadscentrum.
+U kunt het verwijderen en deactiveren op onze webaccount wanneer de telefoon verloren gaat of u hebt geen toegang meer.Wat gebeurt er na de abonnement maanden voorbij?U kunt ervoor kiezen om het abonnement te verlengen, maar hier is geen verplichting om dit te doen.
+Rijd onder de middernachtzon in de Arctische Cirkel zomertijd, bergwandelen in diepe maagdelijke bossen in Midden-Zweden, of verdwalen in de bossen van het zuiden (metaforisch dat wil zeggen, we houden niet van het verliezen van paarden of toeristen, uiteraard.
+JPG-bestanden kunnen verloren / verwijderd als gevolg van een van de onderstaande scenario's: Formaat: Het is echt vervelend wanneer uw computer toont "Format Fout" ("Disk moet worden geformatteerd") op het scherm, zodra u uw geheugenkaart aan uw Macintosh.
+De meeste gebruikers zijn van mening dat de gegevens die zijn opgeslagen op de schijf zal persistent blijven, maar het feitelijke feit is dat de opgeslagen gegevens kan elk moment verloren gaan als er een inconsistentie in de computer of door gebruikers ongepast gebruik.
+Het is waar dat het een uitzonderlijk geval was als gevolg van wat verwarring binnen de Commissie, maar een van de problemen is dat heel vaak vragen van de ene afdeling naar de andere worden geschoven en in het proces dat ze verdwalen of duivenholten en vergeten worden.
+De reden waarom zo veel links worden gepresenteerd in de FrontPage is dat je meestal terug te krijgen op de tekst die u leest door terug te gaan naar de FrontPage en herstart van daar als je verdwaalt op deze website...
+Dus ik dacht... de eerste keer dat ik het licht uit deed en daar stond, dacht ik dat we het licht aan moesten houden en aan de overkant blijven waar we zijn... want anders zal het makkelijk zijn om daar beneden te verdwalen.
+En door het aansluiten van koptelefoons, kunt u verdwalen in muzikale reizen dag of nacht zonder storende huisgenoten of buren.Highly Portable for Life on the Move Verkrijgbaar in wit of zwart, de FP-30 biedt een strakke, elegante look die een welkome aanvulling op elke kamer.
+Ontdek de kleine wijk, verdwaal in de tunnels (casemates) van de Bock, loop over de Chemin de la Corniche (nicknamed de mooiste balkon van Europa.En bezoek het kasteel Vianden.Voorbereid uw verblijf op voorhand en krijg de beste prijzen voor het reizen.
+Het Duitse instituut voor opiniepeilingen in Allensbach kwam tot de conclusie dat driekwart van de Duitse leidinggevenden in economie, politiek en bestuur het met deze mening eens zijn: "Wanneer religieuze banden in een samenleving zwakker worden, gaan ook belangrijke waarden en normen verloren" en slechts 22 procent geloofde dit niet.
+Porsche Design harde schijf data recovery tool: Het is zeer belangrijk om te weten welke recovery applicatie moet worden geïnstalleerd om verloren / verwijderde gegevens terug te krijgen van Porsche Design harde schijf op Mac-machine; meest voorgestelde en gereputeerde software door computerexperts is Yodot Mac Data Recovery tool.
+Ik was nooit een Windows-gebruiker en er is iets wat ik gewoon niet kan begrijpen: als je eenmaal je tekstverwerker, je webbrowser, je e-mailtoepassing, je instant messenger software en sommige vensters open om uw bestanden te verkennen, hoe kunnen Windows-gebruikers beheren om niet te verdwalen in deze rommel?
+En in het geval dat een transponder verloren moet gaan, gestolen of defect is, kan deze onmiddellijk in het systeem worden verwijderd zodat deze niet meer gebruikt kan worden. In plaats daarvan kan de desbetreffende beheerder binnen enkele minuten vervangingen verstrekken door een nieuwe transponder aan te maken en dezelfde rechten toe te kennen aan deze nieuwe transponder.
+(EN) Mijnheer de Voorzitter, zoals soms gebeurt, wil ik na paragraaf 19 van de volgende nieuwe paragraaf een paar woorden kwijtraken in de onderhandelingen of tussen hen en het gedrukte woord, en met de steun van alle betrokken fracties zou ik de toevoeging willen verplaatsen: "vraagt om meer te investeren in de ontwikkeling en verstrekking van kinderformuleringen voor kinderen;."
+Hardware Probleem: Een hardware probleem zoals een slechte sector kan leiden tot aanzienlijke hoeveelheid verlies van gegevens. Als mediabestanden werden opgeslagen op een schijf die slechte sectoren heeft, dan kan het niet langer worden geopend en het meest waarschijnlijk om verloren te gaan. Aan de andere kant, mediabestanden die worden opgeslagen na slechte sector zal ook ontoegankelijk worden
+Voor de fenomenen in dit artikel zou het een uitwisseling of interactie kunnen zijn tussen Moeder Aarde's energie en kosmische energie.Het is zeer goed mogelijk, vooral in deze tijd, dat is een energetische "drukke" een, gaande van de Vissen tijdperk naar Waterman.Een andere suggestie is die van Moeder Aarde, proberen te verdwalen van het negativisme, omdat we haar niet zo goed hebben betrapt.
+Er zijn overvloedig aantal verantwoordelijke redenen waardoor pen drive gegevens verloren gaat of verwijderd, sommige van hen zijn hieronder vermeld: Wanneer de pen drive wordt verwijderd uit het systeem tijdens de overdracht van gegevens proces, kan er kans op verlies van gegevens of kan krijgen ontoegankelijke gegevens die zijn opgeslagen op de pen drive kunnen verloren gaan als gevolg van ernstige virusaanval, bestandssysteem corruptie, enz.
+Houd uw tickets veilig Als u Eurojackpot via een erkende winkel binnengaat, teken dan de achterkant van uw ticket om te bewijzen dat u de rechtmatige eigenaar bent en bewaar het op een veilige plaats om ervoor te zorgen dat het niet verloren gaat of beschadigd raakt (bijvoorbeeld als u het ticket in uw broekzak opslaat en dan vergeet wanneer u ze in de wasmachine plaatst om te worden schoongemaakt).
+Eens toen de vader uitging om te ploegen, zei de kleine: "Vader, ik zal met u uitgaan." "Gij zou met mij uit willen gaan?" zei de vader. "Blijft hier, gij zult daar geen nut hebben, behalve dat gij zou kunnen verdwalen!" Toen begon Thumbling te schreeuwen, en omwille van de vrede legde zijn vader hem in zijn zak, en nam hem mee.
+Uitgerust met ski's of sneeuwschoenen, zullen ze u begeleiden door eenvoudige en volledig veilige circuits, evenals het verstrekken van interessante uitleg over de route.Cross-country ski en freeride: voor degenen die geen grenzen kennenAls u wilt de grenzen van een gesloten circuit te overschrijden en verdwalen in ongebreidelde natuur, kunt u verschillende soorten excursies in Andorra.Bijvoorbeeld, cross-country of skimo, dat is een steeds populairder trend.
+Nee, dit is niet omdat slechte wegen in deze stad, maar omdat het prachtige bos daar gelegen. We hebben het over het bos van Dean, dat was een koninklijk bos in de tijd van Willem de Veroveraar. Dit bos is groot en rijk aan wild, en het is gemakkelijk om hier te verdwalen, dus het is beter om een boswachter of een gids die het terrein kent te huren.
+Maak deze ridder als een Happy Hero door zijn ware liefde te vinden in dit enorme mysterieuze kasteel. Er zijn veel verwarrende deuren, als uw geheugen is niet in goede staat, zult u gemakkelijk verloren gaan. De ridder moet passeren door een heleboel obstakels en gevaren en ze hebben verschillende manieren om aan te pakken. Er zijn meerdere einden in dit spel, je moet ze allemaal vinden. Veel plezier.
+(128 - 176) Voor meisjes van 8 - 15 jaar Shop by look Shop by look Looks Girls Zero Looks Girls Lo Looks Girls Mid Looks Girls Hi Inspiratie Meisjes Highlight Nieuwe Aankomsten Rosalie's favorieten Sale Shop alle Jongens Sale Jongens Sale 50% Off Girls Sale Meisjes Sale 50% Off Inspiratie Sale Sluit Mijn account Winkels Service Nederlands Oostenrijk zoeken verlanglijst Verlanglijstje opslaan of delen Laat je verlanglijstje niet verloren gaan.
+(128 - 176) Voor meisjes van 8 - 15 jaar Shop by look Shop by look Looks Girls Zero Looks Girls Lo Looks Girls Mid Looks Girls Hi Inspiratie Meisjes Highlight Nieuwe Aankomsten Rosalie's favorieten Sale Shop alle Jongens Sale Jongens Sale 50% Off Girls Sale Meisjes Sale 50% Off Inspiratie Sale Sluit Mijn account Winkels Service Nederlands Noorwegen zoeken verlanglijst Verlanglijstje opslaan of delen Laat je verlanglijstje niet verloren gaan.
+(128 - 176) Voor meisjes van 8 - 15 jaar Shop by look Shop by look Looks Girls Zero Looks Girls Lo Looks Girls Mid Looks Girls Hi Inspiratie Meisjes Highlight Nieuwe Aankomsten Rosalie's favorieten Sale Shop alle Jongens Sale Jongens Sale 50% Off Girls Sale Meisjes Sale 50% Off Inspiratie Sale Sluit Mijn account Winkels Service Nederlands Finland zoeken verlanglijst Verlanglijstje opslaan of delen Laat je verlanglijstje niet verloren gaan.

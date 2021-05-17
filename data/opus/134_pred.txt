@@ -1,38 +1,38 @@
-Blaas geen lont op .	-0.395643025636673
-Hebben we een zekering opgeblazen ?	-0.35797005891799927
-Je blaast een zekering op .	-0.40273773670196533
-Heb je een zekering opgeblazen ?	-0.3954375386238098
-Hebben we een zekering opgeblazen ?	-0.4509713649749756
-- Oké , blaas geen lont !	-0.5156626105308533
-Mijn studio blaast een zekering op .	-0.3515884578227997
-Heeft iemand daar een zekering opgeblazen ?	-0.5272175669670105
-Ik hoop dat je een zekering blaast .	-0.3014622926712036
-Meneer , iedereen kan een zekering opblazen .	-0.33802175521850586
-Pas op dat je geen zekering blaast .	-0.446313738822937
-Ik kom , ik kom , blaas geen zekering .	-0.47861430048942566
-Je hebt geen zekering opgeblazen .	-0.60490882396698
-Als ik het fornuis aanzet , blaas ik een zekering op .	-0.3530602753162384
-Als je zegt dat je zijn schoonzoon bent , blaas ik een zekering op .	-0.2677292227745056
-Ik blaas elke keer een zekering op als ik mijn telefoon laad .	-0.43568283319473267
-Nu weet ik wie ik moet bellen als ik een zekering blaas .	-0.26665598154067993
-Als ze niets vinden , blaast de baas een zekering op .	-0.2904279828071594
-Hij gaat me een lont laten blazen , deze onbeleefde jongen .	-0.4466726779937744
-Verdomme , hebben we weer een zekering opgeblazen ?	-0.4920012354850769
-Wat hebben we gedaan , een zekering opblazen die die oude videorecorder opblaast ?	-0.5042192935943604
-Je bent een goede danser .	-0.3453839123249054
-Met de A/C kortsluiting , kun je een zekering blazen , de stroom volledig verliezen .	-0.5982478857040405
-Als het een zekering begon op te blazen , zou het zijn gestopt .	-0.6298967599868774
-Nathan Scott blaast een zekering op als hij je hierin ziet .	-0.4187445342540741
-Hebben we een zekering opgeblazen , of doet papa een nucleaire rampoefening ?	-0.45201101899147034
-Hogan blaast zelf een zekering op als hij dit hoort .	-0.4641564190387726
-- Ik heb gewoon het vage gevoel om een zekering naar mezelf te blazen .	-0.48914527893066406
-Een ding maakt me echt blazen een zekering : Als iemand toetert naar mij , of stappen op mijn tenen .	-0.40363165736198425
-Of dat ik misschien een zekering opblaas en een van die cameraploegen alles vertel wat ik gedaan heb ?	-0.4661306142807007
-- Als ik het je zou vertellen , ik heb het vage gevoel om een zekering naar mezelf te blazen wat zou je zeggen ?	-0.5046693086624146
-Maar soms hebben we zoveel zintuigen die ons in de war brengen , zo veel manieren om iets te voelen , dat we een zekering blazen .	-0.4692876935005188
-Je blaast een zekering op en neemt een robot snooze ik zal je deactiveren want ik haat je ik wil niet om de struik heen	-0.6184581518173218
-Dat klopt ... want in de 're ' bedrading zou er een circuitfout zijn geweest ... zeer vergelijkbaar met jullie elektrische draden en stekkers die een zekering blazen en vuur vangen .	-0.3393338620662689
-In plaats van een enkel , bergachtig probleem , is het vaak de accumulatie van kleine , schijnbaar onbeduidende angsten die paniek veroorzaakt , net zoals de manier waarop te veel individuele elektrische apparaten op hetzelfde circuit een zekering kunnen blazen .	-0.431846022605896
-Informatie over camera 's met ID 0x2770:0x9153 . We raden het gebruik van een GUI-programma niet aan om toegang te krijgen tot deze camera , tenzij je gewoon plezier hebt of probeert te zien of je een zekering kunt blazen . Probeer voor productie gebruik gphoto2 -P vanaf de commandoregel . Opmerking : het is niet mogelijk om videoclips te downloaden .	-0.25501078367233276
-Je belt de bel Bim bam Je schreeuwt en je schreeuwt Hoi ho ho Je brak de spreuk Gee , dit is zwellen je bijna een fit Deze kerel is `` gorge '' en ik werd geraakt Er is geen fout dit is het 'Til het is voorbij en dan ... Het is mooi en rustig Shhhh Shhhh Maar binnenkort weer Shhhh Shhhh begint een andere grote rel Je blaast een zekering Zing boom De duivel snijdt los Zing boom Dus wat is het gebruik Wow bam Van het vallen van verliefd ?	-0.34081506729125977
-Je wordt verliefd Zing boom De hemel boven Zing boom Gaat in Wow bam Je bent nog nooit zo gek geweest over een man Je wilt lachen je wilt huilen Je kruist je hart en hoopt te sterven 'Til it 's over and then ... Shhhh Shhhhh Het is leuk en rustig Shhhh Shhhh Maar binnenkort weer Shhh Shhhh begint een andere grote rel Je blaast een zekering Zing boom De duivel snijdt los Zing boom Dus wat is het nut Wow bam Van verliefd worden ? Het is , oh , zo stil Het is , oh , nog steeds Je bent helemaal alleen En zo vredig tot ...	-0.3078836500644684
+Blaas geen lont op.
+Hebben we een zekering opgeblazen?
+Je blaast een zekering op.
+Heb je een zekering opgeblazen?
+Hebben we een zekering opgeblazen?
+- Oké, blaas geen lont!
+Mijn studio blaast een zekering op.
+Heeft iemand daar een zekering opgeblazen?
+Ik hoop dat je een zekering blaast.
+Meneer, iedereen kan een zekering opblazen.
+Pas op dat je geen zekering blaast.
+Ik kom, ik kom, blaas geen zekering.
+Je hebt geen zekering opgeblazen.
+Als ik het fornuis aanzet, blaas ik een zekering op.
+Als je zegt dat je zijn schoonzoon bent, blaas ik een zekering op.
+Ik blaas elke keer een zekering op als ik mijn telefoon laad.
+Nu weet ik wie ik moet bellen als ik een zekering blaas.
+Als ze niets vinden, blaast de baas een zekering op.
+Hij gaat me een lont laten blazen, deze onbeleefde jongen.
+Verdomme, hebben we weer een zekering opgeblazen?
+Wat hebben we gedaan, een zekering opblazen die die oude videorecorder opblaast?
+Je bent een goede danser.
+Met de A/C kortsluiting, kun je een zekering blazen, de stroom volledig verliezen.
+Als het een zekering begon op te blazen, zou het zijn gestopt.
+Nathan Scott blaast een zekering op als hij je hierin ziet.
+Hebben we een zekering opgeblazen, of doet papa een nucleaire rampoefening?
+Hogan blaast zelf een zekering op als hij dit hoort.
+- Ik heb gewoon het vage gevoel om een zekering naar mezelf te blazen.
+Een ding maakt me echt blazen een zekering: Als iemand toetert naar mij, of stappen op mijn tenen.
+Of dat ik misschien een zekering opblaas en een van die cameraploegen alles vertel wat ik gedaan heb?
+- Als ik het je zou vertellen, ik heb het vage gevoel om een zekering naar mezelf te blazen wat zou je zeggen?
+Maar soms hebben we zoveel zintuigen die ons in de war brengen, zo veel manieren om iets te voelen, dat we een zekering blazen.
+Je blaast een zekering op en neemt een robot snooze ik zal je deactiveren want ik haat je ik wil niet om de struik heen
+Dat klopt... want in de're' bedrading zou er een circuitfout zijn geweest... zeer vergelijkbaar met jullie elektrische draden en stekkers die een zekering blazen en vuur vangen.
+In plaats van een enkel, bergachtig probleem, is het vaak de accumulatie van kleine, schijnbaar onbeduidende angsten die paniek veroorzaakt, net zoals de manier waarop te veel individuele elektrische apparaten op hetzelfde circuit een zekering kunnen blazen.
+Informatie over camera's met ID 0x2770:0x9153. We raden het gebruik van een GUI-programma niet aan om toegang te krijgen tot deze camera, tenzij je gewoon plezier hebt of probeert te zien of je een zekering kunt blazen. Probeer voor productie gebruik gphoto2 -P vanaf de commandoregel. Opmerking: het is niet mogelijk om videoclips te downloaden.
+Je belt de bel Bim bam Je schreeuwt en je schreeuwt Hoi ho ho Je brak de spreuk Gee, dit is zwellen je bijna een fit Deze kerel is "gorge" en ik werd geraakt Er is geen fout dit is het 'Til het is voorbij en dan... Het is mooi en rustig Shhhh Shhhh Maar binnenkort weer Shhhh Shhhh begint een andere grote rel Je blaast een zekering Zing boom De duivel snijdt los Zing boom Dus wat is het gebruik Wow bam Van het vallen van verliefd?
+Je wordt verliefd Zing boom De hemel boven Zing boom Gaat in Wow bam Je bent nog nooit zo gek geweest over een man Je wilt lachen je wilt huilen Je kruist je hart en hoopt te sterven 'Til it's over and then... Shhhh Shhhhh Het is leuk en rustig Shhhh Shhhh Maar binnenkort weer Shhh Shhhh begint een andere grote rel Je blaast een zekering Zing boom De duivel snijdt los Zing boom Dus wat is het nut Wow bam Van verliefd worden? Het is, oh, zo stil Het is, oh, nog steeds Je bent helemaal alleen En zo vredig tot...
