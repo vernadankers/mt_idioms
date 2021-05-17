@@ -4,9 +4,8 @@ from collections import defaultdict
 import logging
 import pickle
 sys.path.append('../data/')
-sys.path.append("../probing")
 from data import extract_sentences
-from train_probes import set_seed
+from probing import set_seed
 from debias import get_debiasing_projection
 logging.getLogger().setLevel(logging.INFO)
 
@@ -14,23 +13,21 @@ logging.getLogger().setLevel(logging.INFO)
 if __name__ == "__main__":
     import argparse
     parser = argparse.ArgumentParser()
+    parser.add_argument("--start", type=int, default=0)
+    parser.add_argument("--stop", type=int, default=100)
+    parser.add_argument("--step", type=int, default=1)
     parser.add_argument("--hidden_layers", type=int, nargs='+', default=[])
     parser.add_argument("--attention_layers", type=int, nargs='+', default=[])
-    parser.add_argument("--m", type=int, default=0)
-    parser.add_argument("--n", type=int, default=100)
-    parser.add_argument("--k", type=int, default=1)
     parser.add_argument("--baseline", action="store_true")
-    parser.add_argument("--filename", type=str, default="attention.pickle")
     parser.add_argument("--folds", type=int, nargs="+")
-    parser.add_argument("--num_classifiers", type=int, default=50)
     args = parser.parse_args()
 
     set_seed(1)
     # Load all hidden representations of idioms
     data = dict()
-    for i in range(args.m, args.n, args.k):
+    for i in range(args.start, args.stop, args.step):
         if (i + 1) % 50 == 0:
-            logging.info(f"Sample {i/args.k:.0f} / {(args.n-args.m)/args.k:.0f}")
+            logging.info(f"Sample {i/args.step:.0f} / {(args.stop-args.start)/args.step:.0f}")
         samples = extract_sentences(
             [i], use_tqdm=False, store_hidden_states=args.hidden_layers != [],
             store_attention_query=args.attention_layers != [])
@@ -88,15 +85,15 @@ if __name__ == "__main__":
         for layer in range(7):
             if layer in args.hidden_layers:
                 P, _, _ = get_debiasing_projection(
-                    {"max_iter": 5000, "random_state": 1}, args.num_classifiers, 512,
+                    {"max_iter": 5000, "random_state": 1}, 50, 512,
                     train, dev, layer=layer, attention=False, baseline=args.baseline)
                 pickle.dump(
-                   P, open(f"projection_matrices/hidden_fold={fold}_layer={layer}_baseline={args.baseline}_classifiers={args.num_classifiers}.pickle", 'wb'))
+                   P, open(f"projection_matrices/hidden_fold={fold}_layer={layer}_baseline={args.baseline}.pickle", 'wb'))
 
             if layer in args.attention_layers:
                 P, _, _ = get_debiasing_projection(
-                    {"max_iter": 5000, "random_state": 1}, args.num_classifiers, 512,
+                    {"max_iter": 5000, "random_state": 1}, 50, 512,
                     train, dev, layer=layer - 1,
                     attention=True, baseline=args.baseline)
                 pickle.dump(
-                    P, open(f"projection_matrices/attention_fold={fold}_layer={layer}_baseline={args.baseline}_classifiers={args.num_classifiers}.pickle", 'wb'))
+                    P, open(f"projection_matrices/attention_fold={fold}_layer={layer}_baseline={args.baseline}.pickle", 'wb'))
