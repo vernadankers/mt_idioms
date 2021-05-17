@@ -27,7 +27,7 @@ if __name__ == "__main__":
     tok = MarianTokenizer.from_pretrained(mname)
     model.eval()
 
-    corpus_length = len(open(args["source"]).readlines())
+    corpus_length = len(open(args["source"], encoding="utf-8").readlines())
     logging.info(f"Starting prediction... corpus size: {corpus_length}")
 
     hidden_states = defaultdict(list)
@@ -58,16 +58,16 @@ if __name__ == "__main__":
                     for x in batch:
                         batch[x] = batch[x].cuda()
 
-                attention_mask = torch.zeros(batch["input_ids"].shape)
+                attention_mask = torch.zeros(batch["attention_mask"].shape)
                 for j, src in enumerate(srcs):
                     # Fill the mask with 1s for the sentence + </s> token
-                    for k in range(len(tok_annotations[j]) + 1):
+                    for k in range(batch["attention_mask"].shape[-1]):
                         attention_mask[j, k] = 1
 
                     # Find an index to mask in the context
                     if args["mode"] == "mask_context":
                         indices = [
-                            k for k in range(len(tok_annotations[j]))
+                            k for k in range(batch["attention_mask"].shape[-1])
                             # The index should not be in the idiom
                             if tok_annotations[j][k] == 0
                             # The index should be from a noun
@@ -84,7 +84,7 @@ if __name__ == "__main__":
                     # Find an index to mask in the idiom
                     elif args["mode"] == "mask_idiom":
                         indices = [
-                            k for k in range(len(tok_annotations[j]))
+                            k for k in range(batch["attention_mask"].shape[-1])
                             # The index should be from an idiom
                             if tok_annotations[j][k] == 1
                             # The index should be from a noun
