@@ -58,42 +58,42 @@ if __name__ == "__main__":
 
     percentages, bleus = [], []
     for fold in args.folds:
+        # Separate into folds
         if fold == 0:
             train = fold_3 + fold_4 + fold_5
             dev = fold_2
-            test = fold_1
         elif fold == 1:
             train = fold_1 + fold_4 + fold_5
             dev = fold_3
-            test = fold_2
         elif fold == 2:
             train = fold_1 + fold_2 + fold_5
             dev = fold_4
-            test = fold_3
         elif fold == 3:
             train = fold_1 + fold_2 + fold_3
             dev = fold_5
-            test = fold_4
         elif fold == 4:
             train = fold_2 + fold_3 + fold_4
             dev = fold_1
-            test = fold_5
 
         train = [s for i in train for s in data[i]]
         dev = [s for i in dev for s in data[i]]
 
         for layer in range(7):
+            # Collect projection matrices by training on hidden states
             if layer in args.hidden_layers:
                 P, _, _ = get_debiasing_projection(
                     {"max_iter": 5000, "random_state": 1}, 50, 512,
                     train, dev, layer=layer, attention=False, baseline=args.baseline)
                 pickle.dump(
-                   P, open(f"projection_matrices/hidden_fold={fold}_layer={layer}_baseline={args.baseline}.pickle", 'wb'))
+                    P, open(f"projection_matrices/hidden_fold={fold}_layer=" +
+                            f"{layer}_baseline={args.baseline}.pickle", 'wb'))
 
+            # Collect projection matrices by training on attention query states
             if layer in args.attention_layers:
                 P, _, _ = get_debiasing_projection(
                     {"max_iter": 5000, "random_state": 1}, 50, 512,
                     train, dev, layer=layer - 1,
                     attention=True, baseline=args.baseline)
                 pickle.dump(
-                    P, open(f"projection_matrices/attention_fold={fold}_layer={layer}_baseline={args.baseline}.pickle", 'wb'))
+                    P, open(f"projection_matrices/attention_fold={fold}_layer=" +
+                            f"{layer}_baseline={args.baseline}.pickle", 'wb'))
