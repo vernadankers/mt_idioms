@@ -50,10 +50,9 @@ def main():
 
                 if label == "none" or prd_label == "none":
                     continue
-                # if label == "copied" and prd_label == "paraphrase":
-                #     print(prd, tgt)
-                # tgt = " ".join(nltk.word_tokenize(tgt.lower()))
-                # prd = " ".join(nltk.word_tokenize(prd.lower()))
+
+                tgt = " ".join(nltk.word_tokenize(tgt.lower()))
+                prd = " ".join(nltk.word_tokenize(prd.lower()))
                 prd_par.append(prd)
                 data[(label, prd_label)].append((prd, tgt))
                 counter[(label, prd_label)] += 1
