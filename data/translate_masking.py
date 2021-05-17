@@ -108,7 +108,7 @@ if __name__ == "__main__":
 
                 # Extract attention & hidden states, put batch size first
                 attention_tmp = torch.stack(
-                    outputs["encoder_attentions"], dim=0).transpose(0, 1)
+                    [x[0] for x in outputs["encoder_attentions"]], dim=0).transpose(0, 1)
                 hidden_states_tmp = torch.stack(
                     outputs["encoder_hidden_states"], dim=0).transpose(0, 1)
 
