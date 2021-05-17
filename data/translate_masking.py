@@ -71,7 +71,7 @@ if __name__ == "__main__":
                             # The index should not be in the idiom
                             if tok_annotations[j][k] == 0
                             # The index should be from a noun
-                            and extended_pos_tags[k] in ["NOUN"]
+                            and extended_pos_tags[j][k] in ["NOUN"]
                             # The index should have the idiom in its neighbourhood
                             and 1 in tok_annotations[j][k - 10: k + 10 + 1]
                             # The index should be from a token's first subtoken
