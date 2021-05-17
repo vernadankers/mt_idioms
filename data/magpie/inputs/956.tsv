@@ -1,0 +1,2 @@
+' Ah ; my foot!	0 0 0 1 1	my foot!	literal	dashes	PUNCT INTJ PUNCT ADJ NOUN	▁' ▁A h ▁ ; ▁my ▁foot !	0 0 0 0 0 1 1 1	PUNCT INTJ INTJ PUNCT PUNCT ADJ NOUN NOUN
+' Artistic disagreement ' — my foot!	0 0 0 0 0 1 1	my foot!	figurative	dashes	PUNCT ADJ NOUN PUNCT PUNCT ADJ NOUN	▁' ▁Art istic ▁disagreement ▁' ▁ — ▁my ▁foot !	0 0 0 0 0 0 0 1 1 1	PUNCT ADJ ADJ NOUN PUNCT PUNCT PUNCT ADJ NOUN NOUN

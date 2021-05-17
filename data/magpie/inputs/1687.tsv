@@ -1,0 +1,3 @@
+" What's the damage? "	0 1 0 1 0	what's the damage?	figurative	misc	PUNCT NOUN DET NOUN PUNCT	▁" ▁What ' s ▁the ▁damage ? ▁"	0 1 1 1 0 1 1 0	PUNCT NOUN NOUN NOUN DET NOUN NOUN PUNCT
+' What's the damage? '	0 1 0 1 0	what's the damage?	figurative	misc	PUNCT NOUN DET NOUN PUNCT	▁' ▁What ' s ▁the ▁damage ? ▁'	0 1 1 1 0 1 1 0	PUNCT NOUN NOUN NOUN DET NOUN NOUN PUNCT
+' And what's the damage, Brunt? '	0 0 1 0 1 0 0	what's the damage?	figurative	misc	PUNCT CCONJ NOUN DET NOUN PROPN PUNCT	▁' ▁And ▁what ' s ▁the ▁damage , ▁Brun t ? ▁'	0 0 1 1 1 0 1 1 0 0 0 0	PUNCT CCONJ NOUN NOUN NOUN DET NOUN NOUN PROPN PROPN PROPN PUNCT

@@ -4,7 +4,7 @@ import numpy as np
 from tqdm import tqdm
 from torch import FloatTensor as FT, LongTensor as LT
 from classifier import Classifier
-import pickle as pickle
+import pickle5 as pickle
 
 
 classifier = Classifier(

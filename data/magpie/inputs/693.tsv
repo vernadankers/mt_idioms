@@ -1,0 +1,2 @@
+' How's tricks? '	0 1 1 0	how's tricks?	figurative	misc	PUNCT ADV NOUN PUNCT	▁' ▁How ' s ▁trick s ? ▁'	0 1 1 1 1 1 1 0	PUNCT ADV ADV ADV NOUN NOUN NOUN PUNCT
+" How's tricks then, Grandmother? "	0 1 1 0 0 0	how's tricks?	figurative	misc	PUNCT ADV NOUN ADV PROPN PUNCT	▁" ▁How ' s ▁trick s ▁then , ▁Grand m other ? ▁"	0 1 1 1 1 1 0 0 0 0 0 0 0	PUNCT ADV ADV ADV NOUN NOUN ADV ADV PROPN PROPN PROPN PROPN PUNCT

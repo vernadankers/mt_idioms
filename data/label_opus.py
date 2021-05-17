@@ -80,7 +80,7 @@ def main():
         for label2 in ["paraphrase", "word-by-word", "copied"]:
             print(label1, label2)
             prds, tgts = zip(*data[(label1, label2)])
-            bleu = sacrebleu.corpus_bleu(prds, [tgts])
+            bleu = sacrebleu.corpus_bleu(prds, [tgts], force=True)
             print(f"{label1} - {label2} - BLEU score: {bleu.score:.1f}")
 
 
