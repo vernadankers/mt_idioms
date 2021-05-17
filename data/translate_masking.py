@@ -49,7 +49,11 @@ if __name__ == "__main__":
                 tok_annotations = [[int(n) for n in l.split()] for l in tok_annotations]
 
                 # Preprocess input data
-                batch = tok.prepare_seq2seq_batch(src_texts=srcs, return_tensors="pt")
+                batch = tok.prepare_seq2seq_batch(
+                    src_texts=srcs,
+                    #dummy text, we are only interested in the encoder's outputs
+                    tgt_texts=["target" for _ in srcs],
+                    return_tensors="pt, decoder_input_ids")
                 if torch.cuda.is_available():
                     for x in batch:
                         batch[x] = batch[x].cuda()
