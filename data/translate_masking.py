@@ -67,7 +67,7 @@ if __name__ == "__main__":
                     # Find an index to mask in the context
                     if args["mode"] == "mask_context":
                         indices = [
-                            k for k in range(batch["attention_mask"].shape[-1])
+                            k for k in range(batch["attention_mask"].shape[-1] - 1)
                             # The index should not be in the idiom
                             if tok_annotations[j][k] == 0
                             # The index should be from a noun
@@ -84,7 +84,7 @@ if __name__ == "__main__":
                     # Find an index to mask in the idiom
                     elif args["mode"] == "mask_idiom":
                         indices = [
-                            k for k in range(batch["attention_mask"].shape[-1])
+                            k for k in range(batch["attention_mask"].shape[-1] - 1)
                             # The index should be from an idiom
                             if tok_annotations[j][k] == 1
                             # The index should be from a noun
