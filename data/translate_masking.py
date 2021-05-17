@@ -53,7 +53,7 @@ if __name__ == "__main__":
                     src_texts=srcs,
                     #dummy text, we are only interested in the encoder's outputs
                     tgt_texts=["target" for _ in srcs],
-                    return_tensors="pt, decoder_input_ids")
+                    return_tensors="pt")
                 if torch.cuda.is_available():
                     for x in batch:
                         batch[x] = batch[x].cuda()
