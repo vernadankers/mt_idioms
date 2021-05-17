@@ -52,10 +52,10 @@ def main():
                     continue
                 # if label == "copied" and prd_label == "paraphrase":
                 #     print(prd, tgt)
-                tgt = " ".join(nltk.word_tokenize(tgt.lower()))
-                prd = " ".join(nltk.word_tokenize(prd.lower()))
-                prd_par.append(prd.lower())
-                data[(label, prd_label)].append((prd.lower(), tgt.lower()))
+                # tgt = " ".join(nltk.word_tokenize(tgt.lower()))
+                # prd = " ".join(nltk.word_tokenize(prd.lower()))
+                prd_par.append(prd)
+                data[(label, prd_label)].append((prd, tgt))
                 counter[(label, prd_label)] += 1
                 counter[label] += 1
 
