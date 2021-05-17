@@ -22,9 +22,21 @@ mkdir magpie/tokenised_prds
 # that can be used to illustrate our findings
 for i in {0..1726..25}
 do
-   python translate_magpie.py --source magpie/inputs/${i}.tsv --pred ${i}_pred.txt --folder magpie
-   wait
+	# Files will be stored in magpie/prds/... magpie/hidden_states_enc/... etc.
+	python translate_magpie.py --source magpie/inputs/${i}.tsv --pred ${i}_pred.txt --folder magpie
+	wait
 done
 
 python label_magpie.py
 wait
+
+for i in {0..1726..25}
+do
+	# Files will be stored in magpie/masked_regular/..., etc.
+	python translate_masking.py --source magpie/inputs/${i}.tsv --pred ${i}_pred.txt --folder magpie --mode mask_regular --folder magpie
+	wait
+	python translate_masking.py --source magpie/inputs/${i}.tsv --pred ${i}_pred.txt --folder magpie --mode mask_context --folder magpie
+	wait
+	python translate_masking.py --source magpie/inputs/${i}.tsv --pred ${i}_pred.txt --folder magpie --mode mask_idiom --folder magpie
+	wait
+done
