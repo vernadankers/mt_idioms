@@ -41,7 +41,7 @@ if __name__ == "__main__":
             for focus_layer in range(6):
                 if not lines[i:i + batch_size]:
                     continue
-                srcs, _, _, _, _, _, tok_src, extended_pos_tags, tok_annotations = \
+                srcs, _, _, _, _, _, tok_src, tok_annotations, extended_pos_tags = \
                     zip(*[x.split("\t") for x in lines[i:i + batch_size]])
                 logging.info(f"Doing {i:4d}/{corpus_length:4d}")
                 tok_src = [l.split() for l in tok_src]
