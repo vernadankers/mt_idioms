@@ -49,7 +49,7 @@ def generate(model, tokenizer, sentence, projection=False, attention_projection_
                 hidden_projection_matrices[i] = matrix.cuda()
 
     decoder_outputs = model.generate(
-        **batch, beam_size=5, return_dict_in_generate=True,
+        **batch, num_beams=5, max_length=512, return_dict_in_generate=True,
         attention_projection_indices=attention_projection_indices,
         attention_projection_matrix=attention_projection_matrices,
         hidden_projection_matrix=hidden_projection_matrices,
@@ -149,7 +149,6 @@ def main(data, attention_projection_matrices, hidden_projection_matrices,
         idiom_scores[idiom] = 1 - (idiom_equal_labels.count('paraphrase') / len(idiom_equal_labels))
         logging.info(f"Idiom {j}/{maxi}, BLEU={score:.3f}, %={idiom_scores[idiom]:.3f}"    )
 
-    print(idiom_scores)
     bleu_score = sacrebleu.corpus_bleu(all_with, [all_without]).score
     return bleu_score, idiom_scores, attention
 
@@ -164,11 +163,12 @@ if __name__ == "__main__":
     parser.add_argument("--start", type=int, default=0)
     parser.add_argument("--stop", type=int, default=100)
     parser.add_argument("--step", type=int, default=1)
-    parser.add_argument("--baseline", type=bool, default=False)
+    parser.add_argument("--baseline", action="store_true")
     parser.add_argument("--filename", type=str, default="attention.pickle")
     parser.add_argument("--folds", type=int, nargs="+")
     parser.add_argument("--gather_attention", action="store_true")
     args = parser.parse_args()
+    logging.info(vars(args))
 
     set_seed(1)
     # Load all hidden representations of idioms
@@ -245,3 +245,4 @@ if __name__ == "__main__":
 
     percentage = np.mean(list(all_idioms.values()))
     logging.info(f"BLEU = {np.mean(bleus):.3f}, % idioms = {percentage}")
+    print(all_idioms)
