@@ -15,22 +15,18 @@
 
 """
 The core code for applying Canonical Correlation Analysis to deep networks.
-
 This module contains the core functions to apply canonical correlation analysis
 to deep neural networks. The main function is get_cca_similarity, which takes in
 two sets of activations, typically the neurons in two layers and their outputs
 on all of the datapoints D = [d_1,...,d_m] that have been passed through.
-
 Inputs have shape (num_neurons1, m), (num_neurons2, m). This can be directly
 applied used on fully connected networks. For convolutional layers, the 3d block
 of neurons can either be flattened entirely, along channels, or alternatively,
 the dft_ccas (Discrete Fourier Transform) module can be used.
-
 See:
 https://arxiv.org/abs/1706.05806
 https://arxiv.org/abs/1806.05759
 for full details.
-
 """
 
 from __future__ import absolute_import
@@ -42,11 +38,9 @@ num_cca_trials = 5
 
 def positivedef_matrix_sqrt(array):
   """Stable method for computing matrix square roots, supports complex matrices.
-
   Args:
             array: A numpy 2d array, can be complex valued that is a positive
                    definite symmetric (or hermitian) matrix
-
   Returns:
             sqrtarray: The matrix square root of array
   """
@@ -59,7 +53,6 @@ def positivedef_matrix_sqrt(array):
 
 def remove_small(sigma_xx, sigma_xy, sigma_yx, sigma_yy, epsilon):
   """Takes covariance between X, Y, and removes values of small magnitude.
-
   Args:
             sigma_xx: 2d numpy array, variance matrix for x
             sigma_xy: 2d numpy array, crossvariance matrix for x,y
@@ -68,7 +61,6 @@ def remove_small(sigma_xx, sigma_xy, sigma_yx, sigma_yy, epsilon):
             sigma_yy: 2d numpy array, variance matrix for y
             epsilon : cutoff value for norm below which directions are thrown
                        away
-
   Returns:
             sigma_xx_crop: 2d array with low x norm directions removed
             sigma_xy_crop: 2d array with low x and y norm directions removed
@@ -95,12 +87,10 @@ def remove_small(sigma_xx, sigma_xy, sigma_yx, sigma_yy, epsilon):
 def compute_ccas(sigma_xx, sigma_xy, sigma_yx, sigma_yy, epsilon,
                  verbose=True):
   """Main cca computation function, takes in variances and crossvariances.
-
   This function takes in the covariances and cross covariances of X, Y,
   preprocesses them (removing small magnitudes) and outputs the raw results of
   the cca computation, including cca directions in a rotated space, and the
   cca correlation coefficient values.
-
   Args:
             sigma_xx: 2d numpy array, (num_neurons_x, num_neurons_x)
                       variance matrix for x
@@ -112,7 +102,6 @@ def compute_ccas(sigma_xx, sigma_xy, sigma_yx, sigma_yy, epsilon,
                       variance matrix for y
             epsilon:  small float to help with stabilizing computations
             verbose:  boolean on whether to print intermediate outputs
-
   Returns:
             [ux, sx, vx]: [numpy 2d array, numpy 1d array, numpy 2d array]
                           ux and vx are (conj) transposes of each other, being
@@ -157,7 +146,7 @@ def compute_ccas(sigma_xx, sigma_xy, sigma_yx, sigma_yy, epsilon,
 
   if verbose:
     print("trying to take final svd")
-  u, s, v = np.linalg.svd(arr, full_matrices=False)
+  u, s, v = np.linalg.svd(arr)
 
   if verbose:
     print("computed everything!")
@@ -167,15 +156,12 @@ def compute_ccas(sigma_xx, sigma_xy, sigma_yx, sigma_yy, epsilon,
 
 def sum_threshold(array, threshold):
   """Computes threshold index of decreasing nonnegative array by summing.
-
   This function takes in a decreasing array nonnegative floats, and a
   threshold between 0 and 1. It returns the index i at which the sum of the
   array up to i is threshold*total mass of the array.
-
   Args:
             array: a 1d numpy array of decreasing, nonnegative floats
             threshold: a number between 0 and 1
-
   Returns:
             i: index at which np.sum(array[:i]) >= threshold
   """
@@ -188,14 +174,11 @@ def sum_threshold(array, threshold):
 
 def create_zero_dict(compute_dirns, dimension):
   """Outputs a zero dict when neuron activation norms too small.
-
   This function creates a return_dict with appropriately shaped zero entries
   when all neuron activations are very small.
-
   Args:
             compute_dirns: boolean, whether to have zero vectors for directions
             dimension: int, defines shape of directions
-
   Returns:
             return_dict: a dict of appropriately shaped zero entries
   """
@@ -217,13 +200,11 @@ def create_zero_dict(compute_dirns, dimension):
 def get_cca_similarity(acts1, acts2, epsilon=0., threshold=0.98,
                        compute_coefs=True,
                        compute_dirns=False,
-                       verbose=False):
+                       verbose=True):
   """The main function for computing cca similarities.
-
   This function computes the cca similarity between two sets of activations,
   returning a dict with the cca coefficients, a few statistics of the cca
   coefficients, and (optionally) the actual directions.
-
   Args:
             acts1: (num_neurons1, data_points) a 2d numpy array of neurons by
                    datapoints where entry (i,j) is the output of neuron i on
@@ -232,25 +213,18 @@ def get_cca_similarity(acts1, acts2, epsilon=0., threshold=0.98,
                    for a different set of neurons. Note that acts1 and acts2
                    can have different numbers of neurons, but must agree on the
                    number of datapoints
-
             epsilon: small float to help stabilize computations
-
             threshold: float between 0, 1 used to get rid of trailing zeros in
                        the cca correlation coefficients to output more accurate
                        summary statistics of correlations.
-
-
             compute_coefs: boolean value determining whether coefficients
                            over neurons are computed. Needed for computing
                            directions
-
             compute_dirns: boolean value determining whether actual cca
                            directions are computed. (For very large neurons and
                            datasets, may be better to compute these on the fly
                            instead of store in memory.)
-
             verbose: Boolean, whether intermediate outputs are printed
-
   Returns:
             return_dict: A dictionary with outputs from the cca computations.
                          Contains neuron coefficients (combinations of neurons
@@ -288,9 +262,9 @@ def get_cca_similarity(acts1, acts2, epsilon=0., threshold=0.98,
   sigmayx /= np.sqrt(xmax * ymax)
 
   ([u, s, v], invsqrt_xx, invsqrt_yy,
-  x_idxs, y_idxs) = compute_ccas(sigmaxx, sigmaxy, sigmayx, sigmayy,
-                                    epsilon=epsilon,
-                                    verbose=verbose)
+   x_idxs, y_idxs) = compute_ccas(sigmaxx, sigmaxy, sigmayx, sigmayy,
+                                  epsilon=epsilon,
+                                  verbose=verbose)
 
   # if x_idxs or y_idxs is all false, return_dict has zero entries
   if (not np.any(x_idxs)) or (not np.any(y_idxs)):
@@ -357,11 +331,9 @@ def get_cca_similarity(acts1, acts2, epsilon=0., threshold=0.98,
 def robust_cca_similarity(acts1, acts2, threshold=0.98, epsilon=1e-6,
                           compute_dirns=True):
   """Calls get_cca_similarity multiple times while adding noise.
-
   This function is very similar to get_cca_similarity, and can be used if
   get_cca_similarity doesn't converge for some pair of inputs. This function
   adds some noise to the activations to help convergence.
-
   Args:
             acts1: (num_neurons1, data_points) a 2d numpy array of neurons by
                    datapoints where entry (i,j) is the output of neuron i on
@@ -370,18 +342,14 @@ def robust_cca_similarity(acts1, acts2, threshold=0.98, epsilon=1e-6,
                    for a different set of neurons. Note that acts1 and acts2
                    can have different numbers of neurons, but must agree on the
                    number of datapoints
-
             threshold: float between 0, 1 used to get rid of trailing zeros in
                        the cca correlation coefficients to output more accurate
                        summary statistics of correlations.
-
             epsilon: small float to help stabilize computations
-
             compute_dirns: boolean value determining whether actual cca
                            directions are computed. (For very large neurons and
                            datasets, may be better to compute these on the fly
                            instead of store in memory.)
-
   Returns:
             return_dict: A dictionary with outputs from the cca computations.
                          Contains neuron coefficients (combinations of neurons
