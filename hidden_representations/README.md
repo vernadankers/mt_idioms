@@ -1,7 +1,8 @@
 ## Analysis of hidden representations
 
 These scripts use the `cca_core.py` from `https://github.com/google/svcca`.
-0. Ensure you have all of the hidden states collected in the data folder, specifically the `influence_regular`, `influence_context` and `influence_idiom` fildes.
+
+0. Ensure you have all of the hidden states collected in the data folder, specifically the `mask_regular`, `mask_context` and `mask_idiom` files.
 1. Run `run_svcca.sh`, that starts 6 scripts:
   - Influence: context -> idiom
   - Influence: idiom -> idiom
