@@ -118,13 +118,18 @@ if __name__ == "__main__":
                         default="../data/magpie/masked_idiom")
     parser.add_argument("--save_file", type=str, default="svcca.pickle")
     args = parser.parse_args()
+    import os
 
     # Load sentences from pickled files with hidden representations
     logging.basicConfig(level="INFO")
     samples, samples_masked = [], []
     for i in tqdm(list(range(args.n, args.m, args.k))):
+        if not os.path.exists(f"{args.masked_folder}/{i}_pred.pickle"):
+            continue
+        if not os.path.exists(f"../data/magpie/mask_regular/{i}_pred.pickle"):
+            continue
         without_mask = extract_sentences(
-            [i], use_tqdm=False, data_folder="../data/magpie/masked_regular",
+            [i], use_tqdm=False, data_folder="../data/magpie/mask_regular",
             influence_setup=True)
         with_mask = extract_sentences(
             [i], use_tqdm=False, data_folder=args.masked_folder,
@@ -136,11 +141,15 @@ if __name__ == "__main__":
     # Load the sentences with verb idioms to measure the CCA results on
     samples_cca, samples_cca_masked = [], []
     for i in tqdm(list(range(args.n, args.m, args.k))):
+        if not os.path.exists(f"../data/magpie/mask_regular/{i}_pred.pickle"):
+            continue
+        if not os.path.exists(f"../data/magpie/mask_context/{i}_pred.pickle"):
+            continue
         without_mask = extract_sentences(
-            [i], use_tqdm=False, data_folder="../data/magpie/masked_regular",
+            [i], use_tqdm=False, data_folder="../data/magpie/mask_regular",
             influence_setup=True, get_verb_idioms=True)
         with_mask = extract_sentences(
-            [i], use_tqdm=False, data_folder="../data/magpie/masked_context",
+            [i], use_tqdm=False, data_folder="../data/magpie/mask_context",
             influence_setup=True, get_verb_idioms=True)
 
         if len(without_mask) == len(without_mask):
