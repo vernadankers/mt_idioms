@@ -88,21 +88,21 @@ def collect_cross_attention():
             if not pie_src or not non_pie_src:
                 continue
 
-            # Find tgt indices that align to the (non-)PIE
-            pie_tgt_indices = align_src2tgt[pie_src[0]]
-            non_pie_tgt = align_src2tgt[non_pie_src[0]]
-
             # Sample 1 to measure 1 - 1 attention
             if len(pie_src) > 1:
                 pie_src = random.sample(pie_src, 1)
             if len(non_pie_src) > 1:
                 non_pie_src = random.sample(non_pie_src, 1)
 
-            if not pie_tgt_indices or not non_pie_tgt:
+            # Find tgt indices that align to the (non-)PIE
+            pie_tgt = align_src2tgt[pie_src[0]]
+            non_pie_tgt = align_src2tgt[non_pie_src[0]]
+
+            if not pie_tgt or not non_pie_tgt:
                 continue
 
             avg_attention["cross-attention, pie"].append(
-                get_attention(sent.cross_attention[layer], pie_tgt_indices, pie_src))
+                get_attention(sent.cross_attention[layer], pie_tgt, pie_src))
             avg_attention["cross-attention, non_pie"].append(
                 get_attention(sent.cross_attention[layer], non_pie_tgt, non_pie_src))
 
