@@ -2,6 +2,11 @@
 
 ### Install
 
+1 - Install libraries using `requirements.txt`.
+
+2 - Download a Spacy model for English using `python -m spacy download en_core_web_sm`.
+
+3 - Custom install of the `transformers` library:
 `transformers==4.3.0`, with `modeling_marian.py` replaced with the adapted version from this repository.
 To clone `transformers` and replace MarianMT with our adapted version, carry out the following instructions:
 ```
