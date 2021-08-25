@@ -16,10 +16,12 @@ if __name__ == "__main__":
     parser.add_argument("--source", type=str, required=True)
     parser.add_argument("--pred", type=str, required=True)
     parser.add_argument("--lang", type=str, default="nl")
+    parser.add_argument("--batch_size", type=int, default=16)
     args = vars(parser.parse_args())
 
     src = 'en'  # source language
     trg = args["lang"]  # target language
+    batch_size = args["batch_size"]
 
     mname = f'Helsinki-NLP/opus-mt-{src}-{trg}'
     model = MarianMTModel.from_pretrained(mname)
@@ -36,17 +38,15 @@ if __name__ == "__main__":
     prds = dict()
     cross_attention = dict()
     encoder_attention = dict()
-    hidden_states = dict()
 
-    with open(TEST_FILE_SRC, 'r', encoding="utf-8") as f_in: #, \
-         #open(PRED_FILE, 'w', encoding="utf-8") as f_out:
+    with open(TEST_FILE_SRC, 'r', encoding="utf-8") as f_in:
         lines = f_in.readlines()
         if lines:
-            for i in range(0, len(lines)+1, 32):
-                if not lines[i:i+32]:
+            for i in range(0, len(lines)+1, batch_size):
+                if not lines[i:i + batch_size]:
                     continue
-                srcs = [x.split("\t")[0] for x in lines[i:i+32]]
-                src_lengths = [x.split("\t")[-1] for x in lines[i:i+32]]
+                srcs = [x.split("\t")[0] for x in lines[i:i + batch_size]]
+                src_lengths = [x.split("\t")[-1] for x in lines[i:i + batch_size]]
                 logging.info(f"Doing {i:4d}/{corpus_length:4d}")
                 batch = tok.prepare_seq2seq_batch(
                     src_texts=srcs, return_tensors="pt")
@@ -67,22 +67,13 @@ if __name__ == "__main__":
                     [x[0] for x in outputs_cross_attention["cross_attentions"]], dim=0).transpose(0, 1)
                 encoder_attention_batch = torch.stack(
                     [x[0] for x in outputs_beam["encoder_attentions"]], dim=0).transpose(0, 1)
-                hidden_states_tmp_batch = torch.stack(
-                    outputs_beam["encoder_hidden_states"], dim=0).transpose(0, 1)
 
                 for j in range(len(srcs)):
-                    src_annotations = []
-                    for w in srcs[j].split():
-                        src_annotations.extend(["_"] * len(tok.tokenize(w)))
-
                     src_len = len(src_lengths[j].split()) + 1
-                    assert src_len == len(src_annotations) + 1, (src_len, len(src_annotations) + 1)
 
                     prd = tok.convert_ids_to_tokens(outputs_beam["sequences"][j])[1:]
                     cross_attention[srcs[j]] = \
-                        cross_attention_batch[j][:, :, :, :src_len].detach().numpy()
-                    hidden_states[srcs[j]] = \
-                        hidden_states_tmp_batch[j][:, :src_len, :].detach().cpu().numpy()
+                        cross_attention_batch[j][:, :, :, :src_len].detach().cpu().numpy()
                     encoder_attention[srcs[j]] = \
                         encoder_attention_batch[j][:, :, :src_len, :src_len].detach().cpu().numpy()
                     prds[srcs[j]] = prd
