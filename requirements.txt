@@ -3,3 +3,4 @@ spacy==3.1.2
 torch==1.9.0
 sentencepiece==0.1.96
 wordfreq==2.5.0
+inflect==5.3.0
