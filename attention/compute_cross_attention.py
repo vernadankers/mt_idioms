@@ -1,20 +1,35 @@
 import sys
+sys.path.append('../data/')
+from data import extract_sentences
+import os
 from collections import defaultdict
 import random
 import argparse
 import logging
 import pickle
 import torch
+from classifier import Classifier
+from transformers import MarianTokenizer
 from torch import LongTensor as LT
-sys.path.append('../data/')
-from data import extract_sentences
 random.seed(1)
 
 
-def main(mode, start, stop, step):
+def main(mode, start, stop, step, language, use_precomputed_alignments=False, folder="data"):
+    src_not_found = []
+
+    if use_precomputed_alignments:
+        precomputed_alignments = pickle.load(
+            open(f"../data/magpie/{language}/alignments.pickle", 'rb'))
+
+    classifier = Classifier(
+        f"../data/keywords/idiom_keywords_translated_{language}.tsv")
+    mname = f"Helsinki-NLP/opus-mt-en-{language}"
+    tokenizer = MarianTokenizer.from_pretrained(mname)
+
     sentences = extract_sentences(
-        range(start, stop, step), use_tqdm=False,
-        data_folder="../data/magpie", store_cross_attention=True)
+        range(start, stop, step), classifier, tokenizer, use_tqdm=False,
+        data_folder=f"../data/magpie/{language}", store_cross_attention=True)
+    print(len(sentences))
 
     # Restrict the data used to...
     # - identical are matches labelled as identical by MAGPIE
@@ -22,14 +37,15 @@ def main(mode, start, stop, step):
     if mode == "identical":
         sentences = [x for x in sentences if x.variant == "identical"]
     elif mode == "intersection":
-        lit_idioms = {x.idiom for x in sentences if x.translation_label ==
-                      "word-by-word" and x.magpie_label == "literal"}
-        fig_idioms = {x.idiom for x in sentences if x.translation_label ==
-                      "paraphrase" and x.magpie_label == "figurative"}
+        lit_idioms = {x.idiom for x in sentences if x.translation_label
+                      == "word-by-word" and x.magpie_label == "literal"}
+        fig_idioms = {x.idiom for x in sentences if x.translation_label
+                      == "paraphrase" and x.magpie_label == "figurative"}
         intersection = lit_idioms.intersection(fig_idioms)
         sentences = [x for x in sentences if x.idiom in intersection]
 
-    logging.info(f"Processing cross-attention - mode {mode} - {len(sentences)} samples.")
+    logging.info(
+        f"Processing cross-attention - mode {mode} - {len(sentences)} samples.")
 
     per_layer = dict()
     for layer in range(6):
@@ -37,16 +53,27 @@ def main(mode, start, stop, step):
         idi2eos = defaultdict(list)
         idi2con = defaultdict(list)
 
-        for sent in sentences:
+        for counter, sent in enumerate(sentences):
+            if counter % 500 == 0:
+                logging.info(f"...layer {layer} - sentence {counter}...")
             # Compute which words align to which
             eos_index = sent.translation.index("</s>")
-            align_src2tgt = defaultdict(list)
-            for i in range(eos_index + 1):
-                if not  u'▁' in sent.translation[i]:
+            if not use_precomputed_alignments:
+                align_src2tgt = defaultdict(list)
+                for i in range(eos_index + 1):
+                    if not u'▁' in sent.translation[i]:
+                        continue
+                    att_last_layer = torch.mean(
+                        sent.cross_attention[-1, :, i, :-1], dim=0)
+                    index = torch.argmax(att_last_layer, dim=-1)
+                    align_src2tgt[index.item()].append(i)
+            else:
+                src = ''.join(sent.tokenised_sentence).replace(' ', '').replace(u'▁', ' ').strip()
+                if src in precomputed_alignments:
+                    align_src2tgt = precomputed_alignments[src]
+                else:
+                    src_not_found.append(src)
                     continue
-                att_last_layer = torch.mean(sent.cross_attention[-1, :, i, :-1], dim=0)
-                index = torch.argmax(att_last_layer, dim=-1)
-                align_src2tgt[index.item()].append(i)
 
             # Get src PIE indices
             src_pie_indices = sent.index_select(1, tags=["NOUN"])
@@ -57,40 +84,58 @@ def main(mode, start, stop, step):
             if len(src_pie_indices) > 1:
                 src_pie_indices = random.sample(src_pie_indices, 1)
             # Now align to the words that the PIE terms translated in
-            tgt_indices = [j for i in src_pie_indices for j in align_src2tgt[i]]
+            tgt_indices = [
+                j for i in src_pie_indices for j in align_src2tgt.get(i, [])]
             tgt_indices = LT(sorted(list(set(tgt_indices))))
 
             # Tgt PIE to src PIE attention
-            att = torch.index_select(sent.cross_attention[layer], dim=-2, index=tgt_indices)
-            att = torch.mean(torch.index_select(att, dim=-1, index=LT(src_pie_indices)))
+            att = torch.index_select(
+                sent.cross_attention[layer], dim=-2, index=tgt_indices)
+            att = torch.mean(torch.index_select(
+                att, dim=-1, index=LT(src_pie_indices)))
             idi2idi[sent.magpie_label].append(att.item())
             idi2idi[sent.translation_label].append(att.item())
-            idi2idi[(sent.magpie_label, sent.translation_label)].append(att.item())
+            idi2idi[(sent.magpie_label, sent.translation_label)
+                    ].append(att.item())
 
             # Tgt PIE to src EOS attention
-            att = torch.index_select(sent.cross_attention[layer], dim=-2, index=tgt_indices)
+            att = torch.index_select(
+                sent.cross_attention[layer], dim=-2, index=tgt_indices)
             att = torch.mean(torch.index_select(
                 att, dim=-1, index=LT([len(sent.tokenised_annotation)])))
             idi2eos[sent.magpie_label].append(att.item())
             idi2eos[sent.translation_label].append(att.item())
-            idi2eos[(sent.magpie_label, sent.translation_label)].append(att.item())
+            idi2eos[(sent.magpie_label, sent.translation_label)
+                    ].append(att.item())
 
             # Tgt PIE to non-PIE in the source attention
-            att = torch.index_select(sent.cross_attention[layer], dim=-2, index=tgt_indices)
-            att = torch.mean(torch.index_select(att, dim=-1, index=LT(src_other_indices)))
+            att = torch.index_select(
+                sent.cross_attention[layer], dim=-2, index=tgt_indices)
+            att = torch.mean(torch.index_select(
+                att, dim=-1, index=LT(src_other_indices)))
             idi2con[sent.magpie_label].append(att.item())
             idi2con[sent.translation_label].append(att.item())
-            idi2con[(sent.magpie_label, sent.translation_label)].append(att.item())
+            idi2con[(sent.magpie_label, sent.translation_label)
+                    ].append(att.item())
 
             per_layer[layer] = {"idi2idi": idi2idi, "idi2eos": idi2eos,
                                 "idi2con": idi2con}
 
+    if not os.path.exists(folder):
+        os.mkdir(folder)
+    if not os.path.exists(f"{folder}/{language}"):
+        os.mkdir(f"{folder}/{language}")
     if mode == "intersection":
-        pickle.dump(per_layer, open("data/cross_attention_subset=intersection.pickle", 'wb'))
+        pickle.dump(per_layer, open(
+            f"{folder}/{language}/cross_attention_subset=intersection.pickle", 'wb'))
     elif mode == "identical":
-        pickle.dump(per_layer, open("data/cross_attention_subset=identical.pickle", 'wb'))
+        pickle.dump(per_layer, open(
+            f"{folder}/{language}/cross_attention_subset=identical.pickle", 'wb'))
     else:
-        pickle.dump(per_layer, open("data/cross_attention.pickle", 'wb'))
+        pickle.dump(per_layer, open(
+            f"{folder}/{language}/cross_attention.pickle", 'wb'))
+
+    print(src_not_found)
 
 
 if __name__ == "__main__":
@@ -98,9 +143,13 @@ if __name__ == "__main__":
     parser.add_argument("--start", type=int, default=0)
     parser.add_argument("--stop", type=int, default=100)
     parser.add_argument("--step", type=int, default=1)
+    parser.add_argument("--language", type=str, default="nl")
+    parser.add_argument("--use_precomputed_alignments", action="store_true")
+    parser.add_argument("--folder", type=str, default="data")
     parser.add_argument(
         "--mode", type=str, choices=["regular", "intersection", "identical"],
         default="regular")
     args = parser.parse_args()
     logging.basicConfig(level=logging.INFO)
-    main(args.mode, args.start, args.stop, args.step)
+    main(args.mode, args.start, args.stop, args.step, args.language,
+         args.use_precomputed_alignments, args.folder)
