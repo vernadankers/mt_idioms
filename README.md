@@ -19,19 +19,16 @@ cd transformers
 pip install -e .
 ```
 
-Other non-standard libraries are `spacy==3.0.1` with the `"en_core_web_sm"` model for POS tagging,
-`sacrebleu`, `dutch_words`, and `wordfreq`.
+Other non-standard libraries are provided in the `requirements.txt` file.
 
 ### Experiments
 For results from the paper's sections, visit the following folders, that have their own README.
-- Section 4: See the `data` folder.
-- Section 5: See the `attention` folder.
-- Section 6.1: See the `probing` folder.
-- Section 6.2 and 6.3: See the `hidden_representations` folder.
-- Section 7: See the `wsd` folder.
-- Appendix A: See the `attention` folder.
-- Appendix B: See the `hidden_representations` folder.
-- Appendix C: See the `wsd` folder.
+- Section 3: See the `data` folder.
+- Section 4: See the `attention` folder.
+- Section 5: See the `hidden representations` folder.
+- Section 6: See the `amnesic_probing` folder.
+- Appendix B: See the `attention` folder.
+- Appendix C: See the `hidden_representations` folder.
 
 This repo uses the [commit message template for humans](https://github.com/Kaleidophon/commit-template-for-humans).
 
