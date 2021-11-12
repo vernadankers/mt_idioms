@@ -6,3 +6,7 @@ data/magpie/da/*
 data/magpie/fr/*
 data/magpie/it/*
 data/magpie/es/*
+attention/data/*
+amnesic_probing/data/*
+amnesic_probing/projection_matrices/*
+hidden_states/data/*
