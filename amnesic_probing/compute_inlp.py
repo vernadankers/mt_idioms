@@ -3,10 +3,14 @@ import random
 from collections import defaultdict
 import logging
 import pickle
+import gc
+import torch
 sys.path.append('../data/')
 from data import extract_sentences
+from classifier import Classifier
+from transformers import MarianTokenizer
 from probing import set_seed
-from debias import get_debiasing_projection
+from debias import get_debiasing_projection, get_projection_to_intersection_of_nullspaces
 logging.getLogger().setLevel(logging.INFO)
 
 
@@ -16,11 +20,15 @@ if __name__ == "__main__":
     parser.add_argument("--start", type=int, default=0)
     parser.add_argument("--stop", type=int, default=100)
     parser.add_argument("--step", type=int, default=1)
-    parser.add_argument("--hidden_layers", type=int, nargs='+', default=[])
-    parser.add_argument("--attention_layers", type=int, nargs='+', default=[])
     parser.add_argument("--baseline", action="store_true")
     parser.add_argument("--folds", type=int, nargs="+")
+    parser.add_argument("--language", type=str, default="nl")
     args = parser.parse_args()
+
+    classifier = Classifier(
+        f"../data/keywords/idiom_keywords_translated_{args.language}.tsv")
+    mname = f"Helsinki-NLP/opus-mt-en-{args.language}"
+    tokenizer = MarianTokenizer.from_pretrained(mname)
 
     set_seed(1)
     # Load all hidden representations of idioms
@@ -29,32 +37,28 @@ if __name__ == "__main__":
         if (i + 1) % 50 == 0:
             logging.info(f"Sample {i/args.step:.0f} / {(args.stop-args.start)/args.step:.0f}")
         samples = extract_sentences(
-            [i], use_tqdm=False, store_hidden_states=args.hidden_layers != [],
-            store_attention_query=args.attention_layers != [])
+            [i], classifier, tokenizer, use_tqdm=False, store_hidden_states=True,
+            data_folder=f"../data/magpie/{args.language}")
         for s in samples:
             if s.translation_label == "paraphrase" and s.magpie_label == "figurative":
                 s.label = 1
-            elif s.translation_label == "word-by-word" and s.magpie_label == "literal":
+            elif s.translation_label == "word-by-word" and s.magpie_label == "figurative":
                 s.label = 0
             else:
                 s.label = None
-
-        samples = [s for s in samples if s.label is not None]
         if samples:
-            data[i] = samples
+            idiom = samples[0].idiom
+            samples = [s for s in samples if s.label is not None]
+            data[idiom] = samples
 
-    indices = list(data.keys())
-    random.shuffle(indices)
-
-    n = int(len(indices)/5)
-    fold_1 = indices[:n]
-    fold_2 = indices[n:n*2]
-    fold_3 = indices[n*2:n*3]
-    fold_4 = indices[n*3:n*4]
-    fold_5 = indices[n*4:]
-
-    assert 0 not in args.attention_layers, \
-        "Cannot intervene om embs with attention queries!"
+    folds = pickle.load(open("../data/folds.pickle", 'rb'))
+    fold_1 = [s for i in folds[0] for s in data[i]]
+    fold_2 = [s for i in folds[1] for s in data[i]]
+    fold_3 = [s for i in folds[2] for s in data[i]]
+    fold_4 = [s for i in folds[3] for s in data[i]]
+    fold_5 = [s for i in folds[4] for s in data[i]]
+    del data
+    gc.collect()
 
     percentages, bleus = [], []
     for fold in args.folds:
@@ -75,25 +79,20 @@ if __name__ == "__main__":
             train = fold_2 + fold_3 + fold_4
             dev = fold_1
 
-        train = [s for i in train for s in data[i]]
-        dev = [s for i in dev for s in data[i]]
+        train1 = [x for x in train if x.label == 1]
+        train0 = [x for x in train if x.label == 0]
+        random.shuffle(train0)
+        train = train0[:len(train1)] + train1
+        random.shuffle(train)
 
         for layer in range(7):
             # Collect projection matrices by training on hidden states
-            if layer in args.hidden_layers:
-                P, _, _ = get_debiasing_projection(
-                    {"max_iter": 5000, "random_state": 1}, 50, 512,
-                    train, dev, layer=layer, attention=False, baseline=args.baseline)
+            _, rowspace_projections, _ = get_debiasing_projection(
+                {"max_iter": 2500, "random_state": 1}, 50, 512,
+                train, dev, layer=layer, attention=False, baseline=args.baseline)
+            for k in range(0, 50, 10):
+                P = torch.FloatTensor(get_projection_to_intersection_of_nullspaces(
+                    rowspace_projections[:k], 512))
                 pickle.dump(
-                    P, open(f"projection_matrices/hidden_fold={fold}_layer=" +
-                            f"{layer}_baseline={args.baseline}.pickle", 'wb'))
-
-            # Collect projection matrices by training on attention query states
-            if layer in args.attention_layers:
-                P, _, _ = get_debiasing_projection(
-                    {"max_iter": 5000, "random_state": 1}, 50, 512,
-                    train, dev, layer=layer - 1,
-                    attention=True, baseline=args.baseline)
-                pickle.dump(
-                    P, open(f"projection_matrices/attention_fold={fold}_layer=" +
-                            f"{layer}_baseline={args.baseline}.pickle", 'wb'))
+                    P, open(f"projection_matrices/{args.language}_hidden_fold={fold}_layer=" +
+                            f"{layer}_baseline={args.baseline}_classifiers={k+10}.pickle", 'wb'))

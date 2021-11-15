@@ -139,6 +139,7 @@ def get_debiasing_projection(
         _, f1_macro = clf.train_network(
             X_train_cp, Y_train,
             X_dev_cp, Y_dev)
+        logging.info(f"layer {layer}, F1 {i} = {f1_macro}")
         f1s.append(f1_macro)
 
         W = clf.get_weights()
@@ -197,6 +198,8 @@ def load_data(samples, layer, attention=False, baseline=False,
             sample.hidden_states[layer] if not attention else sample.attention_query[layer],
             dim=0,
             index=indices)
+
+        assert not 0 in torch.sum(sample_vectors, dim=-1).tolist()
 
         if average_pie:
             sample_vectors = torch.mean(sample_vectors, dim=0).unsqueeze(0)

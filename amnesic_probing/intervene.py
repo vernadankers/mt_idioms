@@ -10,6 +10,7 @@ sys.path.append('../data/')
 from data import extract_sentences
 from probing import set_seed
 from classifier import Classifier
+from collections import defaultdict
 
 logging.getLogger().setLevel(logging.INFO)
 
@@ -65,11 +66,11 @@ def generate(model, tokenizer, sentence, projection=False, attention_projection_
     return "".join(tgt_tokens[1:]).replace("▁", " ").strip(), attention
 
 
-def main(data, attention_projection_matrices, hidden_projection_matrices,
+def main(language, data, attention_projection_matrices, hidden_projection_matrices,
          baseline=False, attention_labels=[1],
          hidden_labels=[1], gather_attention=False):
     """
-    
+
     Args:
         - data
         - attention_projection_matrices
@@ -82,20 +83,23 @@ def main(data, attention_projection_matrices, hidden_projection_matrices,
     Returns:
 
     """
+    # Load the classifier
+    classifier = Classifier(
+        f"../data/keywords/idiom_keywords_translated_{language}.tsv")
+    mname = f"Helsinki-NLP/opus-mt-en-{language}"
+    tokenizer = MarianTokenizer.from_pretrained(mname)
     # Load the model and tokenizer
-    model_version = 'Helsinki-NLP/opus-mt-en-nl'
-    model = MarianMTModel.from_pretrained(model_version)
-    tokenizer = MarianTokenizer.from_pretrained(model_version)
+    model = MarianMTModel.from_pretrained(mname)
     model.eval()
     if torch.cuda.is_available():
         model = model.cuda()
 
-    # Load the classifier
-    classifier = Classifier("../data/idiom_keywords_translated.tsv")
-
     # Prune the data to only consider paraphrases
     all_without, all_with, attention = [], [], []
+    changed_without, changed_with = [], []
     idiom_scores = dict()
+    all_new_labels = []
+    all_src = []
 
     maxi = max(list(data.keys()))
     for j in sorted(list(data.keys())):
@@ -132,25 +136,30 @@ def main(data, attention_projection_matrices, hidden_projection_matrices,
             new_label = classifier(s.idiom, with_projection)
             if old_label == "paraphrase":
                 idiom_equal_labels.append(new_label)
+                all_new_labels.append(new_label)
+                all_src.append(s)
 
                 # Store attention
                 if gather_attention:
                     attention.append((
                         attention_without, attention_with, noun_pie_index,
                         noun_context_index, all_pie_index, all_context_index))
- 
+
                 all_with.append(with_projection)
                 all_without.append(without_projection)
+                if new_label != "paraphrase":
+                    changed_with.append(with_projection)
+                    changed_without.append(without_projection)
         if not idiom_equal_labels:
             continue
 
         # Score this idiom with BLEU and the percentage of change
-        score = sacrebleu.corpus_bleu(all_with, [all_without]).score
         idiom_scores[idiom] = 1 - (idiom_equal_labels.count('paraphrase') / len(idiom_equal_labels))
-        logging.info(f"Idiom {j}/{maxi}, BLEU={score:.3f}, %={idiom_scores[idiom]:.3f}"    )
+        logging.info(f"Idiom {j}/{maxi}, % = {idiom_scores[idiom]:.3f}"    )
 
-    bleu_score = sacrebleu.corpus_bleu(all_with, [all_without]).score
-    return bleu_score, idiom_scores, attention
+    score1 = sacrebleu.corpus_bleu(all_with, [all_without]).score
+    score2 = sacrebleu.corpus_bleu(changed_with, [changed_without]).score
+    return score1, score2, idiom_scores, attention, {"src": all_src, "before": all_without, "after": all_with, "new_labels": all_new_labels}
 
 
 if __name__ == "__main__":
@@ -165,10 +174,17 @@ if __name__ == "__main__":
     parser.add_argument("--step", type=int, default=1)
     parser.add_argument("--baseline", action="store_true")
     parser.add_argument("--filename", type=str, default="attention.pickle")
+    parser.add_argument("--trace_filename", type=str, default="data/trace.pickle")
     parser.add_argument("--folds", type=int, nargs="+")
     parser.add_argument("--gather_attention", action="store_true")
+    parser.add_argument("--language", type=str, default="nl")
     args = parser.parse_args()
     logging.info(vars(args))
+
+    classifier = Classifier(
+        f"../data/keywords/idiom_keywords_translated_{args.language}.tsv")
+    mname = f"Helsinki-NLP/opus-mt-en-{args.language}"
+    tokenizer = MarianTokenizer.from_pretrained(mname)
 
     set_seed(1)
     # Load all hidden representations of idioms
@@ -176,30 +192,29 @@ if __name__ == "__main__":
     for i in range(args.start, args.stop, args.step):
         if (i + 1) % 50 == 0:
             logging.info(f"Sample {i/args.step:.0f} / {(args.stop-args.start)/args.step:.0f}")
-        samples = extract_sentences([i], use_tqdm=False)
+        samples = extract_sentences([i], classifier, tokenizer, use_tqdm=False, data_folder=f"../data/magpie/{args.language}")
         for s in samples:
             if s.translation_label == "paraphrase" and s.magpie_label == "figurative":
                 s.label = 1
             else:
                 s.label = None
-        samples = [s for s in samples if s.label is not None]
         if samples:
-            data[i] = samples
+            idiom = samples[0].idiom
+            samples = [s for s in samples if s.label is not None]
+            data[idiom] = samples
 
-    indices = list(data.keys())
-    random.shuffle(indices)
-
-    n = int(len(indices)/5)
-    fold_1 = indices[:n]
-    fold_2 = indices[n:n*2]
-    fold_3 = indices[n*2:n*3]
-    fold_4 = indices[n*3:n*4]
-    fold_5 = indices[n*4:]
+    folds = pickle.load(open("../data/folds.pickle", 'rb'))
+    fold_1 = folds[0]
+    fold_2 = folds[1]
+    fold_3 = folds[2]
+    fold_4 = folds[3]
+    fold_5 = folds[4]
 
     assert 0 not in args.attention_layers, "Cannot intervene om embs with attention queries!"
 
-    bleus = []
+    bleus1, bleus2 = [], []
     all_idioms = dict()
+    all_traces = defaultdict(list)
     for fold in args.folds:
         attention_projection_matrices = []
         hidden_projection_matrices = []
@@ -218,20 +233,20 @@ if __name__ == "__main__":
         for layer in range(7):
             if layer in args.hidden_layers:
                 P = pickle.load(
-                    open(f"projection_matrices/hidden_fold={fold}_layer" + 
-                         f"={layer}_baseline={args.baseline}.pickle", 'rb'))
+                    open(f"projection_matrices/{args.language}_hidden_fold={fold}_layer" +
+                         f"={layer}_baseline={args.baseline}_classifiers=50.pickle", 'rb'))
             else:
                 P = None
             hidden_projection_matrices.append(P)
             if layer in args.attention_layers:
                 P = pickle.load(
-                    open(f"projection_matrices/attention_fold={fold}_layer" +
-                         f"={layer}_baseline={args.baseline}.pickle", 'rb'))
+                    open(f"projection_matrices/{args.language}_attention_fold={fold}_layer" +
+                         f"={layer}_baseline={args.baseline}_classifiers=50.pickle", 'rb'))
             else:
                 P = None
             attention_projection_matrices.append(P)
 
-        bleu, idiom_scores, attention = main(
+        bleu1, bleu2, idiom_scores, attention, trace = main(args.language,
             {i: data[i] for i in test}, attention_projection_matrices,
             hidden_projection_matrices, args.baseline, args.attention_labels,
             args.hidden_labels, args.gather_attention)
@@ -239,10 +254,15 @@ if __name__ == "__main__":
         for x in idiom_scores:
             all_idioms[x] = idiom_scores[x]
 
-        bleus.append(bleu)
+        bleus1.append(bleu1)
+        bleus2.append(bleu2)
+        for x in trace:
+            all_traces[x] = all_traces[x] + trace[x]
         if args.gather_attention:
             pickle.dump(attention, open(args.filename, 'wb'))
 
-    percentage = np.mean(list(all_idioms.values()))
-    logging.info(f"BLEU = {np.mean(bleus):.3f}, % idioms = {percentage}")
-    print(all_idioms)
+        pickle.dump((all_traces, all_idioms), open(args.trace_filename, 'wb'))
+        percentage = np.mean(list(all_idioms.values()))
+        percentage2 = 1 - (all_traces["new_labels"].count('paraphrase') / len(all_traces["new_labels"]))
+        logging.info(f"BLEU1 = {np.mean(bleus1):.3f}, BLEU2 = {np.mean(bleus2):.3f}, % idioms = {percentage}, % idioms = {percentage2}")
+        print(all_idioms)
