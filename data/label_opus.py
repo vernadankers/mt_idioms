@@ -8,11 +8,11 @@ import tqdm
 
 
 def main():
-    idioms = open("idiom_keywords_translated.tsv", encoding="utf-8").readlines()
+    idioms = open("idiom_keywords.tsv", encoding="utf-8").readlines()
     idioms = [x.split("\t")[0].strip() for x in idioms]
 
 
-    classifier = Classifier("idiom_keywords_translated.tsv")
+    classifier = Classifier("keywords/idiom_keywords_translated_nl.tsv")
     counter = Counter()
     data = defaultdict(list)
 
@@ -37,7 +37,7 @@ def main():
                 continue
 
             for src, tgt, prd in zip(f_src, f_tgt, f_prd):
-                if not src or not tgt:
+                if not src or not tgt.strip() or not prd.strip():
                     continue
                 prd = prd.split("\t")[0].strip()
                 idiom = idioms[i]
@@ -62,22 +62,15 @@ def main():
     denominator = (counter['paraphrase'] + counter['word-by-word'] + counter['copied'])
     print(f"% of paraphrases {counter['paraphrase'] / denominator:.3f}")
     print(f"% of word for word {counter['word-by-word'] / denominator:.3f}")
-    print(f"% of copied instances {counter['copied'] / denominator:.3f}")
 
     print(f"Paraphrase: % of paraphrased {counter[('paraphrase', 'paraphrase')] / counter['paraphrase']:.3f}")
     print(f"Paraphrase: % of word for word {counter[('paraphrase', 'word-by-word')] / counter['paraphrase']:.3f}")
-    print(f"Paraphrase: % of copies {counter[('paraphrase', 'copied')] / counter['paraphrase']:.3f}")
 
     print(f"Word for word: % of paraphrases {counter[('word-by-word', 'paraphrase')] / counter['word-by-word']:.3f}")
     print(f"Word for word: % of word for word {counter[('word-by-word', 'word-by-word')] / counter['word-by-word']:.3f}")
-    print(f"Word for word: % of copies {counter[('word-by-word', 'copied')] / counter['word-by-word']:.3f}")
 
-    print(f"Copy: % of paraphrases {counter[('copied', 'paraphrase')] / counter['copied']:.3f}")
-    print(f"Copy: % of word for word {counter[('copied', 'word-by-word')] / counter['copied']:.3f}")
-    print(f"Copy: % of copies {counter[('copied', 'copied')] / counter['copied']:.3f}")
-
-    for label1 in ["paraphrase", "word-by-word", "copied"]:
-        for label2 in ["paraphrase", "word-by-word", "copied"]:
+    for label1 in ["paraphrase", "word-by-word"]:
+        for label2 in ["paraphrase", "word-by-word"]:
             print(label1, label2)
             prds, tgts = zip(*data[(label1, label2)])
             bleu = sacrebleu.corpus_bleu(prds, [tgts], force=True)
