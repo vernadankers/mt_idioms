@@ -1,22 +1,18 @@
 import os
+import pickle
 from collections import defaultdict
 import numpy as np
 from tqdm import tqdm
 from torch import FloatTensor as FT, LongTensor as LT
-from classifier import Classifier
-import pickle5 as pickle
-
-
-classifier = Classifier(
-    "../data/idiom_keywords_translated.tsv")
-
+import torch
+import logging
 
 class Sentence():
     def __init__(self, sentence, tokenised_sentence, hidden_states_enc, attention,
                  attention_query, cross_attention, translation_label,
                  magpie_label, variant, idiom,
                  annotation, tokenised_annotation, pos_tags,
-                 non_tokenised_pos_tags, prd=None):
+                 non_tokenised_pos_tags, prd=None, stacked_by_layer=False):
         self.sentence = sentence
         self.translation = prd
         self.tokenised_sentence = tokenised_sentence
@@ -24,10 +20,19 @@ class Sentence():
         src_len = len(self.tokenised_annotation) + 1
 
         if hidden_states_enc is not None:
-            self.hidden_states = FT(hidden_states_enc)
+            if stacked_by_layer:
+                zero_vector = torch.zeros((512))
+                self.hidden_states = torch.stack([
+                    torch.stack([FT(x) if x is not None else zero_vector for x in l]) for l in hidden_states_enc])
+            else:
+                zero_vector = torch.zeros((7, 512))
+                self.hidden_states = torch.stack([
+                    FT(x) if x is not None else zero_vector for x in hidden_states_enc]).transpose(0, 1)
 
         if attention_query is not None:
-            self.attention_query = FT(attention_query)
+            zero_vector = torch.zeros((6, 512))
+            self.attention_query = torch.stack([
+                FT(x) if x is not None else zero_vector for x in attention_query]).transpose(0, 1)
 
         if attention is not None:
             # Identify which indices were masked in the attention,
@@ -40,7 +45,8 @@ class Sentence():
             self.attention = FT(attention)[:, :, :src_len, :src_len]
 
         if cross_attention is not None:
-            self.cross_attention = FT(cross_attention)[:, :, :len(self.translation), :src_len]
+            self.cross_attention = FT(cross_attention)[
+                                      :, :, :len(self.translation), :src_len]
 
         self.translation_label = translation_label
         self.magpie_label = magpie_label
@@ -60,7 +66,8 @@ class Sentence():
 
         # Collect neighbours of idiom, unless context_context
         # in that case take the neighbours from the masked indices
-        ann = self.tokenised_annotation if not context_context else self.masked_indices[layer]
+        ann = self.tokenised_annotation if not context_context else self.masked_indices[
+            layer]
 
         # Now collect the neighbours
         for i, l in enumerate(ann):
@@ -85,23 +92,32 @@ class Sentence():
 
 
 def extract_sentences(indices,
+                      classifier,
+                      tokenizer,
                       use_tqdm=False,
-                      data_folder="../data/magpie", 
+                      data_folder="../data/magpie_fr",
                       store_hidden_states=False,
                       store_attention=False,
                       store_cross_attention=False,
                       store_attention_query=False,
                       influence_setup=False,
-                      get_verb_idioms=False):
+                      get_verb_idioms=False,
+                      data_folder2=None,
+                      stacked_by_layer=False):
     sentences = []
 
     for i in tqdm(indices, disable=not use_tqdm):
+        if not os.path.exists(f"{data_folder}/prds/{i}_pred.txt") or \
+           len(open(f"{data_folder}/prds/{i}_pred.txt").readlines()) == 0:
+            continue
         per_idiom = []
 
         # Only open the pickled data needed, to avoid exploding memory usage
         if store_hidden_states:
-            hidden_states_enc = pickle.load(open(
-                f"{data_folder}/hidden_states_enc/{i}_pred_hidden_states_enc.pickle", 'rb'))
+            filename = f"{data_folder}/hidden_states_enc/{i}_pred_hidden_states_enc.pickle"
+            if not os.path.exists(filename):
+                continue
+            hidden_states_enc = pickle.load(open(filename, 'rb'))
 
         if store_attention_query:
             attention_queries = pickle.load(open(
@@ -118,7 +134,7 @@ def extract_sentences(indices,
                 f"{data_folder}/cross_attention/{i}_pred_cross_attention.pickle", 'rb'))
 
         if influence_setup:
-            data = pickle.load(open(f"{data_folder}/{i}_pred.pickle", 'rb'))
+            data = pickle.load(open(f"{data_folder2}/{i}_pred.pickle", 'rb'))
             hidden_states_enc = data["hidden_states"]
             attention = data["attention"]
             store_hidden_states = True
@@ -127,9 +143,22 @@ def extract_sentences(indices,
         # Open all precomputed data info, such as tokenised annotations
         srcs = []
         data_info = defaultdict(lambda: dict)
-        for x in open(f"../data/magpie/inputs/{i}.tsv", encoding="utf-8"):
+        inputs = open(
+            f"../data/magpie/inputs/{i}.tsv", encoding="utf-8").readlines()
+        prds = open(
+            f"{data_folder}/prds/{i}_pred.txt", encoding="utf-8").readlines()
+        for x, _ in zip(inputs, prds):
             sentence, annotation, idiom, label, variant, tags, \
-                tok_sent, tok_annotation, tok_tags = x.split("\t")
+                _, _, _ = x.split("\t")
+
+            tok_sent, tok_annotation, tok_tags = [], [], []
+            for w, l, t in zip(sentence.split(), annotation.split(), tags.split()):
+                tok_sent.extend(tokenizer.tokenize(w))
+                tok_annotation.extend([l] * len(tokenizer.tokenize(w)))
+                tok_tags.extend([t] * len(tokenizer.tokenize(w)))
+
+            src_len = len(tok_annotation) + 1
+
             srcs.append(sentence)
             data_info[sentence] = {
                 "annotation": annotation,
@@ -138,7 +167,7 @@ def extract_sentences(indices,
                 "variant": variant,
                 "tags": tags.strip().split(),
                 "tok_sent": tok_sent,
-                "tok_annotation": [int(l) for l in tok_annotation.split()],
+                "tok_annotation": [int(l) for l in tok_annotation],
                 "tok_tags": tok_tags
             }
 
@@ -149,8 +178,8 @@ def extract_sentences(indices,
             continue
 
         # Collect the detokenised predicted translations by the model
-        prds = open(f"../data/magpie/prds/{i}_pred.txt", encoding="utf-8").readlines()
-        to_prds = {x.strip() : y.strip() for x, y in zip(srcs, prds)}
+
+        to_prds = {x.strip(): y.strip() for x, y in zip(srcs, prds)}
 
         for sent in data_info:
             # We only generated translations up to length 512, so remove long items
@@ -168,7 +197,7 @@ def extract_sentences(indices,
             # Create a Sentence object containing all info asked for
             per_idiom.append(Sentence(
                 sentence=sent,
-                tokenised_sentence=data_info[sent]["tok_sent"],
+                tokenised_sentence=' '.join(data_info[sent]["tok_sent"]),
                 hidden_states_enc=None if not store_hidden_states else hidden_states_enc[sent],
                 attention=None if not store_attention else attention[sent],
                 attention_query=None if not store_attention_query else attention_queries[sent],
@@ -177,10 +206,13 @@ def extract_sentences(indices,
                 magpie_label=data_info[sent]["label"],
                 variant=data_info[sent]["variant"],
                 idiom=idiom,
-                annotation=[int(l) for l in data_info[sent]["annotation"].split()],
+                annotation=[int(l)
+                            for l in data_info[sent]["annotation"].split()],
                 tokenised_annotation=data_info[sent]["tok_annotation"],
-                pos_tags=data_info[sent]["tok_tags"].strip().split(),
+                pos_tags=data_info[sent]["tok_tags"],
                 non_tokenised_pos_tags=data_info[sent]["tags"],
-                prd=to_prds[sent] if not store_cross_attention else tokenised_prds[sent]))
+                prd=to_prds[sent] if not store_cross_attention else tokenised_prds[sent],
+                stacked_by_layer=stacked_by_layer
+                ))
         sentences.extend(per_idiom)
     return sentences
