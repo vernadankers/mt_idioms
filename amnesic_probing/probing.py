@@ -1,5 +1,6 @@
 import sys
 sys.path.append('../data/')
+from classifier import Classifier
 import random
 import torch
 import pickle
@@ -7,9 +8,11 @@ from data import extract_sentences
 import numpy as np
 from collections import defaultdict
 import logging
+import os
 logging.getLogger().setLevel(logging.INFO)
 import torch
 from sklearn.metrics import f1_score
+from transformers import MarianTokenizer
 from debias import get_debiasing_projection, SKlearnClassifier, load_data
 from sklearn.linear_model import LogisticRegression
 
@@ -41,17 +44,27 @@ if __name__ == "__main__":
     parser.add_argument("--target", type=str, choices=["both", "magpie"])
     parser.add_argument("--average_pie", action="store_true")
     parser.add_argument("--split_by_idiom", action="store_true")
+    parser.add_argument("--language", type=str, default="nl")
     args = parser.parse_args()
     print(vars(args))
 
     set_seed(333)
     # Load all hidden representations of idioms
-    data = dict()
+    data = defaultdict(list)
+
+    # Step 1: load the data
+    classifier = Classifier(
+        f"../data/keywords/idiom_keywords_translated_{args.language}.tsv")
+    mname = f"Helsinki-NLP/opus-mt-en-{args.language}"
+    tokenizer = MarianTokenizer.from_pretrained(mname)
+
     for i in range(args.start, args.stop, args.step):
         if (i + 1) % 50 == 0:
             logging.info(f"Loading idiom {i/args.step:.0f} / {(args.stop-args.start)/args.step:.0f}")
         samples = extract_sentences(
-            [i], use_tqdm=False, store_hidden_states=args.setup == "hidden",
+            [i], classifier, tokenizer,
+            data_folder=f"../data/magpie/{args.language}",
+            use_tqdm=False, store_hidden_states=args.setup == "hidden",
             store_attention_query=args.setup == "attention")
         for s in samples:
             if args.target == "both":
@@ -68,21 +81,21 @@ if __name__ == "__main__":
                     s.label = 0
                 else:
                     s.label = None
-
-        samples = [s for s in samples if s.label is not None]
         if samples:
-            data[i] = samples
+            idiom = samples[0].idiom
+            samples = [s for s in samples if s.label is not None]
+            data[idiom] = samples
 
     indices = list(data.keys())
     random.shuffle(indices)
+    folds = pickle.load(open("../data/folds.pickle", 'rb'))
 
     if args.split_by_idiom:
-        n = int(len(indices)/5)
-        fold_1 = [s for i in indices[:n] for s in data[i]]
-        fold_2 = [s for i in indices[n:n*2] for s in data[i]]
-        fold_3 = [s for i in indices[n*2:n*3] for s in data[i]]
-        fold_4 = [s for i in indices[n*3:n*4] for s in data[i]]
-        fold_5 = [s for i in indices[n*4:] for s in data[i]]
+        fold_1 = [s for i in folds[0] for s in data[i]]
+        fold_2 = [s for i in folds[1] for s in data[i]]
+        fold_3 = [s for i in folds[2] for s in data[i]]
+        fold_4 = [s for i in folds[3] for s in data[i]]
+        fold_5 = [s for i in folds[4] for s in data[i]]
 
     else:
         samples = [s for i in indices for s in data[i]]
@@ -139,7 +152,7 @@ if __name__ == "__main__":
             f1s_test.append(f1_test)
             baseline_f1s.append(f1_baseline)
 
-
+            logging.info(f"Training set size: {len(train_sentences)}, Test set size: {len(test_sentences)}")
         logging.info(f"{layer}, {np.mean(f1s_train):.3f} {np.std(f1s_train):.3f}, " +
                      f"{np.mean(f1s_test):.3f}+/-{np.std(f1s_test):.3f}, " +
                      f"{np.mean(baseline_f1s):.3f}")
@@ -147,6 +160,8 @@ if __name__ == "__main__":
     for x in scores_dict:
         scores_dict[x] = dict(scores_dict[x])
     scores_dict = dict(scores_dict)
+    if not os.path.exists(f"data/{args.language}"):
+        os.mkdir(f"data/{args.language}")
     pickle.dump(
         scores_dict,
-        open(f"data/f1s_setup={args.setup}_target={args.target}_average={args.average_pie}.pickle", 'wb'))
+        open(f"data/{args.language}/f1s_setup={args.setup}_target={args.target}_average={args.average_pie}.pickle", 'wb'))
