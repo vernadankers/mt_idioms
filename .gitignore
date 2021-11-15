@@ -10,3 +10,4 @@ attention/data/*
 amnesic_probing/data/*
 amnesic_probing/projection_matrices/*
 hidden_states/data/*
+data/annotation_study/*
