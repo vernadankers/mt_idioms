@@ -27,9 +27,5 @@ For results from the paper's sections, visit the following folders, that have th
 - Section 4: See the `attention` folder.
 - Section 5: See the `hidden representations` folder.
 - Section 6: See the `amnesic_probing` folder.
-- Appendix B: See the `attention` folder.
-- Appendix C: See the `hidden_representations` folder.
-
-This repo uses the [commit message template for humans](https://github.com/Kaleidophon/commit-template-for-humans).
 
 <image src="attention_flow.png" />
