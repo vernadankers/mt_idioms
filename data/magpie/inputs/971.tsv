@@ -1,6 +1,0 @@
-' No can do.	0 1 1 1	no can do	figurative	case	PUNCT INTJ VERB VERB	▁' ▁No ▁can ▁do .	0 1 1 1 1	PUNCT INTJ VERB VERB VERB
-No ca nt do	1 1 0 1	no can do	figurative	combined-other	INTJ VERB ADV VERB	▁No ▁ca ▁ nt ▁do	1 1 0 0 1	INTJ VERB ADV ADV VERB
-No can do :	1 1 1 0	no can do	figurative	case	INTJ VERB VERB PUNCT	▁No ▁can ▁do ▁ :	1 1 1 0 0	INTJ VERB VERB PUNCT PUNCT
-‘ Just no can do.’	0 0 1 1 1	no can do	figurative	dashes	PUNCT ADV ADV VERB VERB	▁ ‘ ▁Just ▁no ▁can ▁do . ’	0 0 0 1 1 1 1 1	PUNCT PUNCT ADV ADV VERB VERB VERB VERB
-After a brief pause for thought, Stuart Baxter said, ' No can do, Vic.	0 0 0 0 0 0 0 0 0 0 1 1 1 0	no can do	figurative	case	ADP DET ADJ NOUN ADP NOUN PROPN PROPN VERB PUNCT INTJ VERB VERB PROPN	▁After ▁a ▁brief ▁pause ▁for ▁thought , ▁S tu art ▁Ba xter ▁said , ▁' ▁No ▁can ▁do , ▁V ic .	0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 1 1 1 1 0 0 0	ADP DET ADJ NOUN ADP NOUN NOUN PROPN PROPN PROPN PROPN PROPN VERB VERB PUNCT INTJ VERB VERB VERB PROPN PROPN PROPN
-' No can do, chief.	0 1 1 1 0	no can do	figurative	case	PUNCT INTJ VERB VERB NOUN	▁' ▁No ▁can ▁do , ▁chief .	0 1 1 1 1 0 0	PUNCT INTJ VERB VERB VERB NOUN NOUN

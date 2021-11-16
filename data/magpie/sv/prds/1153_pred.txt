@@ -1,4 +1,0 @@
-" Och grisar kan flyga!
-' Grisar kan flyga ', sjukvårdaren muttrade, och fäst kragen till sist.
-Grisar kan flyga.
-Men det är som att föreslå att grisar kan flyga.
