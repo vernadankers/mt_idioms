@@ -1,500 +1,500 @@
-Spring erop.
-De verkiezingsraad.
-De bommen zijn verdwenen.
-Het Galtonbord, hè?
-Ze is niet aan boord.
-- Welkom aan boord.
-Ze waren het ermee eens.
-De diaconale raad overnemen.
-- Geen tong. lk begrijp het.
-Er is niemand anders aan boord.
-Ichmail kan aan boord komen.
-M'n moeder is nog aan boord.
-Een prachtig uitzicht, drank aan boord.
-- Waren er vrouwen aan boord?
-Ik zie je aan boord.
-Wie zijn er aan boord?
-Maar er was niemand aan boord.
-Er zijn piraten aan boord.
-We hebben iedereen nodig.
-Zit u in de Kiesraad?
-Divisie 2 was aan boord.
-Iedereen terug de duikboot in.
-- Ja. Er kunnen er drie aan boord.
-Heb je vuurwapens aan boord?
-Koenig, bedankt dat je mij aan boord liet.
-Dit moet Belgrado begrijpen.
-Ik heb het apparaat bij me.
-in de trein gedurende de rit.
-Handel aan boord mag niet meer.
-De smokkelaars hadden Migoi aan boord?
-Dan moet hij aan boord zijn.
-Dames en heren, welkom aan boord van Air Burlesque.
-Een volgend hoogtepunt is 'On Board'.
-Ik ben ook van de partij.
-En Tripp doet mee, volledig.
-Er is geen safe aan boord.
-Gegevens over de geïnspecteerde vis aan boord
-Daarom heb je mij er bij betrokken.
-Moeten we het ophalen?
-Toeristengidsen
-Het werk aan boord van schepen vertoont specifieke risico's.
-Dit artikel heeft betrekking op bijstand aan boord van het voertuig.
-Mijn dochter is nog steeds aan boord.
-En dus, met Jazzy James aan boord begon Mr.
-Zijn de sneeuwschoenen al aan boord? 222.
-U zet mij toch niet aan boord.
-Ze trekken de stekker uit de kostschool.
-Ze moeten echter de namen van alle opvarenden kennen.
-Tot ziens aan boord van de Spes Mea."
-Ik wil daar zeker werk van maken.
-Uw vakantie begint aan boord met Anek-Superfast!
-Hoe krijgen ze ons aan boord?
-We denken dat mijn droid, R2, aan boord is.
-Op de Navarino.
-Het meest gebruikte is dat van Londen.
-Blijf maar enthausiast want ik doe mee.
-En als er echt iets aan boord is?
-Heb je een vriend aan boord?
-Hoe lang ben jij aan boord ?
-Informatie over personen en gevaarlijke goederen aan boord
-Er was misschien een gevecht aan boord.
-Nee, dank je.
-En als jij akkoord gaat, doet hij het zeker.
-FOB: vrij aan boord (haven van lading)
-De vergunningen moeten steeds aan boord zijn.
-En daarvoor moeten onze burgers erbij betrokken zijn.
-Twee combinaties van spectrometers aan boord zullen de atmosfeer onderzoeken.
-Haal alle verkenningsteams aan boord.
-- Snacks, bier, fris en rum aan boord
-Aan boord zit een gekko, een wijfje.
-Er waren een niet bekend gemaakt aantal kinderen aan boord.
-Maar hoe komen we aan boord?
-De Commissie voegde daaraan toe dat iedere jury onafhankelijk is.
-Het Europees Comité voor gegevensbescherming heeft een secretariaat.
-Dan, wanneer het papierwerk wordt gedaan, Het gaat aan boord.
-alle netten aan boord te controleren en metingen van de mazen te registreren;
-• Niet van toepassing op Kamperen aan Boord reserveringen.
-Even later stappen we opnieuw aan boord van onze boot ...
-We gaan je aan boord brengen.
-Samen met zo`n 10 medepassagiers konden we bijna gelijk aan boord stappen.
-Hoeveel meer pijn kunnen we nog verdragen?
-(ww) investeringen aan boord van vissersvaartuigen als bedoeld in artikel 27;
-Hij krijgt medicijnen voor z'n hart.
-Geen herenbezoek, hè?
-Hoelang was sergeant Kettering aan boord?
-Veiligheid en gezondheid: betere medische hulpverlening aan boord van schepen 11.18.
-Die levensdisk die we vonden, was haar van haar broer.
-- Ik weet niet eens of ik het wel wil.
-We hebben bericht over een mogelijk exposief aan boord.
-Zo'n achtentwintig mensen wonen hier gedurende de twee maanden durende reis.
-De jury had hun sollicitatie willekeurig,zonder opgave van een gepaste,individuele reden,geweigerd:
-Ik hoop dat de Raad zijn standpunten ter harte neemt.
-Ik spreek jullie nazitaal niet.
-Was er maar iemand aan boord die ons kon redden.
-de vangst noch aan boord, noch bij aanlanding is gesorteerd.
-Alleen cruises van langer dan twee overnachtingen aan boord blijven onder het toepassingsgebied vallen.
-kortstaartlantaarnhaai (Etmopterus brachyurus),
-Kleding is voor jou belangrijker dan je techniek.
-Maar we gaan dit doen, kom dus aan boord, ja?
-Ze hebben alles aan boord om de maaltijd klaar te maken!
-Die arriveerde op 7 februari 1979 met 2665 vluchtelingen aan boord.
-Vandaar de voor gestelde amendementen nrs. 12 en 14 inzake embarkatieprioriteiten.Artikel 4 van ons voorstel gaat over de
-Een uur geleden. Er waren 103 passagiers aan boord.
-Ik ben rechter, een rechter hoort in een raad te zitten.
-George Cole en David The Barman doen ook weer mee.
-Het bedrijf heeft meer dan tien scrubbersystemen geplaatst op schepen.
-Zolang ze aan boord zijn, is iedereen toch gijzelaar.
-Houd mij op de hoogte van updates voor Baby aan boord sticker 30x15 cm - Bliksem
-Ze vonden het allemaal goed dat we aan boord een kijkje namen.
-Drugseenheid brengt een lichaam per helikopter.
-Waarom heeft dat lichaamsdeel aan boord onze mensen gepakt?
-Ik hoop dat zij veel eisen van het Parlement zal overnemen.
-de frequentie van het testen of ijken van alle veiligheidsapparatuur aan boord;
-Hij regelt ook dat er mensen van de douane en immigratie aan boord komen.
-De hoofdofficieren en ik blijven aan boord.
-Gitson, geluidsinstallatie op vinyl, buiten het werk, facias, houtbewerking, wij zijn gespecialiseerd in uitvindingen.
-Voor diegene die de cruise kiezen, wordt de lunch aan boord geserveerd.
-Als je niet overtuigd bent voor we er zijn...
-Het EV76 vaccin is aan alle anderen aan boord van het schip toegediend.
-Er kan een bedreiging zijn aan boord van het schip.
-Nu kan ik je niet meenemen naar Sardinië, en evenmin aan boord houden.
-Stap aan boord van de Tjalk Liberté voor een zeilwedstrijd.
-Jij houdt je baan en ik weet dat je meedoet.
-de aan boord gehouden soorten zijn gevangen buiten het gereglementeerde NAFO-gebied, of
-We zitten in de beschutting van de Noorse kust.
-Er zijn verschillende activiteiten aan boord om uw reis tot een sprankelende ervaring te maken.
-Goed dat hij er is, maar hij vindt me ook 'n skxawng.
-Wij nodigen u van harte uit voor een bezichtiging aan boord in Almere Muiderzand (NL).
-In deze rol zal Kurt rechtstreeks rapporteren aan de Raad van Bestuur van moederbedrijf Carlson.
-Op de motorschepen is een souvenirwinkeltje aan boord waar T-Shirts, sweaters, boeken, ansichtkaarten, etc. verkocht worden.
-Ook de draaisprongen van de langsnuitdolfijnen... lijken hen te helpen om van hun remora's af te komen.
-In 2006 beperkten de richtlijnen van de Zweedse migratieraad de naturalisatieprocedure tot acht maanden.
-Geleidehonden zijn toegestaan in een aantal geselecteerde hutten en de meeste ruimtes aan boord.
-Ik neem aan dat je iemand aan boord hebt die kan bevestigen dat het echt is.
-Snelle modificatie stuurinstallatie aan boord MVS Verso _ Van Der Velden Marine
-De Raad voor de veiligheidsaccreditatie neemt kennis van dergelijke adviezen van de Commissie.
-Het is riskant, iemand van Starfleet aan boord.
-Sydney Met amper een kruimel te eten aan boord komen we aan in Sydney Harbour.
-Dit is eerlijk gezegd niet waar, mijnheer de Voorzitter.
-Altijd aan boord: Een zorgeloze, ontspannen sfeer die geschikt zijn voor de reis in tropische klimaten.
-En we weten wel dat dat de taak van de Commissie is, en we weten ook dat de Raad buitengewoon bekwaam is om spaken in het wiel te steken.
-Ze schakelde aan boord een rookmelder uit dat is een federale overtreding.
-De hoofddoelstelling hiervan is de positie van de EG-vloot in de mondiale concurrentie zodanig te versterken dat er een vloot onder Europese vlag behouden blijft.
-Er is een moordenaar aan boord, en we zijn geblokkeerd.
-Werd gebracht aan boord van nieuwe, meer dan Cro voor de Duitse- en Engels-sprekende, Daniela Held.
-Je hebt nog een weg te gaan voordat ik geloof dat je meewerkt.
-Met Marine Service 1 op de boeien in het Calandkanaal een huidschade van m.v. Clamor Schulte gerepareerd.
-In de avond, het hotel luxe jacht verlaat met het echtpaar aan boord van de haven.
+Het is verboden zandspiering aan te voeren of aan boord te houden die gevangen is in het geografische gebied begrensd door de oostkust van Engeland en Schotland en loxodromen die achtereenvolgens de punten met de onderstaande geografische coördinaten met elkaar verbinden (gemeten volgens het WGS84-coördinatensysteem):
+Niet-naleving door de kapitein van een communautair vissersvaartuig met meer dan één ton kabeljauw aan boord, of door diens vertegenwoordiger, van de in artikel 11 van Verordening (EG) nr. 423/2004 vastgestelde regels inzake voorafgaande kennisgeving;
+3.7 Dit laatste punt verdient bijzondere aandacht, omdat dit niet systematisch is doorgevoerd op Europese schaal.
+De medewerkers van de Deutsche Bahn AG ondersteunen u in de trein en op het station om u in staat te stellen comfortabel te reizen.
+Pistespelletjes of nachtspelletjes, voetrally's, oriëntatieproeven en grote trektochten worden georganiseerd op uw wenken. De ultieme groepservaring is een bos- en veldrally met oude militaire voertuigen.
+Behalve de afmetingen en het gewicht moeten we ook weten welk type rolstoel je wil meenemen (opvouwbaar, sportrolstoel enz.) en of hij elektrisch aangedreven is.
+Dit principe is reeds opgenomen in de Richtlijn inzake bouwplaatsen en de Richtlijn inzake stellages.
+Er zijn ook fantastische excursies te doen per boot, met onze lokale vissers, aan boord van kleine platbodemboten, door de meest ingewikkelde en mysterieuze delen van de Delta, tot aan de stranden.
+Zijn de Hale's niet in voor iets anders?
+Er zijn dus 20 slangen mee aan boord?
+Ook aan boord van een jacht of een camper bieden ze uitkomst vanwege de compacte afmetingen.
+De Commissie beveelt de lidstaten aan erop toe te zien dat de in lid 2 bedoelde kleppen uit schepen die hun vlag voeren worden verwijderd.
+Geldigheidsduur van de vismachtiging
+Automatisch identificatiesysteem
+Om voor specifieke categorieën van asielzoekers de geschikte opvang te waarborgen, voorziet de richtlijn bovendien in een verplichting voor de lidstaten om bij het ter beschikking stellen van huisvesting rekening te houden met overwegingen inzake gender en leeftijd en met de situatie van personen met bijzondere behoeften.
+Elk vissersvaartuig dat drijfnetten gebruikt, moet de in artikel 9, lid 2, bedoelde machtiging aan boord hebben.
+Manier van wegen: schatting (EST), weging aan boord (WGH)
+Er is gevaar voor de gezondheid van personen aan boord.
+Ligging Ebro Delta - Deltebre Ebro Pesca is een charter boot verhuur bedrijf dat zich bezig houdt met het vissen in rivier de Ebro, Tarragona.We organiseren onvergetelijke vistrips en we zijn gespecialiseerd in het slepend vissen, chumming, driftend vissen, big game vissen,...
+De aanvoer en overlading door een vaartuig van een niet-verdragsluitende partij dat overeenkomstig artikel 41 is geïnspecteerd, zijn verboden in de havens en de wateren van alle lidstaten, indien de inspectie aantoont dat het vaartuig soorten aan boord heeft die het voorwerp uitmaken van aanbevelingen in het kader van het verdrag, tenzij de kapitein van het vaartuig aan de bevoegde instanties voldoende aantoont dat de vis buiten het gereglementeerde gebied werd gevangen of in overeenstemming met alle relevante aanbevelingen in het kader van het verdrag.
+Wij hebben in de huidige, uitgebreide Unie meer dan 73 000 lokale overheden en het zijn juist deze lokale bestuurders die als eerste worden geconfronteerd met de reacties van de Europese burgers en met de concrete resultaten van de voorstellen die wij op Europees of nationaal niveau doen.
+Om 5 uur zouden we moeten vertrekken, maar er is een oponthoud. In het vliegtuig, dat inmiddels startklaar is, zitten twee passagiers die helemaal niet naar Turkije moeten, maar naar Athene. Bovendien moeten we wachten op twee passagiers die zo slim zijn geweest om hun pas thuis te laten liggen.
+wateren van de Faeröer (MAC/*FRO1)
+Iemand aan boord gaf dit aan ze.
+Terwijl kennis van het aantal opvarenden van essentieel belang is en besef van de categorieën passagiers (volwassenen, kinderen en zuigelingen) nuttig kan zijn, worden de namen van de passagiers pas relevant indien er slachtoffers zijn, om de maatschappij in staat te stellen vragen van familieleden te beantwoorden en de identificatie van doden en gewonden te vereenvoudigen.
+Overwegende dat, aangezien de vervoersactiviteiten zich vaak buiten de vaste inrichting van de ondernemingen afspelen en dikwijls de aanwezigheid van de werknemers aan boord van de vervoermiddelen gedurende ononderbroken tijdsperioden vereisen, het noodzakelijk is in specifieke organisatiemaatregelen te voorzien;
+Maar het heeft er de schijn van dat de Raad op het gebied van de EOGFL-Garantie-uitgaven het voorbeeld van het Parlement niet volgt.
+Overweging 13 – amendement 111: dit amendement, betreffende de uitzonderingen krachtens artikel 30 van het Verdrag, is overgenomen, waarbij het enigszins is gewijzigd om de bewoordingen van dat artikel precies over te nemen wat de bescherming van planten betreft.
+Volgens Laura kan ik aan boord de brandstof gaan controleren.
+Ik wil dat u ook luistert naar andere belanghebbenden: de miljoenen slachtoffers in de kampen die geen stem hebben en andere mensen in Darfur die rechtstreeks door de oorlog zijn getroffen.
+De satellietbeelden worden geleverd door de bijdragende Copernicus-missies (CMM's) en door waarnemingen van Sentinel-1 en Sentinel-2, waardoor aan het hele bereik aan waarnemingsvereisten wordt voldaan.
+We fileerden hem aan boord, terwijl je vader 't aperitief voorbereidde.
+Ik moet daar wel bij zeggen dat er enkele problemen zijn gerezen bij de snelle uitvoering van dit programma.
+Ik verhaalde hem van het wrak, waar ik aan boord was geweest, en wees hem de plaats zoo nabij als ik kon, want het was lang te voren aan stukken geslagen en geheel verdwenen.
+SAO.OP.130 Roken aan boord
+punt NCO.GEN.102 wordt als volgt gewijzigd:
+- reclame en marketing, voorzover het niet gaat om de verkoop van reclameruimte aan boord van in aanmerking komende schepen;
+Er zijn ongeveer 370 hutten aan boord, variërend van standaardhutten tot luxe suites.
+Dc/e ambtenaren mogen niet langer aan b mrd blijven dan voor de vervulling van hun taken nodig is.
+Tot en met 31 december 1993 kunnen de Lid-Staten leveringen van voor verbruik aan boord bestemde goederen waarvan de plaats van belastingheffing overeenkomstig bovenstaande bepalingen wordt vastgesteld, vrijstellen of blijven vrijstellen, met recht op aftrek van de in het voorgaande stadium betaalde belasting over de toegevoegde waarde.";
+- 's Nachts aan boord blijven.
+En het meest treurige is, dat ik weet dat je nooit akkoord ging met hoe Stark de boel leidde.
+Eigenlijk hebben we vooral nood aan eenvoud, zodat de consument makkelijk kan instappen en tegelijkertijd van meer comfort en een lagere rekening kan genieten."
+Ik begrijp dat je achter de beslissing om Alex hierheen te brengen stond... maar nu zijn cliënt probeert af te pakken.
+NB: Madagaskar deelt de geografische coördinaten van de basislijnen van zijn visserijzone uiterlijk met ingang van de voorlopige toepassing van dit protocol mee.
+Slaap, ontbijt en dineer aan boord van een comfortable schip.
+Eén kopie wordt toegezonden aan de regionale waarnemer, de andere aan de CPC-waarnemer of de nationale waarnemer, voor zover van toepassing, aan boord van het sleepvaartuig.
+De herziening van de structuurfondsen van 1988 nadert haar voltooiing, op de Top te Edinburgh is een financiële regeling goedgekeurd en wij zullen binnenkort over de verordeningen voor het toekomstige beheer van de structuurfondsen beschikken.
+Om de hierboven uiteengezette redenen wordt alleen voorgesteld informatie over de nationaliteit van de opvarenden toe te voegen aan de informatie die reeds wordt geregistreerd (de familienamen van de opvarenden, hun voornamen of initialen, geslacht, indicatie van de leeftijdscategorie waartoe zij behoren of hun leeftijd of geboortejaar en, indien een passagier daarom verzoekt, informatie over de behoefte aan bijzondere bijstand in noodgevallen).
+Deze noodmaatregelen zijn genomen door het Amerikaanse ministerie voor binnenlandse veiligheid en behelzen voorschriften voor gewapende bewakers aan boord van transatlantische vluchten.
+Met Kepler's eerste echte Bemande missie slechts een paar jaar weg, We moeten weten hoe deze vier astronaut zullen reageren op
+Vaanuigen díe hun activiteit richten op de vangst van koppotigen, mogen op het toual van hun vangsten in de visserijzone van Guinee níet meer dan 20 °/o schaaldieren en niet meer dan 30 % vis aan boord hebben.
+De buschauffeur of het incheckpersoneel in de vertraagde IC Bus bevestigt de vertraging van de IC Bus.Schadevergoeding door DB Reisezentrum: uitsluitend bevestigde reizigersrechtenformulieren met een busticket alleen voor de bus (dus zonder treinreis ervoor of erna) en uitsluitend bij bustickets voor binnenlands vervoer door Deutsche Bahn.Schadevergoeding door Servicecenter Fahrgastrechte: bij niet bevestigde reizigersrechtenformulieren, bij tickets met treinreis ervoor of erna of bij tickets in het grensoverschrijdende verkeer.Verrekening van de tegoedbon online of bij de ticketautomaat van Deutsche Bahn Tegoedbonnen met een code van 7 alfanumerieke tekens kunnen direct bij een boeking op het internet worden gebruikt.
+Iedereen die een opleiding volgt tot maritiem officier, stuurman of werktuigkundige, kan solliciteren naar een stageplaats op de vloot. Er zijn elk jaar stageplaatsen beschikbaar.
+1. Het is verboden bodemtrawls, Deense zegennetten of soortgelijk gesleept tuig aan boord te hebben of te gebruiken waarvan het aantal mazen waar ook in de omtrek van de kuil, met uitsluiting van de aanslag en de naadlijn, groter is dan 100.
+Verder was z'n 15-jarige dekknecht Luke Wilkins aan boord. Zij voeren terug naar hun werf.
+Gebouwd bij de Gebr. Willems te Emmeloord welke werf bekend staat om de solide en mooie manier van schepen bouwen.Deze spitsgatter wordt gekenmerkt door haar klassieke en tijdloze lijnenspel. Samen met de in 2008 nieuw gelakte blauwe romp en de ook in 2008 gelakte witte opbouw maakt het schip tot een fraaie en stoere verschijning.Aan dek vallen de ruime gangboorden op met hoge verschansing en zeer robuust RVS relingwerk.
+Het gaat niet alleen over jouw leven.
+- Hoe ben je hier aan boord gekomen?
+Verbetering en verduidelijking van rapportageverplichtingen voortvloeiende uit Richtlijn 98/41/EG (registratie van de opvarenden van passagiersschepen) in relatie tot andere instrumenten (Richtlijn 2010/65/EU over meldingsformaliteiten en Richtlijn 2002/59/EG over het communautair monitoring- en informatiesysteem), evenals het wegnemen van overlappingen daarmee.
+Na veertien dagen op de Galapagos Eilanden en met voldoende voorraad aan boord liften we het anker en hijsen de zeilen.
+- belastingplichtigen, met het oog op leveringen aan reizigers aan boord van een vliegtuig of schip tijdens een vlucht of zeereis waarvan de plaats van aankomst buiten de Gemeenschap is gelegen;
+De producten die aan boord van een schip of een vliegtuig dat een verbinding tussen twee lidstaten verzorgt, voorhanden worden gehouden maar die niet beschikbaar zijn voor de verkoop wanneer dit schip of vliegtuig zich op het grondgebied van een lidstaat bevindt, worden evenwel niet geacht in die lidstaat voor commerciële doeleinden voorhanden te worden gehouden."
+Via een spuitmond voor het mes wordt het zand tussen de kokkels weggespoten, waarna de schelpdieren met een soort stofzuiger aan boord worden gezogen.
+Bemanning Het interieur Van buiten(tuigage & romp) Technische gegevens Geschiedenis Fotoboek Groepsreizen Schoolreizen & schoolkampen Bedrijfsuitje zeilen Waddenzee Zeilen met familie, vrienden of vereniging Tarieven & prijzen 2019 Beschikbaarheid Spes Mea Nuttige informatie Eten & Drinken aan boord Meezeilen Meezeiltochten Piratentocht 50+ Comfort Reizenzeilzwerftochten voor senioren Wadzeilers Bluescruise Hotelschip Contact Privacy verklaring Schoolreizen en schoolkampenDe Waddenzee verkennen.
+Artikel 19 - amendement 36: artikel 19 ter van het gewijzigde voorstel, betreffende het voorbehouden van opdrachten aan werkplaatsen voor gehandicapten, is ongewijzigd overgenomen.
+de hoeveelheden zwarte heilbot aan boord op het moment dat het vaartuig van de Gemeenschap NAFO-deelgebied 2 en sectoren 3KLMNO binnenvaart.
+Dit gebeurt niet 1 keer, dus met de fietstassen vol druiven zitten we op de boot naar een eilandje in de Marmara Zee. Een grappig eilandje vol met turkse toeristen, wat we de volende dag verlaten om naar Istanbul te gaan.
+het bewijs of de waarneming door een daartoe bevoegde functionaris op basis van diens professionele oordeel dat belangrijke bemanningsleden van het schip geen goede communicatie tot stand kunnen brengen met andere belangrijke bemanningsleden met verantwoordelijkheden op het gebied van de veiligheid aan boord van het schip;
+Prijs €200 excl.BTW Data Locatie Enkhuizen Ship security officer training - Company security officer training Deze training is in combinatie met company security officer en verplicht voor voor officieren op een ISPS schip die belast zijn met de beveiligings organisatie aan boord zoals vereist in SOLAS en de ISPS Code.
 Wellicht dat u hiermee in punt 2 en punt 3 van de ontwerpresolutie rekening kunt houden.
-Uit veiligheidsoverwegingen worden zuigelingen tot 7 dagen oud niet aan boord toegelaten.
-Is er inmiddels belangrijke nieuwe technische informatie waarover de evaluatiecommissie in 1996 niet beschikte?
-Om ervoor te zorgen dat dit ook daadwerkelijk gestalte krijgt, dient rekening te worden gehouden met de standpunten van de diverse geledingen van het maatschappelijk middenveld.
-Hoe zie ik de weersverwachting tijdens een reis? 238.
-Het Parlement wilde de referentie aan spoorwegpersoneel aan boord van treinen in de afwijkingen schrappen.
-— er bijzondere risico's voor de veiligheid en de gezondheid van zeevarenden zijn;
-12-2001 Sloman Traveller chemicaliën- tanker 18 km N Vlieland brand aan boord chloorgassen in atmosfeer
-Bovendien is er regelmatig live muziek op het ss Rotterdam. Geschiedenis van het ss Rotterdam
-de afsluiting van de rekeningen van de Gemeenschappelijke Afwikkelingsraad betreffende het begrotingsjaar 2015 goed te keuren;
-Camping an Board De veermaatschappij Superfast Ferries biedt op het traject van Bari naar Corfu "Camping on Board" aan.
-Het is een rootkit. Het gaf de hacker overal toegang, zonder gedetecteerd te worden.
-Wij hadden sedert ons vertrek uit de wateren van Japan ongeveer 64000 kilometer afgelegd.
-Met deze lijn wil Brunotti boardsports toegankelijk maken voor iedereen, met de missie; Get on board.
-De waarnemer krijgt toegang tot alle faciliteiten aan boord die nodig zijn voor de uitoefening van zijn taken.
-Het gaat onder meer over de fameuze , gewapende veiligheidsagenten aan boord van vliegtuigen.
-Wij gaan ervan uit dat de Commissie deze ter harte zal nemen en de aanbeveling uit het verslag van de heer Musotto zal implementeren.
-De meeste van hen kwamen uit de USA, Canada en Barzilie. Bovendien waren 1100 bemanningsleden aan boord.
-Gericht vissen op of aan boord houden van verboden soorten 0
-"noodzakelijke""technologie" voor de "ontwikkeling" of de "productie" van telecommunicatieapparatuur, speciaal ontworpen voor gebruik aan boord van satellieten;
-• Snacks of voedsel voor consumptie aan boord, mits verpakt (gesealed),
-Opnieuw invoering van de groene telefoon (medede- lingen in geval van fraude) door de fraudebestrijdingseenheid van het uitvoerend agentschap van het interventieorgaan (IBEA).
-Jason is op de hoogte, en dokter Yedlin is een chirurg van wereldklasse, die ontelbare onderscheidingen en studiebeurzen heeft gekregen.
+Een hele nieuwe samenleving aan boord.
+• het conceptueel en theoretisch onderzoeknaar de processen en resultaten van beroepsonderwijs;
+Zeilers zijn altijd welkom aan boord – zeilers 'kennis is niet nodig voor reizen deel te nemen aan. “Havens in zijn eigen voordeur” als Hamburg, Helsinki en Göteborg staan op de huidige zomer volgend jaar het programma van trots Windjammers als aantrekkelijke toeristische bestemmingen zoals Tenerife of de Azoren.
+De wijzigingen van het Parlement op dit punt zijn van groot belang om te bereiken dat de hele benadering op innovatieve wijze wordt opgenomen.
+Clausule 2
+We zien ook een leeuw (sterrenbeeld Leeuw) aan boord van de boot van Utu/Shamash.
+In de beschutting van de talloze eilanden, blijft het leven aan boord aangenaam en comfortabel.
+Het verheugt mij dat de zaak waarschijnlijk ter hand zal worden genomen en dat alle Lid-Staten ervan overtuigd zijn dat dit een ideaal is om na te streven.
+Tijdens de eerste twee jaar hebben we drie cursussen over de korte vaart georganiseerd, nl. een inleiding tot de maritieme logistiek, basisoperaties en diensten, en mondiale logistieke activiteiten.
+De Gabonese inspecteurs blijven niet langer aan boord van het EU-vaartuig dan nodig is om de met de inspectie verband houdende taken te verrichten, en voeren de inspectie zo uit dat deze zo weinig mogelijk gevolgen heeft voor het vaartuig, het aanlanden en de lading.
+De Gemeenschap moet dan ook specifieke maatregelen treffen. fen.
+­ Wanneer de kapitein van het schip eenmaal in het bezit is van de vergunning, moet hij in zijn logboek alle informatie vermelden met betrekking tot de eigenschappen van de gebruikte visserstuigen (beugen, staande netten, sleeptuig). ­ Het satellietvolgsysteem (VMS) moet aan boord geïnstalleerd en in bedrijf gesteld worden.
+Amendement 53 is gedeeltelijk in het gemeenschappelijk standpunt verwerkt.
+Het uitstippelen van zo Stringent mogelijke veiligheidsnormen is in ons aller belang - in het belang van de reizigers, de bemanningen van de veerboten en niet in het minst van de exploitanten van veerboten die hun passagiers ervan moeten overtuigen dat aan boord de beste veiligheidsnormen worden gehanteerd, willen de mensen veerboten blijven gebruiken bij hun reizen in de EU.
+(x) wanneer een gehandicapte of persoon met beperkte mobiliteit een hulpdier nodig heeft, wordt de accommodatie van het dier verzorgd mits de vervoerder, de verkoper van vervoerbewijzen of de touroperator daarvan in kennis werd gesteld overeenkomstig de geldende nationale regels inzake het vervoer van erkende hulpdieren aan boord van passagiersschepen, indien zulke regels bestaan.
+De standpunten van de afgevaardigden moeten echter in acht worden genomen, opdat de communicatie niet eenzijdig wordt.
+Marjolin steunt dit voorstel weliswaar, maar merkt op dat „de reikwijdte van de initiatieven van de Commissie op dit punt beperkt is door de terughoudende opstelling van de Raad”.
+We zien elkaar vast nog aan boord.
+Lieve Tooluka-vrienden, daar ben ik weer, terug aan boord in Aasiaat, Groenland.
 de bevoegde autoriteit van Groenland op de hoogte stellen van het beëindigen van de experimentele visserij en de vaartuigen laten inspecteren alvorens de visserijzone van Groenland te verlaten, indien de bevoegde autoriteit van Groenland daarom verzoekt.
-Ten tweede hebben personen met beperkte mobiliteit recht op gratis bijstand in luchthavens en in het vliegtuig.
-In landen waar partnerschap onlosmakelijk deel uitmaakt van beleidsvorming kostte het minder moeite om dit beginsel te gaan toepassen.
-Het is op basis van all-inclusive wat inhoudt dat alle drankjes en maaltijden aan boord zijn inbegrepen.
-Kan niet worden gecombineerd met SuperFamily & Friends tarief en is niet van toepassing op evenementen aan boord.
-Wij stellen voor verder overheidssteun toe te kennen voor de verbetering van de veiligheid, de arbeidsomstandigheden en de hygiëne aan boord.
-Generaal Webster wil u bij de luchtvaartraad, dus dan hebt u bijna niks te doen.
-De drie telescopen aan boord van ESA's XMM-Newton ruimte-sterrenwacht bestaan bijvoorbeeld uit 58 geneste spiegels elk (Figuur 7)w6.
-De aan de Gemeenschappelijke Afwikkelingsraad toe te zenden vertrouwelijke statistische gegevens moeten ten aanzien van die taken adequaat, relevant en niet buitensporig zijn.
-Vanaf het moment dat u aan boord komt, wordt u overweldigd door de gastvrije en vriendelijke sfeer.
-Prima vlucht. We krijgen zelfs een broodje banaan en een cakeje, koffie en vruchtensap.
-Dit verslag is in overeenstemming met de mededeling van de Commissie en verleent de audiovisuele produktie prioriteit.
-Personen achter Esthec Al op 4-jarige leeftijd ontwikkelt Rientz W. Bol zeebenen aan boord van zeilboten.
-• De korting is niet cumulatief met de SuperFamily & Friends aanbieding en de evenementen aan boord.
-Valenzuela, het bemanningshoofd van een van de twee MARSOC-heli's, bevestigt alles wat West,
-Overlevenden ss Sylvan Arrow Daarnaast waren de kapitein en elf bemanningsleden van de Amerikaans-Panamese olietanker Sylvan Arrow aan boord.
-Ik probeer al maanden de senatoren aan boord te krijgen voor mijn onderwijswetsvoorstel...
-Aanhangsel 3
-Langzaam krijgen we onze landbenen weer terug en de belangrijkste reparaties aan de boot zijn weer gedaan.
-Het Spoelsysteem is ontworpen om de opgeviste mosselen aan boord al te ontdoen van slik, gruis en stukken schelp.
-Wanneer cen waarnemer in een derde land aan boord wordt genomen, zijn de reiskosten ten laste van de reder.
-Of u nu een enkele, Paar, Gezin met kinderen of als groep, Beleef heerlijke dagen aan boord van een jacht.
-Ik nam u mee omdat ik medelijden had.
-Kijk, onze alliantie had de verkiezingen kunnen winnen door de echte fascisten van het MSI aan boord te nemen.
-Wij zijn niet verplicht en niet bereid om deel te nemen aan een geschillenbeslechting door een geschillenorgaan. § 16.
-Je bent een luie betweter die gelogen heeft tegen mij en je CO over het aan boord brengen van smokkelwaar.
-Bijvoorbeeld in uw kantoor, thuis of aan boord van uw jacht. Esthetisch overtuigend door de fraaie afwerking.
-Dit principe is reeds opgenomen in de Richtlijn inzake bouwplaatsen3 en de Richtlijn inzake stellages4.
-De service is beschikbaar van 1 april - 31 oktober op de routes Venetië, Ancona en Bari.
-Maar ook samenwerking met de ASEAN-landen is van groot belang, met name de oprichting van een regionale vrijhandelszone.
-Richtlijn 92/29/EEG van de Raad van 31 maart 1992 betreffende de minimumvoorschriften inzake veiligheid en gezondheid ter bevordering van een betere medische hulpverlening aan boord van schepen. (')
-Seinen, borden, tekens en informatiepanelen moeten daarom te allen tijde met dit doel voor ogen worden ontworpen en geplaatst.
-Ik dank de commissaris voor zijn heel nuttige verklaring en hoop dat hij notitie zal nemen van enkele door mij gestelde vragen.
-Voor mobiele eindstations die gebruikt worden aan boord van vaartuigen en gecontroleerd worden door het basisstation in vaartuigen in de 900 MHz-band, maximaal uitgestraald uitgangsvermogen:
-Elk uur dat ik niet sliep. Ik heb me er alles voor ontzegd. Toen ik voor de Symbiose Evaluatie Commissie moest verschijnen, werd mijn hele leven tot slechts één woord teruggebracht ongeschikt.
-De volgende stap was om klanten te vinden.
-Om de uitvoering van de GDPR te begeleiden is een overkoepelende raad in het leven geroepen: de European Data Protection Board.
-ten minste één plaatsaanduidende noodzender voor overlevenden; en
-Samengevat doet het ESC de volgende aanbevelingen die bij een herziening van Richtlijn 86/278/EEG in aanmerking zouden moeten worden genomen:
-Van 15 april tot en met 15 juni 2014 mag niet worden gevist, noch vis worden overgeladen, aan boord genomen, aangeland of voor eerste verkoop aangeboden.
-Werkingssfeer: alle werknemers, met inbegrip van die welke vallen onder het Euratom-Verdrag, met uitzondering van werknemers in de zeescheepvaart en de luchtvaart (boordpersoneel).
-We kunnen nu bevestigen dat noch de president, noch de first lady aan boord was op het moment van neerstorten.
-Emissies (Euro 4 en 5), met uitzondering van de volledige reeks voorschriften in verband met boorddiagnosesystemen (OBD’s)
-Het onderhoud van het schip omvat alle aan boord verrichte werkzaamheden om het schip te laten functioneren en in de vaart te houden.
-Voor radarsystemen aan boord van satellieten is het zeer belangrijk dat de zend/ontvangst modules zo klein en licht mogelijk zijn.
-De richtlijn vrouwelijke bestuurders zou in 2016 moeten worden aangenomen en de Commissie zal verdere praktische maatregelen nemen om de gendergelijkheid te bevorderen.
-Wanneer een schip niet onder een staat valt, genieten noch dat schip noch de personen aan boord de vrijheid van scheepvaart.
-Het is niet de eerste keer dat wij hierop wijzen, maar het is hoog tijd dat wij hiervan ook doordrongen raken.
-Als gevolg van uiteenlopend beleid verschilt het aantal vrouwen in raden van bestuur aanzienlijk van lidstaat tot lidstaat.
-Al deze dingen komen in ons gezondheidsprogramma aan bod en uw boodschap is bepaald niet tegen dovemansoren gezegd.
-De leraren fungeren na een korte instructie als begeleiders van de leerlingen. - zie ook de website van het gemeenschapsonderwijs Vlaanderen.
-Hij dient lokaliteiten ter beschikking te stellen alsmede kantoormateriaal en personeel.
-14. Augustus 2012 Comments Off op Wat te doen, wanneer de warmte ? - Sailors leren hoe zich te gedragen in een brand aan boord
-In Finland, Zweden, Nederland en Denemarken hebben codes voor goed ondernemingsbestuur en/of vrijwillige handvesten ertoe geleid dat er meer vrouwen in ondernemingsbesturen zijn gekomen.
-Ik denk dat ze zich niet erg lekker voelt. Meestal doet ze dat een paar keer voordat ze...
-Rekening houden met de territoriale dimensie zal duurzame gemeenschappen helpen ontwikkelen en helpen voorkomen dat een ongelijke regionale ontwikkeling het groeipotentieel zou belemmeren.
-Wanneer iemand zelf besluit zijn baan te verlaten kan dat niet leiden tot een automatisch recht op uitkering.
-— de technische vooruitgang, de ontwikkeling van de internationale regelingen of specificaties of van de kennis op het gebied van de veiligheid en gezondheid aan boord van vaartuigen.
-Stap aan boord van de onderzeeër, daal af naar de bodem van de zee en geniet met uw kinderen van de onderwaterpracht van de Atlantische Oceaan.
-Elk voertuig waarmee aan de vergunningsplicht onderworpen vervoer wordt verricht, heeft een vergunning of een door de vergunningverlenende instantie voor eensluidend gewaarmerkt afschrift ervan aan boord.
-- Explosie op een buitengaats olieplatform en het lijk van een dode marinier. Een puinhoop voor NCIS en de kustwacht.
-« De organisatie van het Netwerk » was het tweede punt van discussie.
-Naleving en toepassing van de interoperabiliteit en de installatie van ERTMS in treinen en aan de rails zouden deel uit moeten maken van alle gefinancierde projecten.
-Aan boord van onze schepen komen gasten van over de hele wereld.De passagiers komen voornamelijk uit Europa en Amerika maar ook uit China, Japan, Australië, Rusland, Zuid-Afrika etc.
-Er is voldoende kast en opbergruimte voor een lang verblijf aan boord. Aan bakboord is een zeer ruime natte cel met toilet en wasgelegenheid.
-overleg tussen de sociale partners om vrijwillige overeenkomsten te sluiten over de voorwaarden voor het in dienst nemen van zeevarenden uit derde landen aan boord van schepen die onder EU-vlag varen;
-De commissaris moet ook een ander zeer belangrijk punt overnemen, namelijk: wie gaat dit betalen?
-2. a) Trawlers en met de beug vissende vaartuigen van minder dan 300 brt nemen een door Senegal aangewezen zeeman als waarncmcr-bemanningslid aan boord.
-Het voorstel van de Commissie beoogt de administratieve lasten voor bedrijven te verlagen door de regels op bestaande documenten en de uitrusting aan boord van schepen te baseren.
-Belangrijk in dit geval zijn de aankomst en vertrektijd van de LCI(L) 94. (In dit artikel komt wel ter sprake dat Capa aan boord kwam van LCI(L) 94).
-Hebben we nou echt niks te doen, dan lezen we een boekje of trakteren onszelf op een bioscoopje, want we hebben een flinke voorraad dvd's aan boord.
-Normale transport conditie; Free On Board (F.O.B.), hetgeen betekent; de berekende transportkosten dekken alle kosten tot haven/depot in land van bestemming.
-Ons OBC team denkt aan alles, van de boeking van de vlucht tot toegangsvereisten en douanevoorschriften, waar ook ter wereld.
-U krijgt altijd de volledige jet boat, dh. buitenlandse gasten zijn niet aan boord, en de groep heeft de exclusieve toegang tot het feest boot.
-Indien een overtreding is geconstateerd, mogen de inspecteurs zo lang aan boord blijven als nodig is om de maatregelen als bedoeld in artikel 16, lid 1, onder b), te nemen.
-b) een vissersvaartuig beschikt over een aan boord geïnstalleerd functionerend systeem waarmee het door middel van systemen voor toezicht op afstand kan worden opgespoord en geïdentificeerd.
-Toen één van de kapitein liet weten dat hij niet mocht vertrekken met zijn lading, stond Sam Adams op en riep:
-BL/B/07: Analyse uitwerking van modellen van variaties op lange termijn van de stralingsomgeving dichtbij de aarde met de LIULIN-4-detector aan boord van het internationale ruimtestation
-De Autoriteit staat positief tegenover op non-discriminatoire basis verleende steun voor opleiding die wordt gegeven aan boord van in een EVA-staat geregistreerde schepen.
-1.4 Om de arbeids- en levensomstandigheden van zeevarenden op schepen te inspecteren is er een voldoende groot aantal inspecteurs met uitgebreide vaardigheden nodig.
-2.3.1 Het Comité van de Regio's betreurt het dat de maatregelen die door de Commissie in dit actieplan worden voorgesteld, in eerste instantie uitsluitend tot de Commissie zelf en tot de lid staten gericht zijn.
-Overigens wijs ik erop dat deze indeling in het kader van operatie Atalanta boven op de Franse en Spaanse beschermingsmaatregelen komt die aan boord van de schepen gelden.
-In bepaalde omstandigheden echter kan een striktere controle worden uitgevoerd om na te gaan hoe het staat met de arbeids- en levensomstandigheden aan boord.
-Maar gij, mijnheer Aronnax," vroeg Ned Land, die, zoo het scheen altijd bij zijn denkbeeld van overrompeling bleef, "zoudt gij niet kunnen zeggen, hoe sterk ze hier aan boord zijn: tien, twintig, vijftig, honderd?"
-De reder betaalt de regering van Madagascar voor iedere dag dat een waarnemer aan boord van een vaartuig voor de tonijn visserij is, 10 Ecu.
-Ik verzoek de Com missie het amendement op artikel 10, lid 3, waarin de onmiddellijke betaling van een voorschot gewenst wordt, aan te nemen.
-Het gaat tenslotte om een fundamentele wijziging, een steunregeling niet voor bedrijfsbeëindiging, maar voor instandhouding van een bepaald soort landbouwbedrijvigheid, met de mogelijk heid van steun voor uitbreiding, voor kwaliteits-
-De gemeenschappelijke afwikkelingsraad, die zou worden uitgebreid om het Europees depositoverzekeringsstelsel te beheren, zou op de nationale depositogarantiestelsels toezien en de middelen slechts vrijgeven wanneer aan duidelijk omschreven voorwaarden is voldaan.
-De korting geldt zowel voor passagiers en voertuigen (tot 6 meter lang, 2 meter hoog), en is niet geldig voor Camping on Board reserveringen.
-2.6 Gegeven de huidige percentages is Frankrijk momenteel het enige land dat op koers ligt om in 2020 de 40%-doelstelling te halen.
-Het is verboden Noordzeekrabben aan boord te houden of aan te voeren die zijn gevangen tijdens een reis waarbij ook buiten de volgende gebieden is gevist:
-De Spaanse regering redeneert dat de gezagvoerder van een vliegtuig taken heeft als het sluiten van huwelijken aan boord, het inschrijven van pasgeborenen of het bewaren van diplomatieke post.
-Het dagelijkse logboek, het logboek over de visverwerking, het opslagschema en de originelen van de ICCAT-overladingsaangiften dienen aan boord te worden gehouden en te allen tijde beschikbaar te zijn voor controledoeleinden.
-De Commissie heeft overeenkomstig het subsidiariteitsbeginsel de zaak terugverwezen naar de Konkurrencerådet, die na onderhandelingen met de milieupool van oliebranchen heeft verkregen dat de betrokken vergoeding wordt opgeheven.
-Dit Rexel combinatiebord bestaat uit een magnetisch, droog uitwisbaar oppervlak met kalenderrooster en daaronder een notitiebord van kurk, gevat in een stijlvol gebogen, zwart...
-Het is voor mij dan ook een grote eer hier vandaag het woord te mogen voeren: ik ken immers de le den van de betrokken commissie en het uitstekende werk dat zij tot nu toe hebben verricht.
-De lidstaten ondernemen stappen om ervoor te zorgen dat de NEAFC-inspecteurs van een andere verdragsluitende partij toelating krijgen om inspecties uit te voeren aan boord van vaartuigen die onder hun vlag varen.
-Ringzegenvaartuigen die in het IATTC-verdragsgebied op tonijn vissen, houden alle gevangen geelvintonijnen, grootoogtonijnen en gestreepte tonijnen aan boord en landen deze aan of laden deze over.
-De Commissie startte daarom op verzoek van de Raad van Ministets een reeks raadplegingen met de betrokken pattijen - wetenschappers, vissers, lidstaten - en in het geval van de Noordzee bovendien met Noorwegen, daar dit land samen met de EU instaat voor het beheer van de kabeljauwvoorraad.
-• Bari en Venetië: de korting van 20% vroegboekkorting geldt voor alle categorieën van passagiers- en voertuigentarieven en voor Camping on Board.
-Is het de angst voor een laguneramp die Montanelli, welke de leiding heeft over de beweging tegen de Expo, ertoe brengt om - zoals gisteren -te schrijven: „Venetië moet een luxueuze stad zijn, voor luxueuze mensen, die toestemming moeten krijgen om geen belastingen te betalen".
-De heer Prag (ED), rapporteur. — (EN) Ik wil graag opmerken dat ik persoonlijk erg blij ben met de aanneming van deze tekst.
-Saint-Pétersbourg - Kiev, d.w.z 2560 km in 10h30 min, vervuld door de fabrikant Igor Sikorsky aan de bestellingen van klank Ilia-Mourometz en met passagiers aan boord.
-Mijn fractie steunt het verslag-Cramon Daiber en hoopt dat de goedgekeurde amendementen zoveel als mogelijk door de Commissie zullen worden overgenomen.
-Mijnheer de Voorzitter, ik denk wel te mogen zeggen dat de geachte afgevaardigde erop kan vertrouwen dat zijn argumenten bij de besluitvorming zullen worden meegewogen.
-Daarnaast zoeken we de komende periode proactief contact met stakeholders, zoals chemische bedrijven, toeleveranciers en kennisorganisaties om aan te haken bij het programma.
-Ten slotte ben ik ervan overtuigd dat we deze onderhandelingen in 2006 moeten afronden, omdat we daarna niet meer op de Verenigde Staten kunnen rekenen.
-Elke kunstmaan heeft zijn eigen verzameling filters aan boord, en ze hoeven niet allemaal voor elke foto gebruikt te worden.
-Het Algemene deel van het Handboek voor Marifonie in de Binnenvaart dient altijd aan boord van een schip zijn, wanneer het gebruik van radio verplicht is.
-alle tijdens de doorvaart meegevoerd vistuig is vastgesjord en geborgen overeenkomstig de voorwaarden van artikel 20, lid 1, van Verordening (EEG) nr. 2847/93;
-De bijvangst aan boord van vaartuigen waarmee de gerichte visserij op garnalen, zwarte heek en Ín het kustgebied levende pelagische soorten wordt uitgeoefend, mag niet meer dan 10 gewichtspercenten van de cotale vangst bedragen.
-In het kader van het Europees Visserijfonds kan financiële bijstand worden verstrekt voor de uitrusting van vissersvaartuigen met een veiligheidsuitrusting zoals AIS.
-Deze positieve trend komt ook naar voren in de positieve verwachtingen van de sector, met toenemende investeringen gedurende de afgelopen jaren (voornamelijk in nieuwe vissersvaartuigen en investeringen aan boord).
-Toen de mannen aan boord van het kleine rubbervlot langzaam weer wat bij hun positieven kwamen, begonnen zij elkaar te slaan en te masseren om warm te blijven.
-Een bestuurder en een assistent aan boord om de controle over het voertuig te nemen in geval van ongelukken, maar de eerste ritten hebben off verstreken zonder incidenten.
-Wanneer treinen zijn voorzien van meetapparatuur voor stroomopname moet één van deze apparaten geschikt zijn voor gebruik in alle lidstaten.
-Credit: ESA/ATG medialab De instrumenten aan boord van TGO ondergaan in die fase heel wat temperatuurswisselingen tijdens elke doortocht door de bovenste lagen van de Marsatmosfeer.
-Check dan in via de WestJet-website of op de luchthaven.WestJet heeft geen lounges.Aan boord kunt u dranken, snacks en sandwiches kopen.
-Uit de woorden van de commissaris meen ik op te mogen maken dat hij in zijn mededeling een aantal punten van mevrouw Echerer zal opnemen.
-(6) Om rekening te houden met de visserijtradities in bepaalde zones, moeten specifieke bepalingen worden vastgesteld voor de vangst en de bewaring aan boord van sommige soorten tonijnachtigen.
-Laat in de middag van 23 juli, terwijl het vliegdekschip in Norfolk lag, meldden zich 32 vliegers van de Army Air Forces aan boord voor tijdelijke dienst.
-Ik heb liever dat mijn partners in het zuiden zich in deze onderhandelingen aan mijn zijde bevinden, zeker als je bedenkt dat deze gebeurtenissen wel eens een weerslag kunnen hebben in de regio.
-Zelfs vergaderen in een apart lokaal is mogelijk.Op de Waterbus tussen Brussel en de Brabantse Groene Gordel kan de fiets steeds mee aan boord.
-Tot slot hebben wij, mijnheer de Voorzitter, amendementen ingediend over de sociale situatie en de arbeidsrelaties.
-De aan boord aanwezige hoeveelheden die overeenkomstig artikel 3, lid 1, onder c), vóór de aanvoer zijn opgegeven, dienen gelijk te zijn aan de in het logboek vermelde hoeveelheden nadat dit is ingevuld.
-Het Tempelcomplex en de Lenus-Mars wandelroute zijn van informatieborden voorzien en geven alle archeologische achtergrond informatie betreffende de reconstructie van deze Keltische vestingstad.
-Deze verzamelaar heeft dertien bands aan boord met zulk een extreme strategie dat men van goed hout gesneden moet zijn om de schijf tot zijn eind te laten komen.
-Vueling wijdde in maart 2006 haar samenwerkingsprogramma in met het orkest van de Academie van het Gran Teatre del Liceu, door een uniek concert aan boord van de vlucht Parijs-Barcelona aan te bieden.
-In het standpunt van de Raad worden alle amendementen overgenomen die door het Europees Parlement in eerste lezing werden geformuleerd en de Commissie in haar gewijzigd voorstel overnam.
-De financiële zekerheid wordt gesteld voor de betaling van alle erdoor gedekte contractuele vorderingen die ontstaan tijdens de periode waarvoor het document geldt.
-De Commissie en de Raad moeten de komende tijd gebruiken om nader van gedachten te wisselen over de ethische vragen, ook al is er een grote mate aan divergentie tussen de lidstaten. Het budget voor het
-Zo’n honderd EUC-studenten wonen deze weken niet in een appartement in het centrum, maar op een boot aan de Boompjeskade. Klein, heel klein, maar wel gezellig.
-Daarmee bezit de bibliotheek vijf van de zeven standaardkaarten op perkament, die zich in de eerste helft van de 18de eeuw aan boord van een Oost-Indiëvaarder bevonden.
-Dat zijn dus min of meer externe factoren waarmee wij ook rekening moeten houden, en de besluitvorming dient aan te sluiten op deze realiteit.
-Het gemeenschappelijk standpunt neemt de amendementen van het Parlement over die het voorstel van de Commissie in twee afzonderlijke teksten splitsen, een tot wijziging van de elektriciteitsrichtlijn 96/92/EG en een tot wijziging van de gasrichtlijn 98/30/EG.
-Wij vragen ons af of de Commissie dit heeft opgenomen, of het zal worden bevorderd en welke commissaris op het moment hiervoor de verantwoordelijkheid heeft.
-Wanneer de vis aan boord wordt ontkopt en/of gestript, moeten die bewerkingen zo snel mogelijk na het vangen onder hygiënische omstandigheden worden uitgevoerd en moeten de producten onmiddellijk en grondig worden gewassen.
-Walter (PSE), rapporteur. - (DE) Mevrouw de Voorzitter, dames en heren, het Europees Parlement heeft zich al meermaals uitdrukkelijk voor de uitbreiding uitgesproken.
-Hij verstuurde een uur geleden een bericht, vanwege een probleem in dit vliegtuig.
-De in lid 1 bedoelde mededeling gaat vergezeld van een overeenkomstig hoofdstuk III gevalideerd vangstcertificaat indien het vaartuig van een derde land visserijproducten aan boord heeft.
-De ideale gelegenheid om alle aandacht op Kuifjes reis naar de maan te richten. €8,95 €8,95 Tafelkalender 2019 Vijftig jaar geleden vertrok de Apollo 11 naar de maan, met aan boord drie Amerikaanse astronauten.
-Bus en een parkeerplaats in de buurt van het knooppunt Ulm-Elchingen.. Goed restaurant 50m, 150m bezienswaardige kloosterkerk, infobord paden, direct aan het historische pad van de Slag van Elchingen 1805
-Tips voor het juiste gedrag bij ski tourtochtenHoudt u bij alle activiteiten in de natuur en tijdens de keuze van uw tourtocht aan de geldende regels (bv. Wildbeschermingsgebieden, gebieden waarin een jachtverbod geldt, herbebossingterreinen, informatieborden enz.)
-Dit betekent met name ook dat de Verenigde Staten, India en China zich hierachter moeten scharen. Dan zou de weg worden geëffend voor een brede internationale consensus eind 2009 in Kopenhagen.
-Militaire atmosfeerbewaking Een bekende toepassing is SAMS (Submarine Atmosphere Monitoring System) Hierbij wordt de in te ademen lucht aan boord van schepen en onderzeeboten continue bewaakt ten behoeve van veiligheid van het personeel.
-Denk overigens niet dat omdat er nu een menselijke drummer aan boord is bij het - nu dus - viertal, de drums daarmee ook maar een slag minder overrompelend en snel zijn.
-Een vakantie reis is toe gedaan uit het dagelijks leven en in geen tijd van hun leven zullen ze je de stress van alledag vergeten en zorgen zo spoedig aan boord van een jacht.
-De volgende tekortkomingen beïnvloedden echter de doelmatigheid en doeltreffendheid van EPSO: i) de personeelsbehoefte van deinstellingen werden niet tijdig aan EPSO medegedeeld, noch op een consistente methodologie gebaseerd; ii) de procedure voor personeelsselectie duurde telang, gezien EPSO'seigen normenen deinternationale beste praktijken; detoetsfase kende vertragingen, vooral omdat dejuryleden niet voltijds beschikbaar werden gesteld; iii) vergelijkendeonderzoekenleverden gemiddeld maartwee derdevan het beoogdeaantal geslaagdekandidaten op.
-Voor speciale gelegenheden, zoals een huwelijksreis of een verjaardag, bieden wij u de mogelijkheid om taart en champagne te bestellen die dan tijdens uw internationale vlucht geserveerd zullen worden.
-We zijn tot slot blij dat ook de Raad het belang heeft erkend van reisgegevensrecorders, beter bekend als zwarte dozen.
-Dat gebeurt momenteel door de wanhoop over de situatie, daarom hoop ik dat deze tekst helemaal wordt goedgekeurd en dat de Commissie alle amendementen overneemt.
-Vaartuigen die geen vistuig voor het vissen op soorten van de in artikel 1 van de onderhavige verordening bedoelde bestanden aan boord mogen hebben of gebruiken, zijn evenwel vrijgesteld van deze eis.
-Het omvat de verplichtingen die voortvloeien uit het Verdrag van Aarhus, terwijl het de lidstaten de nodige flexibiliteit laat om de wetgeving doeltreffend te implementeren.
-de aanbiedingsvorm van de producten.
-De Raad heeft in afwachting van de eerste lezing door het Europees Parlement overeenstemming bereikt over een algemene oriëntatie inzake het voorstel voor een verordening ter verbetering van de beveiliging aan boord van schepen en op plaatsen waar interactie tussen haven en schip plaatsvindt.
-„bemanningslid” : een persoon die door een exploitant is aangesteld om taken aan boord van de ballon of, voor zover de taken rechtstreeks verband houden met de vluchtuitvoering met de ballon, op de grond uit te voeren;
-In afwijking van lid 1 mogen de volgende vissoorten aan boord worden gehouden en aangevoerd, zelfs indien de lidstaat er geen quota voor heeft of zijn quota of aandelen heeft opgebruikt:
-Aan boord van dit schip bevindt zich de hoop... voor onze toekomst, onze families, en voor de gehele mensheid. Want hier in het lab bevinden zich de ingrediënten voor een geneesmiddel.
+Staterooms aan boord van de schepen van de Lijn van de Cruise Disney zijn 25% ongeveer groter dan de de industrienorm, met meer dan 70% van staterooms die of een oceaan patrijspoort hebben, of een open luchtveranda.
+Wapens van om het even welke soort zijn niet toegelaten aan boord.
 Ik dring erop aan dat u de fysiologische functie, die de rapporteur helaas wilde schrappen, weer opneemt. Ik ben het niet met de rapporteur eens.
-De gloednieuwe ferries van Minoan Lines biedt u de beste service aan boord, met goede restaurants, cafes, bars, internethoeken, casino, bioscoop, video games, speelplaats voor kinderen en natuurlijk een zwembad.
-D uitbreiding van de taken en bevoegdheden van de waanemers van de Unie, waarbij vissers­vaartuigen van de Gemeenschap die in het NAFO-gebied vissen, verplicht een waarnemer van de Gemeenschap aan boord moeten hebben.
-De kapitein van een EU-vissersvaartuig met tanks voor gekoeld zeewater dient een bijgewerkt document aan boord te hebben waarin de in kubieke meter uitgedrukte capaciteit van de tanks voor iedere 10 cm hoogte van die tanks wordt aangegeven.
-Ik constateer echter dat noch onze lidstaten, noch onze instellingen een beleid voor een openbare dienst of zelfs maar een gemeenschappelijk beleid voeren.
-Voor Marseille-Provence had deze aanbeveling betrekking op de verdere ontwikkeling van de Europese dimensie in het definitieve programma, en voor Košice betrof het aanbevelingen over het plannen van de toekomst en de behoefte om een nieuw publiek te bereiken.
-Het is met name verheugd over het feit dat de Commissie het in het ESC-advies over het werkdocument geopperde voorstel om de karakteristieken van de verschillende technologieën in aanmerking te nemen, heeft overgenomen.
-Gaan wij elkaar doodconcurreren of werken we aan een menswaardiger doel?
-Personeel dat in de alarmrol wordt aangewezen om passagiers bij te staan in noodsituaties aan boord van passagiersschepen, hebben een opleiding voltooid in het beheersen van mensenmassa's, zoals omschreven in sectie A-V/3, lid 1, van de STCW-code.
-Indien het voertuig dat met een digitale tachograaf is uitgerust, door meer dan één bestuurder wordt bemand, zorgt elke bestuurder ervoor dat zijn bestuurderskaart in de juiste lezer in de tachograaf is ingebracht.
-Het is aan boord mogelijk om, aan het einde van de reis, de kosten voor drankjes en souvenirs te betalen met creditcard of bankkaart (debet-card).
-In de lente van 1670 scheept Mgr. Pallu in Nantes in, met nieuw aangeworven kandidaten voor zijn missies, aan boord van een van de schepen van de Oost-Indische Compagnie die langs de westkust van Afrika varen.
-RICHTLIJN 93/103/EG VAN DE RAAD van 23 november 1993 betreffende de minimumvoorschriften inzake veiligheid en gezondheid bij het werk aan boord van vissersvaartuigen (Dertiende bijzondere richtlijn in de zin van artikel 16, lid 1, van Richtlijn 89/391/EEG)
-De reis vanaf Rechlin aan de Müritz garandeert een ontspannen natuurbelevenis te midden van meren en bossen met excursies naar interessante steden en dorpen. Er is ook veel comfort aan boord.
-Tijdens deze inspectie bleek dat er, behalve één algemene zin in het eindverslag van het selectiecomité, geen enkel ander document over de evaluatie van de mondelinge toets van de kandidaat beschikbaar was.
-Uw uitstapje vindt plaats aan boord van cruiseschepen die van alle gemakken zijn voorzien, zoals een discotheek, bioscoop, zwembad, jakuziŽ en een fitnessruimte.U kunt deze cruiseschepen ook gebruiken om grote feesten op te organiseren.
-In 2003 zal worden nagegaan of vooruitgang is geboekt en of de Europese Unie een instrument nodig heeft om te waarborgen dat exportkredietinstellingen rekening houden met duurzame ontwikkeling (met inbegrip van duurzame technologieën).
-Een politieke oplossing voor de problemen van die wereld-in-één-land is enkel gerechtvaardigd, wanneer ze alle volkeren en etnieën recht laat wedervaren.
-Het belangrijkste doel op elke gokkast is om te winnen geld en met alle functies en Bonus rondes uit te betalen fatsoenlijke dit zou een goede gelegenheid voor u om aan boord te krijgen.
-Het Comité is ermee ingenomen dat de Commissie en de Raad besloten hebben, een agro-industrieel beleid op korte en middellange termijn inzake de gebruiksmogelijkheden van landbouwprodukten buiten de voedingssector te voeren, waarin de eerder door het Comité gedane aanbevelingen worden opgevolgd.
-Met het initiatiefrecht van de Commissie op de achtergrond kunnen de wijzigingsvoorstellen derhalve vandaag niet als zodanig in aanmerking worden genomen, ofschoon ik deze wel als een belangrijk bestanddeel van het algemene debat beschouw.
-Ik bedoel hiermee de amendementen 19, 25, 32 en 46. De amendementen 20 en 37 hebben betrekking op kwesties die te specifiek zijn om expliciet te kunnen worden aanvaard, hoewel ze in principe wel onder de thematiek van het voorstel vallen.
-Wanneer men dit standpunt inneemt ligt het voor de hand dat een dergelijke vervuiling door bedrijven bij de wet dient te worden verboden,afgezien van gevallen waarin zij absoluut noodzakelijk is.
-reizen met de ferry van Salekhard via Tobolsk naar Omsk op de Ob rivier, vertrek, reis, reserveren, klasse en luxe kajuiten, restaurants aan boord, bezienswaardigheden, prijs ticket, tijdstabellen en kaart
-De in ICES-deelgebied VI en/of ICES-sector V b met een demersaal sleepnet met een maaswijdte van 100 tot en met 109 mm verrichte en aan boord gehouden vangst moet bestaan uit:
-De toezichthoudende autoriteit deelt het Europees Comité voor gegevensbescherming en de Commissie onverwijld die maatregelen met opgave van redenen mee en legt de aangelegenheid voor in het kader van de in artikel 57 bedoelde toetsing.
-Niettemin heeft de EDPS er in een eerste fase voor gekozen de uitbreiding van het aantal taken en personeelsleden te beperken, en gebruik te maken van gecontroleerde groei, om ervoor te zorgen dat nieuwe onderwerpen volledig worden overgenomen en dat nieuwe personeelsleden efficiënt worden geïntegreerd en opgeleid.
-Te zes uur gaf de professor het sein om aan boord te gaan. De levensmiddelen, de bagage, de werktuigen, de wapens en eene aanzienlijke hoeveelheid zoet water waren reeds aanwezig.
-SLOTBEPALINGEN
-- Het is geen schande. Mijn gebit is 23 jaar geleden behandeld met trifluorinaat. Toch is er enige slijtage opgetreden.
-Wij vragen de Commissie ons desbetreffende amendement nr. 3 op artikel 3 over te nemen. Als zij dat niet doet, zullen wij heel moeilijk zijn bij de tweede lezing.
-de eigenaar van het vissersvaartuig of de namens hem optredende kapitein overeenkomstig punt 2.6 heeft geweigerd een of meer Mauritaanse vissers, die op tijd bij het vaartuig zijn aangekomen, in te schepen;
-En wanneer Ons bevel komt en de oppervlakte der aarde overstroomt, neem dan aan boord twee (exemplaren) van wat nodig is en uw gezin, behalve degenen tegen wie het woord reeds is uitgevaardigd.
-de overeenkomstig artikel 4 van Verordening (EG) nr. 847/96 en artikel 15, lid 9, van Verordening (EU) nr. 1380/2013 ingehouden hoeveelheden;
-Wat betreft het vervoer over zee binnen eenzelfde lidstaat aan boord van schepen die overeenkomstig artikel 4 van Richtlijn 98/18/EG met Klasse B overeenstemmen, kunnen de lidstaten verkiezen de toepassing van deze verordening tot 31 december 2018 uit te stellen.
-Maximumaantal en totale in brutoton uitgedrukte capaciteit van de vissersvaartuigen van elke lidstaat die blauwvintonijn mogen bevissen, aan boord houden, overladen, vervoeren of aanlanden in het oostelijke deel van de Atlantische Oceaan en de Middellandse Zee
-In de avond varen we met "La Mar" naar de plek waar de kanaal-adviseur aan boord komt. We wachten een half uur en horen dan dat onze doorvaart een dag is uitgesteld.
-Kapiteins van communautaire vissersvaartuigen verlenen de inspecteurs van de lidstaten de nodige bijstand om deze in staat te stellen de in het logboek vermelde gegevens te toetsen aan de aan boord gehouden schol- en tongvangsten.
-Deze amendementen doen echter evenmin iets af aan de grondidee dat de toelating om octrooien te nemen op dit ogenblik onvermijdelijk zal vooruitlopen en ingrijpen op het noodzakelijk debat over de explosieve ontwikkeling in de biotechnologie.
-Het is nodig dat onze burgers zich deze mentaliteit eigen maken in die zin dat ze automatisch gaan reageren op handelingen waaruit een niet-naleving blijkt van de grondbeginselen die heden ten dage als gemeenschappelijk erfgoed moeten worden opgevat.
-De schipper van de kennis is gemakkelijk te begrijpen en met veel illustraties, en biedt zichzelf als de ultieme referentie werk aan boord – zelfs als het regent, kan worden genomen in de cockpit, omdat het boek is spatwaterdicht.
-Het bepaalde in lid 1 geldt niet voor produkten die zíjn verscheept en onderweg zijn naar Duitsland en het Verenigd Koninkrijk vóór de datum van inwerkingtreding van deze verordening.
-De leden van de Commissie ontwikkelingssamenwerking willen onze partners dan ook beschermen en ervoor zorgen dat eerlijke overeenkomsten worden gesloten. Daarbij zou ik het volgende willen opmerken.
-Er zij ook op gewezen dat de Commissie niet voornemens is de lidstaten te verplichten meereizende veiligheidsagenten te aanvaarden; het voorstel beoogt geenszins de bevoegdheid van de lidstaten op dit punt te wijzigen.
-Vis van bestanden waarvoor vangstbeperkingen zijn vastgesteld, mag slechts aan boord worden gehouden of aangeland mits die vis is gevangen door vissersvaartuigen van een derde land dat een quotum heeft en zijn quotum nog niet heeft opgebruikt.
-Deze commissie bestaat uit een gelijk aantal door werkgever en ondernemings raad benoemde bijzitters en een voorzitter, over wiens persoon de werkgever en de onderne mingsraad overeenstemming dienen te bereiken.
-Toegangskaarten (Internet & WI-FI) kan bij alle bars aan boord gekocht worden.* Niet beschikbaar op SUPERFAST I, SUPERFAST II - Zwembad Een verfrissende duik in ons zwembad op het dek.De volmaakte ontspanning in de zon.
-het bijdragen tot een beter beheer of een betere instandhouding van de biologische rijkdommen van de zee;
-(d) wanneer de lengte over alles van het vaartuig 15 meter of minder bedraagt, het gebruikte vistuig — ongeacht de aan boord gehouden hoeveelheden gevangen koolvis — is uitgerust met een paneel met vierkante mazen als omschreven in bijlage XIV quinquies.
-Het Oostenrijkse voorzitterschap moet de fase van reflectie omzetten in een periode van analyse en gevolg geven aan de uitstekende gedachte van de heer Méndez de Vigo dat er een onderzoek moet worden gestart naar de kosten van het niet hebben van een Grondwet.
-Per brief, gedateerd 8 juni 1996, vroeg X. de jury zijn aanvraag te willen herzien. ín haar antwoord zei de jury dat X. onvoldoende beroepservaring had op het vlak van tropische geneeskunde en stralingsveiligheid.
-Deze vaartuigen moeten het binnenvaren in en het verlaten van het gecontroleerde gebied aan de bevoegde autoriteiten melden en informatie verstrekken over de hoeveelheden vis van de verschillende soorten die zij aan boord hadden vóór en na het vissen op grond van de uitzondering;
-Voor zover het gebruik van walstroom de uitstoot van luchtverontreinigende stoffen voorkomt die gepaard gaat met de verbranding van bunkerbrandstoffen aan boord van afgemeerde schepen, draagt de maatregel bij aan de verbetering van de lokale luchtkwaliteit in havensteden.
-Dit gezegd zijnde, hoop ik, dat deze overeenkomsten niet alleen binnen de gestelde termijnen in werking zullen kunnen treden, maar ook dat ze vanuit de intensieve dialoog die wij met deze drie landen onderhouden, qua inhoud en qua aard zullen kunnen groeien, want ze vormen een heel belangrijk onderdeel van de pre-toetredingsstrategie. gie.
-„In elke instelling wordt een tuchtraad, hierna „de raad” genoemd, ingesteld, tenzij twee of meer agentschappen besluiten overeenkomstig artikel 9, lid 1 bis, van het statuut een gemeenschappelijke raad in te stellen.”;
-Zoals geïnstrueerd highlight onder de nieuwe functies zijn kwaliteit GPS snelheidsmeters aan boord, die beschikbaar zijn in tal van ontwerpen en onder hen de propeller korting stand op de International Trade Fair in Düsseldorf BOOT zal worden gepresenteerd.
-Werken bij Fjord Line Werken bij Fjord Line Aanmelden op onze banenportal Aanbod vacatures Organisatie Hoe we zijn georganiseerd Fjord Line is een veermaatschappij met ongeveer 700 mensen voltijd in dienst waarvan circa 70% aan boord van onze cruiseferry's werkt.
-Vis van bestanden waarvoor vangstmogelijkheden zijn vastgesteld, mag slechts aan boord worden gehouden of aangeland mits die vis is gevangen door vissersvaartuigen van een lidstaat die een quotum heeft en zijn quotum nog niet heeft opgebruikt.
-Artikel 66 beschrijft de taken van het Europees Comité voor gegevensbescherming, gebaseerd op artikel 30, lid 1, van Richtlijn 95/46/EG en voorziet in aanvullende elementen, als gevolg van de grotere spanwijdte van het Europees Comité voor gegevensbescherming binnen de Unie en daarbuiten.
-De rapporteur bedankt alle sprekers voor hun bijdrage en wijst er nogmaals op dat zij bij het opstellen van het document geprobeerd heeft om zoveel mogelijk rekening te houden met alle meningen maar dat dat bij veel controversiële punten niet mogelijk was.
-De problemen waar de Europese Centrale Bank op heeft gewezen en waarvan de reikwijdte grotendeels, maar wellicht nog niet helemaal is doorgedrongen, manifesteren zich op een manier die de ontwikkeling van deze sector ongetwijfeld schade zal berokkenen.
-Het doet me genoegen te zien dat het Sloveense voorzitterschap heeft gezegd dit op zich te willen nemen, en ik wil de Raad Visserij verzoeken om tijdens hun bijeenkomst volgende week extra aandacht te schenken aan deze resolutie.
-Wat nu het tweede probleem betreft, het gouden muntstuk van 100 euro, de Commissie kan dit verzoek niet behandelen in het kader van de verordening over de denominaties en de technische specificaties van euromuntstukken. Toch verdient het grondig te worden onderzocht.
-De kapitein van een Unievaartuig dat op grond van de overeenkomst vist, houdt een visserijlogboek bij waarvan het model voor elke visserijcategorie is opgenomen in aanhangsel 3 van deze bijlage.
-Ik hoop dat de Commissie bij het opstellen van het Groen boek betreffende de rol van bibliotheken in de informatie maatschappij rekening houdt met de hoofdlijnen van dit verslag en deze respecteert bij de ontwikkeling van een democratische informatiemaatschappij.
-29 april 2011 voor het beveiligingsonderzoek van vloeistoffen, spuitbussen en gels (LAG’s) die zijn verkregen in een luchthaven in een derde land of aan boord van een luchtvaartuig van een niet-communautaire luchtvaartmaatschappij, en 29 april 2013 voor het beveiligingsonderzoek van alle vloeistoffen, spuitbussen en gels.
-de producten door invriezen, hetzij aan boord, hetzij in inrichtingen aan land, zouten, drogen, marineren of in voorkomend geval koken en pasteuriseren, verduurzaamd of verwerkt zijn en opgeslagen in tanks of kooien, ongeacht of naast die behandelingen, de producten eveneens gefileerd, in moten gesneden of, in voorkomend geval, gekopt worden;
-„Mobiel vervormbaar blok”
-Zeven jaar geleden, op de eerste South Georgia reis van de Meander, waren zij ook van de partij! Heel erg leuk natuurlijk om hen nu hier a/b Tooluka terug te zien! Nico is zoals gewoonlijk weer gewapend met camera en speurt alle windrichtingen af naar levende wezens.
-Een vissersvaartuig met een lengte over alles van 12 meter of meer mag de haven slechts verlaten indien het een volledig operationeel REM‑systeem aan boord heeft dat bestaat uit een toereikend aantal in een gesloten circuit aan boord geplaatste camera's (CCTV), een gps‑systeem en sensoren.
-Het is verboden tijdens een visreis waarbij korren aan boord zijn, levende aquatische hulpbronnen aan boord te houden of aan te landen indien niet ten minste 85 % van het totale levende gewicht ervan bestaat uit weekdieren en/of Furcellaria lumbricalis.
-Het is detaak van de werkgever om een risicoanalyse uit te voeren en denoodzakelijke informatie aan werknemers te verstrekken.
-In de loop van zijn 29 jaar in de vechtsport heeft Moshe getraind met enkele van de grootste instructeurs over de hele wereld . Hij is gecertificeerd door Wingate , nationale Martial Arts certificering boord van Israël , en door Itay Gil , zijn leermeester en vriend.
-specifieke instructies te geven waarin gedetailleerd is uiteengezet welke maatregelen moeten worden genomen wanneer een schip ongeschikt wordt bevonden om zich op zee te begeven omdat dit het schip of de personen aan boord in gevaar zou brengen of wanneer het schip buitensporige schade toebrengt aan het mariene milieu of een bedreiging vormt voor dit milieu;
-Daar staat name lijk: „Wij beschouwen de EVA als ons belangrijkste platform voor multilaterale onderhandelingen met de EG.
-Ringzegens bijvoorbeeld, mogen niet meerlanger dan 800 m en breder dan 120 m zijn (behalve voortonijnvissers); het aantal korven voor diepzee-schaaldierenmoet kleiner zijn dan 250 en het aantal vishaken voorbeugen die op zwaardvis vissen kleiner dan 3 500.
-eenmalige compensatie voor vissers die gedurende ten minste twaalf maanden als visser hebben gewerkt, op voorwaarde dat het vaartuig waarop de begunstigden werkten, de visserijactiviteit definitief beëindigt in de zin van artikel 23.
-Goederen die het douanegebied van de Unie over zee of door de lucht binnenkomen en die aan boord blijven van hetzelfde vervoermiddel, worden alleen in de haven of luchthaven waar zij worden gelost of overgeladen bij de douane aangebracht.
-In de Gemeenschap zijn er ook sectoren die bij voorbeeld totaal atypisch zijn voor deze richtlijn, namelijk arbeid aan boord op schepen of op boorplatforms. Hier bevindt men zich namelijk 24 uren per etmaal op het werk zonder naar huis te kunnen.
-Richtlijn 2003/24 houdende wijziging van Richtlijn 98/18/EG inzake veiligheidsvoorschriften en -normen voor passagiersschepen die voor binnenlandse reizen worden gebruikt7, omvat specifieke eisen ten behoeve van PBM’s, in het bijzonder met betrekking tot de toegang tot het schip, wegwijzers, middelen om mededelingen te doen, alarmsystemen en bijkomende eisen om de mobiliteit binnen het schip te verzekeren.
-Ik weet wel, dat eenige duikers het 57 seconden uithouden, en zeer bekwame zelfs 87, maar dit zijn uitzonderingen, en als die ongelukkigen weer in de schuit komen, dan loopt hun het water, met bloed vermengd, uit neus en ooren.
-Vis uit het gereglementeerde gebied van de NAFO die niet de in bijlage X vermelde minimummaat heeft, mag niet worden verwerkt of aan boord worden gehouden, noch worden overgeladen, aangevoerd, vervoerd, opgeslagen, verkocht, uitgestald of te koop aangeboden, maar moet onverwijld in zee worden teruggezet.
-Minoan Lines heeft het genoegen alle passagiers reizend in Deluxe cabines of Junior Suites op de ferries “Cruise Europa” en “Cruise Olympia” (van/naar Ancona) gratis toegang tot het wellness center aan boord aan te bieden. In de aanbieding zijn inbegrepen: workouts in de gym,… Lees meer »
-En natuurlijk de state-of-the-art systemen die op een cruiseschip niet zouden misstaan!'Alphatron levert diverse varianten van het Cabin Entertainment System, dat altijd gebaseerd is op IPTV, zodat TV en films in elke hut beschikbaar zijn.
-- Mijnheer de Voorzitter, mevrouw de commissaris, mijnheer de fungerend voorzitter van de Raad, dames en heren, ik wil de rapporteur voor het nabuurschapsinstrument, de heer Szymański, ervoor bedanken dat hij zoveel suggesties van onze commissie heeft overgenomen. Daardoor heeft het Commissievoorstel aan waarde gewonnen.
-Het is mijns inziens onze verantwoordelijkheid te beslissen of wij restricties gaan opleggen of stapsgewijze ontwikkelingen gaan toestaan. Het is aan ons te beslissen of wij eventueel bereid zijn de daarmee verband houdende risico' s te aanvaarden, zonder te proberen onze eigen ethische principes op te leggen - voor zover deze er zijn - en deze door te laten gaan voor beschavingsprincipes.
-De schatten van de Tempeliers werden aan boord van schepen gebracht die vanuit de haven van La Rochelle naar Schotland voeren. Er wordt gesuggereerd dat de Ark des Verbonds uiteindelijk begraven zou liggen in Rosslyn Chapel gebouwd door Sir William St. Sinclair in1456.
-Tevens wil ik verwijzen naar een andere kwestie die door de media naar voren is gebracht en die aanleiding geeft tot de nodige zorg, namelijk de aanwezigheid van veiligheidspersoneel op vluchten naar de Verenigde Staten. Dit is een extreme maatregel, die allerlei bezwaren met zich meebrengt.
-„scheepsveiligheidsbeambte”: een zich aan boord van een schip bevindende, aan de kapitein verantwoording verschuldigde persoon, die door de maatschappij is aangesteld als verantwoordelijke voor de beveiliging van het schip, inclusief uitvoering en onderhoud van het scheepsveiligheidsplan, en voor het contact met de veiligheidsbeambte van de maatschappij en de veiligheidsbeambten van de havenfaciliteit;
-Maar er is wel meer overtuiging nodig en er is ook behoefte aan grotere stiptheid in de financiële hulpverlening: van de 720 miljoen dollar die de Europese Unie had toegezegd, is maar een derde, dat wil zeggen 240 miljoen, tot nu toe in handen van de Palestijnen terechtgekomen.
-Voor de toepassing van de regeling inzake restituties bij de uitvoer worden visserijprodukten van oorsprong uit de Gemeenschap die zijn bevroren en/of verwerkt aan boord van een in een derde land ingeschreven of geregistreerd en de vlag van een derde land voerend vaartuig gelijkgesteld met produkten die niet van oorsprong zijn uit de Gemeenschap .
-Ik steun in het bijzonder het verzoek aan de Commissie om een onderzoek uit te voeren en voor te leggen naar communautaire arbeids-, gezondheids- en veiligheidswetgeving en de eerbiediging van de sociale rechten van werknemers op dit soort vaartuigen, en naar hun leef- en arbeidsomstandigheden aan boord.
-Boven het jaarlijkse niveau is het ad-valoremrecht van toepassing.
-Er is veel bergruimte in de boot zodat een lang verblijf aan boord mogelijk is.Voor wie een degelijk gebouwd en uitstekend onderhouden motorjacht zoekt is deze Nimbus 3000 AK zeker het overwegen waard. We willen u dan ook van harte uitnodigen voor een bezichtiging in Lelystad (NL).
-Daarbij gaat het met name om bijzondere informatie over uitgebreidere inspecties die aan boord van schepen zowel door de autoriteiten in de havenstaat en de classificatiebureaus worden verricht, en een verklaring van de maatregelen welke door de autoriteiten in de havenstaat of de betrokken classificatiesbureaus zijn genomen in aansluiting op een bevel tot aanhouding uit hoofde van de richtlijn.
-Onder de specifieke structurele omstandigheden van de elektriciteitsproductie in de betrokken regio, dat wil zeggen de noordse elektriciteitsmarkt die Zweden, Denemarken, Finland en Noorwegen omvat, zal het gebruik van stroom van het walnet in plaats van stroom die wordt opgewekt door de verbranding van bunkerbrandstoffen aan boord, naar verwachting CO2-emissies verminderen.
-Kapiteins, eerste stuurlieden, hoofdwerktuigkundigen, tweede werktuigkundigen en iedereen die verantwoordelijkheid draagt voor de veiligheid van passagiers in noodsituaties aan boord van ro-ro-passagierschepen hebben een goedgekeurde opleiding in crisisbeheer en menselijk gedrag voltooid, zoals omschreven in sectie A‑V/2, lid 5, van de STCW-Code.
-Ik ben ook blij dat rekening gehouden wordt met de concrete voorstellen van het Parlement. Zo is het bijvoorbeeld belangrijk dat de kaart die aan de gehandicapte chauffeur gegeven wordt, geldig is voor het gebruik van om het even welk voertuig dat hij bestuurt, zodat de kaart niet elke keer vernieuwd hoeft te worden wanneer de gehandicapte een ander voertuig bestuurt.
-Voor nadere informatie: André Riche (Straatsburg) Tel.:(33-3) 881 73840 (Brussel) Tel.:(32-2) 28 40992 e-mail: en vi-press @europarl.eu.int .eu.int uitvoeringsmaatregelen worden genomen door de Commissie, die zich laat bijstaan door een regelgevend comité.
-De heer Marques Mendes (LDR), rapporteur. - (PT) Mijnheer de Voorzitter, geachte commissaris, geachte afgevaardigden, ik wil slechts een paar korte aantekeningen maken bij de presentatie in dit Parlement van hun advies van de commissie sociale /aken over het gemeen schappelijk standpunt van de Raad.
-Het is verboden sleepnetten of soortgelijke netten, kieuwnetten of omringende netten te gebruiken of aan boord te hebben, tenzij de maaswijdte in het gedeelte van het net met de kleinste mazen gelijk is aan of groter dan een van de in bijlage III genoemde minimummaaswijdten.
-De lidstaten zorgen ervoor dat vissersvaartuigen die hun vlag voeren en in de Unie geregistreerd zijn, wanneer ze één van de in punt 2 vermelde vistuiggroepen aan boord hebben, niet langer dan het in punt 6 bepaalde aantal dagen aanwezig zijn in het gebied.
-Als algemeen beginsel mogen de maatregelen die ter uitvoering van deze richtlijn zijn vastgesteld, in geen geval een rechtvaardigingsgrond geven voor een vermindering door een lidstaat van het algemene beschermingsniveau die zeevarenden genieten aan boord van onder de vlag van een lidstaat varende schepen uit hoofde van het toepasselijke sociaal recht van de Unie.
-We zouden zeer graag zien dat de verpakkingsrichtlijn zeer snel tot stand komt. We beschouwen de pogingen van het Europees Parlement om hem in dit stadium op enkele punten te amenderen als zeer waardevol en we feliciteren de heer Vermati met het harde werk dat hij heeft verricht.
-Alle niet verwerkte of aan boord verwerkte visserijprodukten die in de Gemeenschap worden aangevoerd of ingevoerd en die naar een andere plaats dan de aanvoerplaats of invoerplaats worden vervoerd, gaan vergezeld van een door de vervoerder opgesteld document totdat de eerste verkoop heeft plaatsgevonden.
-De belangrijkste wijzigingen betreffen een verdere beperking van de uitlaatemissies van scheepsmotoren, de verplichte installatie aan boord van tanks of behandelsystemen voor afvalwater en de aanpassing aan de vereisten van het nieuwe Europese wettelijk kader voor het verhandelen van geharmoniseerde producten (Besluit nr. 768/2008/EG en Verordening 765/2008/EG).
-De visserij op schol in de wateren van de ICES-sectoren VII f en VII g door vaartuigen die de vlag van België voeren of die in België zijn geregistreerd, alsmede het aan boord houden, het overladen en het lossen van vis uit dit bestand die door deze vaartuigen is gevangen vanaf de datum waarop deze verordening van toepassing wordt, zijn verboden.
-De veiligheidsaccreditatie van systemen door de Raad voor de veiligheidsaccreditatie bestaat erin vast te stellen dat de systemen in overeenstemming zijn met de beveiligingsvereisten als bedoeld in artikel 13 van Verordening (EG) nr. 683/2008 en met de toepasselijke beveiligingsvoorschriften en -regelingen van de Raad en de Commissie.
-De weigering van het interventiebureau was gegrond op het feit dat deze organisaties niet aan de in verordening (EEG) nr. 103/76 van de Raad gestelde handelsnormen voldeden voor ten verkoop aangeboden en niet uit de markt genomen vis van dezelfde soort als de uit de markt genomen vis.
-De commerciële visserij op zandspiering met bodemtrawls, zegennetten of soortgelijk gesleept vistuig met een maaswijdte van minder dan 16 mm is in de ICES-sectoren 2a en 3a en ICES-deelgebied 4 verboden van 1 januari tot en met 31 maart 2018 en van 1 augustus tot en met 31 december 2018.
-3.5.1 Volgens het EESC kunnen ondernemingen – met name het MKB – veel baat hebben bij N & N-onderzoekactiviteiten en de verspreiding en overdracht van technologie, met name dankzij de integratie van energiebesparings- en milieutechnologieën, IT-nanotechnologieën, nieuwe materialen, toegepast op processen, producten en diensten, en convergerende nano-bio-info-technologieën.
-Daarnaast heeft hij onderstreept dat een EU-strategie op middellange en lange termijn moet worden uitgestippeld die verenigbaar is met de beoogde 2°C. Wat dat betreft denk ik dat de Raad alleszins tegemoetkomt aan de door u geuite zorgen en dat hij de oplossingsrichtingen al naargelang van de verschillende sectoren waar u op zinpeelde, overneemt.
-Wanneer een exploitant van veerboten goederen laadt in lidstaat A en deze vervolgens aan boord wenst te verkopen terwijl de veerboot zich in internationale wateren bevindt op weg van lidstaat B naar lidstaat C, is er geen rechtsgrondslag voor de belasting van deze verkopen tegen het in lidstaat A toepasselijke tarief.
-Weekendtocht – Willem Jacob nl en de Tochten Vaargebied Het schip Catering Informatie Offerte 050 211 18 63 Weekendtocht Dagtocht Weekendtocht Week trip Individueel Winter Familiedag Trouwen Bedrijfsuitje zeilen Weekend Zeilen Vrijdagavond: Ontvangst aan boord om 20.00 uur met koffie en thee, daarna wordt u door de bemanning scheepswijs gemaakt.
-Het voorstel voor een richtlijn beoogt eveneens te waarborgen dat het aantal opvarenden niet groter is dan de maximale passagierscapaciteit van het schip. Voorts wordt gewaarborgd dat de gegevens over de passagiers ter beschikking worden gesteld van de zoek- en reddingsdiensten bij een ongeluk en wordt zorg gedragen voor een eerlijke concurren­tie tussen maatschappijen die op dezelfde zeeroutes varen.
-5.4.1 In artikel 14, lid 1, van Verordening (EG) nr. 1224/2009 over het invullen en overleggen van het visserijlogboek, wordt de volgende passage geschrapt: "waarin zij met name alle hoeveelheden van elke gevangen en aan boord gehouden soort vermelden boven de 50 kg equivalent levend gewicht".
-Verschillende institutionele partners - waaronder onze eigen 27 lidstaten - , wetenschappers en ngo's hebben zich bij CITES aangesloten en het zo onmogelijk gemaakt dat ernstig bedreigde diersoorten worden gevangen en verhandeld. De Siberische tijger, de blauwe vinvis en de Afrikaanse olifant zijn op die wijze voor uitsterven behoed.
-Het maximum aantal in een lidstaat geregistreerde tonnara's en vissersvaartuigen die de vlag voeren van een lidstaat en blauwvintonijn mogen bevissen, aan boord houden, overladen, vervoeren of aanlanden, wordt bepaald overeenkomstig het Verdrag en artikel 16 van Verordening (EU) nr. 1380/2013.
-Den volgenden morgen vroeg kwamen twee man van de vijf aan boord zwemmen, en terwijl zij allerbitterst over de andere drie klaagden, smeekten zij dat men hen, om Gods wil, aan boord zou nemen, want dat zij vermoord zouden worden; en of de kapitein hen aan bood wilde laten komen, al liet hij hen ook dadelijk ophangen.
-Krachtens punt 9 van die bijlage kan de Commissie extra dagen toekennen waarop een vaartuig in dat gebied aanwezig mag zijn terwijl het dergelijke boomkorren of staande netten aan boord heeft, op basis van de definitieve beëindiging van visserijactiviteiten sinds 1 januari 2004.
-De visserij op haring in de wateren van de ICES-sectoren V b, VI aN en VI b door vaartuigen die de vlag van Frankrijk voeren of die in Frankrijk zijn geregistreerd, alsmede het aan boord houden, het overladen en het lossen van vis uit het bestand dat door deze vaartuigen is gevangen vanaf de datum waarop deze verordening van toepassing wordt, zijn verboden.
-De kapitein, of diens vertegenwoordiger, van een communautair vissersvaartuig dat een haven of een aanlandingsplaats van een lidstaat wil aandoen met meer dan 1 ton heek aan boord, stelt de bevoegde autoriteiten van die lidstaat ten minste vier uur vooraf in kennis van:
-Voorts moeten de bestaande opleidingsinstellingen worden aangemoedigd netwerken aan te gaan en zouden in het kader van Erasmus + meer projecten moeten worden ingediend die verband houden met de toeristische sector.
-– Mijnheer de commissaris, mijnheer de Voorzitter, geachte afgevaardigden, het is terecht dat we zo lang over de veiligheid van de burgerluchtvaart gediscussieerd hebben. Het was gewoon de hoogste tijd om de nieuwe situatie te verdisconteren.
-Op dezelfde wijze als voor de oprichting van de gemeenschappelijke afwikkelingsraad vallen de ambten die voor de uitbreiding van de taken van dit nieuwe orgaan nodig zijn, buiten het bereik van het streefdoel van 5 % personeelsvermindering dat in de mededeling van de Commissie aan het Europees Parlement en de Raad COM(2013) 519 van 10 juli 2013 is vastgelegd.
-Sneller BIM adopteren kan helpen meer contracten binnen te halen, en ze efficiënter af te werken.Staaltekenaars die nog steeds in 2D werken of die een algemene 3D CAD applicatie (zonder BIM data) gebruiken zullen zich wat meer moeten aanpassen want de omschakeling naar een volledig 3D staalbouw oplossing is noodzakelijk, maar zij hebben er ook het meeste bij te winnen.
-Artikel 6 - amendement 31: de tekst van het gewijzigde voorstel, betreffende de vertrouwelijkheid, is overgenomen, waarbij deze echter zodanig is aangepast dat de niet‑vertrouwelijke aspecten van inschrijvingen openbaar kunnen worden gemaakt overeenkomstig het toepasselijke nationale recht, wat met name van belang is voor bepaalde gegevens die in aankondigingen van geplaatste opdrachten worden vermeld.
-6.3.2 Wat betreft het verbod op het aan boord hebben of gebruiken van meer dan 250 korven of kubben per vaartuig voor de vangst van schaaldieren in diep water (met inbegrip van Plesionika spp.), is het EESC van mening dat het voor deze soort garnalen mogelijk zou moeten zijn om het huidige aantal toegestane korven - nl. 500 - te handhaven.
-In afwijking van de punten 1 en 2 is het communautaire vaartuigen met een lengte over alles van minder dan 12 m toegestaan ten hoogste 10 % kabeljauw levend gewicht aan boord te houden en aan te voeren bij de visserij met kieuwnetten, warnetten en/of schakelnetten met een maaswijdte van 110 mm of meer.
-De vennootschap Precam te Antwerpen en elf andere ladingbelanghebbenden hebben een vordering ingesteld bij de Rechtbank van koophandel in Gent tegen een Zwitserse en twee Duitse vennootschappen in hun hoedanigheid van, respectievelijk, rederij en vervoerders, tot schadevergoeding wegens manco na een zeevervoer van Afrika naar Gent per m.s. „Regina".
-Zeevarenden kunnen binnen twee jaar na de inwerkingtreding van het STCW-verdrag voor een lidstaat worden geacht aan de in punt 2.2 vervatte eisen te hebben voldaan, indien zij in een periode van ten minste één jaar binnen de voorafgaande vijf jaar in een desbetreffende functie dienst hebben gedaan aan boord van het betreffende type tankschip.
-zeevarenden die werken op schepen die zijn vlag voeren hebben een door zowel de zeevarende als de reder of een vertegenwoordiger van de reder ondertekende arbeidsovereenkomst zeevarenden (of, wanneer zij geen werknemers zijn, een bewijs van contractuele of soortgelijke afspraken) waarin, overeenkomstig deze overeenkomst, in behoorlijke leef- en werkomstandigheden aan boord van het schip wordt voorzien;
-Met salmonella besmette goederen kunnen worden te ruggestuurd naar het land van herkomst, maar eerst moet de bevoegde autoriteiten aldaar om toestemming
-Overweging 31 en artikel 26 - amendementen 10 en 127: de tekst van het gewijzigde voorstel, betreffende de voorwaarden voor de uitvoering van de opdracht (overweging 29 en artikel 26 bis) en met name het gebruik van deze voorwaarden voor sociale doeleinden of voor milieudoeleinden, is ongewijzigd overgenomen, behoudens een kleine wijziging van strikt taalkundige aard in de overweging.
-a) voor de uitrusting wordt door de Lid-Staat die vlaggestaat is een certificaat verstrekt dat de uitrusting te allen tijde dient te vergezellen en dat behelst dat de Lid-Staat die vlaggestaat is toestemming geeft die uitrusting aan boord van het communautaire schip te plaatsen, met vermelding van eventuele beperkingen of bepalingen met betrekking tot het gebruik van de uitrusting;
-Governance Corporate Governance Intern bestuur Triodos Corporate Governance Code Code Banken Verklaring Bericht van de Raad van Commissarissen Activiteiten Interne organisatie Commissies Vergaderingen Zelfevaluatie Ontwikkelingen Competentiematrix Bericht van het Bestuur van SAAT SAAT Overzicht van de certificaten BiografieënTriodos Bank Nederland Home Feedback Feedback Wij verzoeken u ons te laten weten wat u van dit jaarverslag vindt, zodat we het in de toekomst kunnen verbeteren.
+- Welkom aan boord van de Pegasus.
+Er is iemand aan boord wiens vader Linnets vader haatte.
+De in artikel 60, lid 3, in samenhang met artikel 60, lid 1, van Verordening (EG) nr. 1224/2009 bedoelde steekproevenplannen van Duitsland, Ierland, Litouwen, Nederland en het Verenigd Koninkrijk voor de weging van visserijproducten aan boord van het vissersvaartuig worden goedgekeurd.
+Het doet me daarom deugd dat de heer Herman dit vraagstuk in punt 15 en 16 aankaart,
+Zorgen ervoor dat uw productielijnen of boordsystemen zonder onderbreking blijven werken tijdens de vervanging.
+de samenstelling van de totale aan boord aanwezige vangst, met als doel de naleving van de bijvangstvoorschriften te controleren en in het geval van met de beug vissende vaartuigen, de tenuitvoerlegging van relevante beheersmaatregelen;
+Pas als je dit verslag leest, begrijp je een beetje hoe uiteenlopend de huidige systemen in de Gemeenschap zijn; wij moeten met die systemen omgaan op een manier die recht doet aan de verschillende omstandigheden die in de diverse lidstaten heersen.
+Met produkten die door tax-free shops worden geleverd, worden gelijkgesteld de produkten die aan boord van een vliegtuig of een schip tijdens intracommunautair reizigersvervoer worden geleverd.
+De vrijstelling van invoerrechten voor bevroren visfilets geldt slechts indien IJsland zich houdt aan de door de Gemeenschap ingestelde referentieprijzen, alsmede aan de door de Gemeenschap krachtens artikel 25 bis van Verordening (EEG) nr. 2142/70 van de Raad van 20 oktober 1970 laatstelijk gewijzigd bij de Akte betreffende de toetredingsvoorwaarden en de aanpassing der Verdragen, vastgestelde maatregelen ter voorkoming van onstabiele prijzen en ongelijkheid in de concurrentievoorwaarden tussen de aan boord diepgevroren vis en de aan land diepgevroren vis en ter opheffing van de moeilijkheden die met betrekking tot het evenwicht in de bevoorrading zouden kunnen optreden.
+(a) geen krachtens de artikelen 5 en 28 vereiste inventaris van gevaarlijke materialen aan boord hebben;
+Het in tabel I van bijlage IIC bij Verordening (EU) nr. 39/2013 vastgestelde maximumaantal dagen dat een vissersvaartuig dat de vlag van Frankrijk voert en boomkorren met een maaswijdte van 80 mm of meer aan boord heeft of gebruikt, in ICES-sector VIIe aanwezig mag zijn, wordt voor de periode van 1 februari 2013 tot en met 31 januari 2014 verhoogd tot 175 dagen per jaar.
+initiële scholing en bijscholing van de Eures-adviseurs in de lidstaten;
+Het werd aangevuld met het e-Europe+-initiatief, dat de kandidaat-lidstaten hebben gelanceerd naar aanleiding van de oproep van de Europese Raad van Santa Maria da Feira om de strategie van Lissabon over te nemen.
+De richtlijn bepaalt dat uitrusting die na 1 januari 1999 aan boord van communautaire schepen is geplaatst door "aangemelde instanties" dient te worden beproefd om te zien of zij voldoet aan de voorschriften van de normen in de bijlage bij de richtlijn, opgesteld door internationale normalisatie-organisaties.
+Je annuleert onze lunches, slaat bestuursvergaderingen over, en nu heb ik het voorrecht om jou twee keer op een dag te zien?
+Of het nu gaat om een lichte snack of een drie-gangen maaltijd, vergezeld door een fles goede wijn, dineren aan boord van Superfast Ferries is een culinaire ervaring.
+Een bijzonder probleem is de vrij unieke situatie aan boord van schepen, waar werk en privé moeilijk van elkaar te scheiden zijn, dit in tegenstelling tot de situatie die gangbaar is bij de meeste andere economische activiteiten.
+In elke lidstaat is een enkele autoriteit verantwoordelijk voor het verzamelen en verifiëren van de informatie over visserijactiviteiten met inbegrip van het aan boord van vissersvaartuigen plaatsen van waarnemers, voor het nemen van passende besluiten met inbegrip van het verbieden van visserijactiviteiten en voor de verslaglegging aan en de samenwerking met de Commissie.
+Het verzoek van het CvdR zal naar verwachting worden gehonoreerd door de Europese Commissie, die aan een ontwerpplan voor de bescherming van de Europese wateren in 2012 werkt.
+Het alternatief is een aparte riooltank met voldoende capaciteit aan boord te plaatsen om het vervolgens in een haven af te geven.
+c) energieproducten die worden geleverd voor gebruik als brandstof voor de vaart op communautaire wateren (met inbegrip van visserij) en niet voor gebruik aan boord van particuliere pleziervaartuigen, en aan boord van een vaartuig opgewekte elektriciteit.
+Φ Algemene maatregelen aan iti Medische hulpverlening boord van schepen
+Alles aan- of uitschakelen is één van deze vele mogelijkheden.Configuratie: via PC Kenmerken Specificaties Gebruikershandleiding meerdere gebruikersmodi: momentbediening, aan/uit, start/stop timer, trappenhuisautomaat, niet-herstartbare timer, uitschakelvertraging, inschakelvertraging, timer starten bij loslaten drukknop, timer met knippereffect, 2-tijden timer... timerfuncties (via de Velbus-Link software en de USB/RS232 interface (VMB1USB, VMB1RS of VMBRSUSB)) 250 mogelijke ID-adressen on-board drukknoppen voor testdoeleinden Velbus®-aansluiting breedte van 4 modules op de DIN-rail mogelijkheid om de firmware te upgraden via het Velbus®-systeem
+Reeds voor de vaststelling van de richtlijn beschikte het merendeel van de lidstaten over specifieke wetgeving inzake de gezondheid en veiligheid aan boord van vissersvaartuigen.
+Advocaat­generaal F. G. Jacobs heeft ter terechtzitting van het Hofvan 13 november 1997 conclusie genomen.
+naam van de verantwoordelijke kapitein;
+De Rijn is het onderwerp van een aantal besluiten van de Raad: fundamenteel ¡s het besluit over de overeenkomst
+hij gaat zorgvuldig om met de goederen en de installaties aan boord van het vaartuig, en bewaart geheimhouding over alle documenten van het betrokken vaartuig.
+Bovendien bestaat er voldoende regelgeving die handbagage verbiedt die niet veilig kan worden weggeborgen. Ik kan dit weten, want ik heb 26 jaar als cabinepersoneelslid gewerkt.
+aan boord moet het juiste materiaal aanwezig zijn om de bij toeval of als bijvangst gevangen zeeschildpadden overboord te zetten.
+Een officier wil met u te praten.
+Aan boord was Kodus, een briljant wetenschapper... en maker van het programma van het afweerschild.
+Geluidsmetingen aan boord van vaartuigen:
+Dat geldt overigens ook voor het geval van een noodzakelijke redding of hulpverlening na een ongeval. In een land, dat tegenwoordig gelukkig niet meer bestaat, heb ik goede ervaringen opgedaan met rijlessen waarin ook een EHBO-cursus was opgenomen.
+Binnendeuren op de doorgaande route die bedoeld zijn voor gebruik door de reizigers tijdens het normale bedrijf en die ook geopend kunnen worden als de stroom uitvalt, worden geacht het verkeer van reizigers en personeel niet te belemmeren.
+Deze toestemming van de autoriteiten van het land van verzending werd als noodzakelijk beschouwd opdat de autoriteiten weten waar de aangetaste partij zich bevindt en kunnen voorkomen dat deze goederen in de handel worden gebracht.
+Word eens wakker.
+Loftus Hall Wells House and Gardens Tintern Abbey Het eeuwenoude oosten van Ierland Reis terug in de tijd met de Dunbrody Famine Ship Experience , een replica van de Dunbrody, een 19e-eeuws schip dat hongersnoodvluchtelingen naar Amerika bracht.
+Door deze innovatie in de programma’s voor 2000-2006 konden de lidstaten de programma’s ook aanpassen aan wijzigingen in de algemene sociaal-economische situatie of aan wijzigende arbeidsmarktvoorwaarden, en konden zij rekening houden met de resultaten van de evaluaties halverwege de looptijd.
+Onderdanen van derde landen die werken op onder de vlag van een lidstaat varende schepen moeten een soortgelijke behandeling krijgen als de onderdanen van lidstaten die op deze schepen werken (vlaggenstaatvoorwaarden).
+Het komt positiever en constructiever over indien duidelijk blijk wordt gegeven van de wens om rekening te houden met de conclusies teneinde de voorgestelde richtlijn eventueel te wijzigen.
+over de praktische tenuitvoerlegging van de Richtlijnen 93/103/EG (vissersvaartuigen) en 92/29/EEG (medische hulpverlening aan boord van schepen) inzake de gezondheid en veiligheid op het werk
+(b) alle verwerkte vangst zo in het ruim op te slaan dat de plaats van elke soort kan worden achterhaald aan de hand van een aan boord van het vissersvaartuig gehouden opslagschema.
+Artikel 21, lid 1, sluit de toepassing van artikel 8 over de "duur van de nachtarbeid" van de richtlijn uit voor werknemers aan boord van zeevissersvaartuigen.
+Het lijkt wel of je aan boord bent van een groot ruimteschip.
+Sarah Cowling, CEO van Healthworks zei: "Het hebben van Sir Michael aan boord is de beste start 2014 we ooit hadden gehoopt.
+Aan boord hadden deze schepen verschillende stukken atillerie, één of meerdere gevechtstorens en natuurlijk de bekende Romeinse enterbrug, met stalen punt aan de voorkant.
+Teneinde een nuttige functie te hebben, dient het Europees programma voor cultuur ruim opgezet en flexibel te zijn, om zo een plaats te bieden aan al die nieuwe cultuuruitingen en cultuurbeoefenaren die nu hun opwachting maken, vervolgens een andere vorm aannemen en tot slot, net zo snel als ze ontstaan zijn, verdwijnen.
+Voorstel voor een richtlijn van de Raad inzake veiligheidsvoorschriften en -normen voor passagiersschepen.
+Waarnemers aan boord leder vaartuig neemt hoogstens één waarnemer aan boord die wordt meegerekend voor het percentage van 25 % Mauritaanse zeelieden.
+. Mijnheer de Voorzitter, mevrouw de commissaris, dames en heren, ten eerste wens ik collega Sérgio Marques geluk met zijn uitstekende verslag en met het feit dat hij de voorstellen van de Commissie visserij in zijn verslag heeft overgenomen.
+Uit het voortgangsverslag blijkt dat de basis gedachte van het vijfde programma wortel heeft geschoten en op verschillende wijzen tot ontplooiing is gekomen bij de betrokkenen, die ook meer en meer een gezamenlijke verantwoordelijkheidsbesef hebben gekregen.
+Delegatie van het Parlement Ín het bemiddelingscomité Rapporteurs: Gerardo GALEOTE QUECEDO; Karsten HOPPENSTEDT
+De enige mensen die aan boord waren toen de sleutel werd gestolen, waren bemanningsleden.
+We hebben die kwesties bij ons herzieningsproces betrokken.
+Echter een gemeenschappelijke actie in het kader van het GBVB ver eist unanimiteit in de Raad en verzwakt daardoor de positie van het Europees Parlement.
+Gelet op de verstrekte informatie moet aan Denemarken en het Verenigd Koninkrijk een extra dag worden toegekend voor vissersvaartuigen die vistuig zoals bedoeld in punt 4, onder a), van bijlage IVa bij Verordening (EG) nr. 27/2005, met een maaswijdte van meer dan 120 mm, aan boord hebben,
+Minimumaantal cabinepersoneelsleden die aan boord van een vliegtuig moeten zijn tijdens grondactiviteiten met passagiers
+ATES is de belangrijkste fabrikant in het Alcatel-concern van ruimteelektronische uitrusting aan boord van satellieten en/of ruimtevaartuigen.
+Dat betekent op termijn het aanpassen van de installaties aan boord.
+met het ingebouwde laadapparaat, indien aanwezig,
+Er zijn ook verhalen bekend van vliegtuigen die na aankomst door een andere tijdzone leken te zijn gereisd omdat alle horloges aan boord met exact dezelfde tijd achter liepen.
+Op 12 augustus 1920 ging ik met broeder Rutherford en anderen van het Genootschap naar Europa aan boord van het stoomschip Imperator.
+[Item of the Day] Balinezen in opstand In september 1782 kwam een groep van 79 Balinese slaven aan boord van het VOC-schip Mercuur in opstand.Ze verdroegen het niet langer door de bemanning met soms grof geweld als slaaf behandeld te...
+Neem in de reddingssloepen zoveel mogelijk van de normale uitrusting van het schip mee (dekens, enzovoort)
+Hij besloot het en hij kreeg Liv zover mee te doen... en Verna en mij.
+Jeffrey Reiner sloot een overeenkomst met Universal Media Studios en werd aangenomen als regisseur en uitvoerend producent.
+Voor vaartuigen die hun activiteiten richten op de vangst van koppotigen (Cephalopoda) mag de totale, in de visscrijzonc van Guinée-Bissau gerealiseerde vangst voor niet meer dan 5% uit schaaldicren en voor niet meer dan 30% uit vis bestaan.
+d) Vissersvaartuigen mogen tijdens visreizen combinaties van sleepnetten aan boord hebben waarvan de maaswijdteklassen niet in overeenstemming zijn met de bepalingen onder a) of b), op voorwaarde dat alle netten die niet voldoen aan die bepalingen, geborgen zijn overeenkomstig artikel 20, lid l, van Verordening (EEG) nr. 2847/93.
+Zalm en zeeforel mogen niet aan boord worden gehouden, noch worden overgeladen, aangevoerd, vervoerd, opgeslagen, verkocht, uitgestald of te koop aangeboden, maar moeten onmiddellijk in zee worden teruggezet:
+Ook deze voertuigen zijn uitgerust met elektrische motoren, maar de elektriciteit wordt aan boord van het voertuig opgewekt door brandstofcellen die waterstof gebruiken, waarbij uitsluitend waterdamp wordt uitgestoten.
+Aan boord beschikt u over warm water en Webasto-heteluchtverwarming in alle vertrekken.
+De aan boord gehouden of aangevoerde vangst moet voor minstens 40 % bestaan uit garnaal (Pandalus montagui, Crangon spp. en Palaemon spp.) en fluwelen zwemkrab, ongeacht in welke verhouding;
+De kapiteins van de Unievissersvaartuigen vergemakkelijken het aan boord gaan en de werkzaamheden van de Senegalese inspecteurs.
+tussen twee en drie zeemijlen van de basislijn, de gevoeligheid van de ontvangstapparatuur en de drempel voor het verbreken van de verbinding (ACCMIN [2] en min RXLEV [3]-niveau) van het mobiele eindstation dat gebruikt wordt aan boord van het vaartuig moet gelijk zijn aan of hoger dan – 70 dBm/200 kHz en tussen drie en twaalf zeemijl van de basislijn gelijk aan of hoger dan – 75 dBm/200 kHz;
+De ruime opzet en de hoeveelheid opbergruimte maken een lang verblijf aan boord zeker mogelijk.Interesse in dit goed onderhouden en ruime schip? Neemt u dan gerust contact op om een afspsraak te maken voor een bezichtiging in Werkendam.
+Hij kwam met Sinclair mee.
+1.4. de vergunning moet steeds nan boord zijn; vanaf de ontvangst van de kennisgeving vnn de Commissie aan de autoriteiten vnn de Seychellen dat het voorschot is betnnld, wordt het vanrtuig evenwei opgenomen op een lijst van vangstgerechtigde vaartuigen die nan de met de visserijcontrole belaste autoriteiten vnn de Seychellen wordt meegedeeld.
+die of dat zich aan boord van schepen, vliegtuigen en treinen bevindt om daar te worden verbruikt;
+Artikel 14
+Allereerst ben ik blij met de warme woorden die de Raad heeft gesproken over de samenwerking met het Parlement, maar liever nog zou ik zien dat de Raad de aanbevelingen van het Parlement overneemt, want ook ik stel vast, net als mijnheer Albrecht, dat de Raad zich eigenlijk redelijk doof houdt en gewoon doorgaat op de eigen koers, en dat het Parlement hard werkt om een standpunt in te nemen, zonder dat dit daarna terugkomt in het Raadsprogramma.
+De twee vissersboten met haaienvinnen kregen elk een boete van 250.000 euro, terwijl de andere boot 350.000 euro moet betalen.De vangst van alle boten werd door de Guineese autoriteiten in beslag genomen. Behalve haaienvinnen trof Greenpeace aan boord van deze schepen ook verschillende karkassen van haaien aan, waaronder de bedreigde hamerhaai, en manta's."Totaal gebrek aan respect voor de wet" Ahmed Diame van Greenpeace Afrika spreekt van een totaal gebrek aan respect voor de West-Afrikaanse visserijwetgeving.
+Ja, omdat deze trein verongelukt en het iedereen op deze trein dood inclusief ons.
+3.3.4 De perifere en maritieme regio's die lid zijn van de CPMR (Conferentie van de perifere en maritieme regio's), en het CvdR hebben er al herhaaldelijk bij de Europese Commissie op aangedrongen om het initiatief te nemen tot een Territoriaal Pact, waardoor alle economische groepen in de Europese regio's nauwer kunnen worden betrokken bij de uitvoering van de Europa 2020-strategie 11.
+Dat je gezin akkoord gaat.
+• Geboortedatum en ­plaats • Functie aan boord
+De heer CHAGAS prijst de inspanningen die hebben geleid tot dit Groenboek, waarin tal van elementen uit het initiatiefadvies van het ESC zijn terug te vinden.
+Dat is' een geval van fraude dat wij in de andere tijdelijke onderzoekscommissie herhaaldelijk hebben aangekaart en ik zou vragen dat dit dossier in elk geval zou opgevolgd worden door de Commissie begrotingscontrole.
+De Groep gegevensbescherming artikel 29 is over het voorstel geraadpleegd en het merendeel van de amendementen inzake de gegevensbescherming zijn al in overweging genomen bij de werkzaamheden van de Raad.
+De Europese Commissie dient met spoed in samenwerking met de lidstaten – en rekening houdend met de adviezen van Europese ondernemingsraden – een zwarte lijst te maken en te verspreiden van ondernemingen en economische en/of financiële groepen die bedrijfsverplaatsingen gebruikt hebben voor het verhogen van hun winst; terugvordering te verlangen van de toegekende steun; en in de komende verordeningen van de Europese fondsen strengere eisen te stellen wat betreft de verdediging van de werkgelegenheid en de regionale ontwikkeling.
+Het tweede gedeelte kan ik echter niet overnemen, omdat ik dat voorstel beschouw als een onaanvaardbare inmenging in de interne aangelegenheden van het Maltese volk.
+In afwijking van de punten 1, 2 en 3 mogen vaartuigen die een visreis van meer dan 2 dagen maken, eenzelfde aantal extra haken aan boord hebben.
+Waarschijnlijk was de strandgaper het eerste dier dat, halverwege de Middeleeuwen aan boord van een Vikingschip, vanuit Amerika werd ingevoerd in Europa.
+Prejudiciële zaak "Vrij verkeer van werknemers — Artikel 39, lid 4, EG — Betrekkingen in overheidsdienst — Kapiteins van vissersschepen — Verlening van bevoegdheden van openbaar gezag aan boord — Aan onderdanen van vlagstaat voorbehouden betrekkingen" (Voltallig Hof)
+Zowel de familie Koornstra als Berkenpas bevonden zich aan boord van ss "Schiedam" dat op 25 september 1889 van Amsterdam naar Argentinië vertrok.Voorts vindt u in dit onderdeel een studie van Dr.
+Van Dam (I-EDN). - Mijnheer de Voorzitter, voorzitter en leden van de Commissie, dat de fraudebestrijding binnen de Europese instellingen sterk moet worden verbeterd, staat buiten kijf.
+De meeste daarvan, zoals administratieve procedures en de flexibiliteit van de financiering, een betere integratie van de verschillende onderdelen van het programma en synergieën met andere financieringsregelingen voor onderzoek en innovatie, zijn reeds aangepakt bij het opstellen van Horizon 2020; verdere aanbevelingen zullen worden opgenomen in latere herzieningen.
+Hier zie je de werkplaats aan boord van de R/V Marion Dufresne, waar al het kernlabelwerk en doorsnijwerk wordt verricht.
+Hogere machineveiligheid met Bosch Rexroth oplossingen.
+4.1.5 Het is noodzakelijk om de burgers op gecoördineerde wijze aan te spreken en hun relevante informatie te verstrekken over de voordelen, mogelijkheden en mechanismen voor de validatie van vaardigheden.
+Overig: Het interieur van deze GIB SEA 105 is afgetimmerd in teak en de bekleding is blauw. Er is een voorkajuit, een salon en een achterkajuit, die slaapplaatsen bieden voor 7 personen.
+“TILLT is een voorbeeld van een nieuwe manier om twee krachten te bundelen en dankzij de synergie tot een nog beter resultaat te komen.”
+— Verordening (EG) nr. 2205/97 (27) van de Raad houdende wijziging van Verordening (EEG) nr. 2847/93, waarbij de verplichtingen voor de vissers in de westelijke wateren zijn uitgebreid met de verplichting om de vangsten aan boord op te geven bij de melding over het binnenvaren en over het uitvaren van het visgebied („hail system");
+Daarnaast moet worden voorkomen dat reders schepen exploiteren met apparaten die in strijd zijn met bestaande octrooien zijn vervaardigd.
+Het MLC bevat vier titels inzake de rechten van zeevarenden: titel 1 betreffende de minimumvereisten om als zeevarende op een schip te mogen werken; titel 2 inzake de arbeidsvoorwaarden; titel 3 betreffende huisvesting, recreatievoorzieningen, voeding en catering; titel 4 inzake de bescherming van de gezondheid, medische zorg, welzijn en sociale zekerheid.
+De goedgekeurde tekst stelt bovendien de aan­wezigheid van een arts verplicht aan boord van elk schip met een bemanning van honderd werknemers of meer, dat een internationale reis van meer dan drie dagen maakt.
+tot de volgende bestemming te zorgen voor veilige en gezonde omstandigheden aan boord;
+Voorzieningen aan boord We hebben voorzieningen voor het verschonen van baby's aan de voor- en achterkant van het vliegtuig.
+Om de prestaties nog verder te optimaliseren, adviseerde het reeds lang als partner actieve Alfa Laval het gebruik van een reserve platenpakket tijdens het reviseren en het vervangen van de pakkingen van de twee titanium lagetemperatuur-koelers, M30 geïsoleerde platenwarmtewisselaars van Alfa Laval, aan boord van het cruiseschip.
+En terwijl de onvergelijkbare natuur van het dal van de Donau aan u voorbijglijdt, wordt u aan boord uitstekend eten, drinken en amusement geboden.
+Dit voorstel gaat over energiebelastingen en met name, alhoewel niet uitsluitend, met betrekking tot het C02-probleem.
+De waarnemer gaat aan boord in een door de reder gekozen haven aan het begin van de eerste visreis die na de mededeling van de lijst van aangewezen vaartuigen plaatsvindt in de Marokkaanse visserijzone.
+De kapitein van het vaartuig mag opmerkingen toevoegen aan het verslag van de waarnemer.
+Sommige materialen die zich aan boord bevinden, kunnen worden gerecycleerd en leveren inkomsten op.
+Behoudens overmacht mogen vissersvaartuigen die geen waarnemer aan boord hebben, niet beginnen te vissen in het gereglementeerde NAFO-gebied, noch er de visvangst voortzetten.
+Ik geef dat toe, maar ik spreek hier ook over een periode waarin de inkomens buiten de landbouw ontegenzeggelijk even eens in koopkracht zijn gedaald.
+Houders van een LAPL voor luchtballonnen zijn bevoegd om op te treden als PIC op luchtballonnen of luchtschepen met hete lucht met een maximale balloncapaciteit van 3400 m3 of gasballonnen met een maximale balloncapaciteit van 1200 m3, en het vervoeren van maximaal 3 passagiers, zodat nooit meer dan 4 personen aan boord van het luchtvaartuig zijn.
+Ook in het geval van arbeidsovereenkomsten rijzen diverse vragen, zoals: het verband tussen het Verdrag van Rome en de communautaire regels aangaande tijdelijke tewerkstelling in een ander land (detachering) en de verschillende opvattingen daaromtrent; de vraag of nog steeds van tijdelijke tewerkstelling (detachering) kan worden gesproken, en de desbetreffende verwijzingsregels nog steeds gelden als de werknemer een nieuwe arbeidsovereenkomst sluit met een bedrijf uit het concern van de oorspronkelijke werkgever; het probleem van de noodzakelijke toepassing van bepalingen die strekken tot omzetting van EU-recht op het gebied van tijdelijke tewerkstelling (detachering); het probleem van arbeid die wordt verricht aan boord van bepaalde vervoermiddelen op internationale trajecten waarvan de inschrijving verplicht is, en op booreilanden; de rol van collectieve overeenkomsten bij internationale arbeidsbetrekkingen en de kwestie van internationale collectieve overeenkomsten.
+(lifepr) Kiel, 25.04.2008 # Zilte lucht op je huid tintelt, de meeuwen krijsend hun auto's te trekken. Sleeswijk-Holstein ervaring is de ervaring van de zee – of aan boord van een traditioneel zeilschip of een race-jacht, of opknoping op een surfplank of een kite.
+Er zijn kinderen aan boord zwemvesten, Bellenblazer tegen de verveling van de weg, Kids Vissen en visnetten – zo is het avondmaal selbstgefangene ook beveiligd.
+Alle overige poorten aan boord zijn overigens tevens te openen en bovendien voorzien van horren en regenkapjes.
+NOx-analysator van het type chemiluminescentiedetector (CLD) of verwarmde chemiluminescentiedetector (HCLD) voor gebruik bij directe meting aan boord
+Gegevens over de geïnspecteerde vis aan boord
+Uitgebreide testfase Tot 21 april 2018 worden de TGO satelliet en alle instrumenten aan boord uitgebreid getest.
+b) de aan boord gehouden vis met inachtneming van de van kracht zijnde instandhoudingsmaatregelen gevangen is.
+"Het is algemeen bekend dat van de bemanningen van de walvisvangst schepen (Amerikaanse) weinig ooit terug te keren in de schepen aan boord waarvan zij vertrokken. "
+Enerzijds beoogt zij de harmo­nisatie van de voorwaarden waaronder deze goe­deren kunnen worden verkocht on de onder douanetoezicht staande verkoopinrichtingen op luchthavens alsmede aan boord van luchtvaar­tuigen, zeeschepen of draagvleugelboten voor het zeeverkeer en anderzijds de vaststelling van de voorwaarden voor de belastingvrije invoer daar­van (6).
+Maar er zijn ook lichtere momenten: zijn vriendschap met de olifanten Hans en Parkie die zijn schip in 1786 voor de menagerie van de Prins meebracht uit Ceylon en zijn verbazing over de snelheid waarmee enkele van zijn beschermelingen van lage rang in deze revolutionaire tijd de politieke top bereiken.
+Mijnheer de Voorzitter, het is wel duidelijk dat de werkgelegenheid opnieuw een belangrijke rol speelt in de debatten van dit Parlement, ditmaal om een en ander onder de aandacht te brengen van de Raad, die dit ter harte zou moeten nemen en daarvan werk zou moeten maken.
+Hij werd beschuldigd van het betalen van ongelovigen met Frans goud, het munten van te licht geld, het ronselen van roeiers voor zijn galeien, het terugsturen van een christelijke slaaf die zijn toevlucht had gezocht aan boord van één van zijn schepen, en van afpersing en fraude in Languedoc in het nadeel van de koning.
+(9) Er moeten uitvoeringsbepalingen worden vastgesteld voor de besluiten van de lidstaten inzake de subsidieerbaarheid van moderniseringswerkzaamheden om de veiligheid, de arbeidsomstandigheden, de productkwaliteit en de hygiëne aan boord, als bedoeld in artikel 11, lid 5, van Verordening (EG) nr. 2371/2002, te verbeteren, teneinde een transparante evaluatie en een gelijke behandeling van de aanvragen te garanderen en tegelijk een toename van de visserij-inspanning als gevolg van dergelijke werkzaamheden te voorkomen.
+Het omvat nog steeds een stuk handbagage en een accessoire (maximum 12 kg in totaal), gratis maaltijden en dranken aan boord en gratis inflight entertainment.
+Deze ambtenaren moeten niet langer aan boord blijven dan voor de vervulling van hun taken nodig is.
+In deze richtlijn, die de dertiende bijzondere richtlijn is in de zin van artikel 16, lid 1, van Richtlijn 89/ 391/EEG, worden de minimumvoorschriften inzake vei ligheid en gezondheid bij het werk aan boord van vissers vaartuigen als bedoeld in artikel 2, vastgesteld.
+a) dient, met inachtneming van door de vergadering van de partijen vastgestelde instandhoudings- en beheersmaatregelen, onder meer de aan boord van vissersvaartuigen gehouden documenten, vistuigen en vangsten te inspecteren wanneer dergelijke vaartuigen vrijwillig hun havens of offshoreterminals aandoen;
+Het Hof wees erop dat verordening (EG) nr.¦2320/2002 beoogt verplichtingen op te leggen aan particulieren, aangezien zij bepaalde in een bij de verordening gevoegde lijst opgenomen voorwerpen aan boord van vliegtuigen verbiedt.
+HOOFDSTUK X
+Hij leeft, en hij is hier aan boord. En allereerst wilde hij toegang zoeken tot uw deuridium-file. En dat is hem gelukt.
+Beperkt belastingplichtige natuurlijke personen zijn niet gehouden tot de betaling van de speciale bijdrage voor rustpensioen.
+- Ze willen uw uitvinding.
+In de tijdvakken van 1 januari tot en met 28 februari en van 16 mei tot en met 31 december is het verboden in de uniale wateren van ICES-sector IIa haring aan te landen of aan boord te houden.”.
+Het team van de Liberiaanse kustwacht aan boord van de Sam Simon kwam snel in actie en begaf zich richting het vaartuig vlak nadat een net naar binnen was gehaald.
+In dezelfde context kan ik niet instemmen met amendement 19, dat de uitrusting met overlevingskledij voor passagiers en bemanning verplicht wil stellen voor schepen die opereren in wateren met lage temperatuur van minder dan 15º Celsius.
+Overwegende dat de veiligheid en de gezondheid van werknemers aan boord van schepen bijzondere aandacht vereisen wegens de grootschalige risico's, onder anderen eventueel rekening houdend met de geografische geïsoleerde situaties, die inherent zijn aan de werkplek; c) reder: de geregistreerde eigenaar van een schip, behalve wanneer het een bare-boat charter betreft of indien het schip, op grond van een beheersovereenkomst, geheel of gedeeltelijk beheerd wordt door een andere natuurlijke of rechtspersoon dan de geregistreerde eigenaar; eventueel wordt de bare-boat-bevrachter of de natuur lijke of rechtspersoon die het schip beheert als de reder beschouwd;
+Boordsystemen voor treinbeïnvloeding met inbegrip van de bijbehorende programmatuur
+Wanneer een vaartuig met een waarnemer van Guinee aan boord de visscrijzonc van Guinee verlaat, wordt al het nodige gedaan om ervoor te zorgen dat de waarnemer zo snel mogcli_BAR_k en op kosten van de reder naar Conakry kan terugkeren.
+De prestatieratio tijdens het gebruik (IUPRg) van een groep g van bewakingsfuncties binnen een voertuig wordt berekend met de volgende formule:
+Voor vaarvakanties betekent dit, dat de directe route tussen twee havens door de "kruisen" verdubbeld, dus dan is de ervaring leert dat stadium over. kan drie keer zo lang duurt. Te varen op een zeiltocht in een richting, die kan optreden aan boord van de waargenomen wind van de zijkant, het heet tijdens het varen van een "halve-windse koers".
+Toen ik hier begon... zei u dat ik het slachtoffer niet kon uitkiezen.
+Men zou er goed aan doen onmiddellijk met dit gegeven rekening te houden, teneinde Europa in de toekomst te behoeden voor nog grotere teleurstellingen. lingen.
+Denk je dat ze Meester Ropal als gevangene aan boord hebben?
+Staat Don achter m'n promotie?
+Houd mij op de hoogte van updates voor Baby aan boord sticker 20x29 cm - Baby 14
+Hij gaat naar het front.
+Bovendien konden de gecertificeerde documenten die volgens het Verdrag van Chicago aan boord moeten worden bewaard, niet worden voorgelegd.
+Het gaat zo veel over de veiligheid van de schippers aan boord als een meer gemak en meer efficiency tijdens het zeilen.
+Aan boord zijn 74 jonge Joodse vluchtelingen uit Duitsland en Oostenrijk, die 's middags uit Amsterdam zijn gekomen.
+Bij de aan de gang zijnde tussentijdse herziening van het werkprogramma Energie is deze aanbeveling inderdaad ter harte genomen.
+Voor zover we weten, zou hij iedereen aan boord gedood hebben als het zijn kansen zou verbeteren.
+Burgerluchtvaart omvat twee componenten: de veiligheid aan boord en die aan de grond.
+„De fabrikant van de stroomafnemer moet zorgen voor de overgang tussen deze drie curven aan boord aan de hand van de geschikte informatie, bijvoorbeeld het gebruik van een stroomafnemer van 1950 mm of informatie over de soort spanning op de rijdraad.”.
+Richtlijn 98/41/EG2 voorziet in de telling en registratie van passagiers en bemanningsleden aan boord van passagiersschepen die vanuit of naar EU-havens varen.
+producten gewonnen uit de buiten de territoriale wateren gelegen zeebodem of de ondergrond ervan, mits het begunstigde land of gebied of een lidstaat exclusieve rechten heeft op de exploitatie van deze zeebodem of de ondergrond ervan;
+Aan boord bevonden zich de piloot en zijn twaalfjarige dochtertje.
+Onderneming & Kunst was hier voor het eerst verantwoordelijk voor de volledige organisatie, van selectie van kunstenaars en vervaardiging tot transport en installatie van de kunstwerken aan boord.
+Indien een vaartuig als gevolg van zijn lage vangstcijfers voor bepaalde soorten een groter aantal dagen krijgt toegewezen, mag dat vaartuig nooit meer dan de in tabel II vermelde percentages van die soorten aan boord houden.
 Elk vissersvaartuig dat zich in het in lid 1 van dit artikel bedoelde gebied bevindt, ziet erop toe dat meegevoerd vistuig is vastgemaakt en opgeborgen overeenkomstig artikel 47 van Verordening (EG) nr. 1224/2009 van de Raad van 20 november 2009 tot vaststelling van een communautaire controleregeling die de naleving van de regels van het gemeenschappelijk visserijbeleid moet garanderen.
-In afwijking van lid 1, onder a), is het verboden schaaldieren van de soort Pandalus aan boord te houden die gevangen zijn met demersale sleepnetten met een maaswijdte tussen 32 en 54 mm, tenzij het net is voorzien van een paneel met vierkante mazen met een maaswijdte van 70 mm of meer.
-bij vermelding van de aan boord gehouden vangst moeten alle soorten die overeenkomstig artikel 14 van de controleverordening in het visserijlogboek zijn geregistreerd, per soort in kilogram levendgewichtequivalent worden meegedeeld; de hoeveelheden die moeten worden meegedeeld, zijn de totale hoeveelheden van elke soort die aan boord zijn op het tijdstip dat het inspanningsrapport wordt meegedeeld.
-In grote lijnen kan ik dus zeggen dat het verslag van de heer Van Velzen een nauwkeurige weergave is van hetgeen wij gemeenschappelijk willen. Bij een aantal punten worden teveel details genoemd en die kunnen wij niet als zodanig overnemen.
-Maar ik mag niet gaarn van zulke kleinigheden zoo lang spreken, en zeg daarom nog alleen: dat ik wederom naa het schip ging, en drie vierde gedeelte van de manschap met mij nam, om mij te helpen in het villen van de beeren, en derzelver hammen en huiden aan boord te brengen; 't welk wij in weinige uuren deeden, en het schip daar mede vol laaden.
-Na zevenen druppelde iedereen bepakt en bezakt met souvenirs weer binnen a/b Tooluka. Kaasfondue met gebakken banaan en chocoladesaus na en ondertussen loeit de wind nog steeds door het tuig. Ken is al te kooi en Marlies heeft de regen getrotseerd om nog een keer tango te kunnen gaan dansen, terwijl de rest afwast en lekker nakeuvelt.
-Corporate Governance Intern bestuur Triodos Bank Corporate Governance Code Code Banken Verklaring Bericht van de Raad van Commissarissen Activiteiten Interne organisatie Commissies Competentiematrix Vergaderingen Zelfevaluatie Tot slot Bericht van het Bestuur van SAAT SAAT Overzicht van aandelen Biografieën Triodos Bank Nederland Home EngagementBetrokkenheid stakeholders Overheden Overheden Triodos Bank is regelmatig in gesprek met lokale en nationale overheden en toezichthouders.Dit gebeurt soms in samenwerking met andere financiële instellingen of partners.
-(6) Voorts moet een lijst worden opgesteld van de erkende inrichtingen, fabrieksvaartuigen en koelhuizen, alsmede een lijst van de vriesschepen die zijn uitgerust overeenkomstig Richtlijn 92/48/EEG van de Raad van 16 juni 1992 tot vaststelling, overeenkomstig artikel 3, lid 1, onder a) i), van Richtlijn 91/493/EEG, van de minimale hygiënische voorschriften die van toepassing zijn op visserijproducten die zijn verkregen aan boord van bepaalde vissersvaartuigen(3).
-De exploitant zorgt ervoor dat er een controlelijst aan boord is voor de te volgen procedures bij het zoeken naar een bom of geïmproviseerde explosieven (IED), wanneer wordt vermoed dat er sabotage is gepleegd, alsmede voor het inspecteren van vliegtuigen op verborgen wapens, explosieven of andere gevaarlijke tuigen, wanneer er een gegrond vermoeden bestaat dat het vliegtuig het voorwerp kan zijn van een daad van onwettige inmenging.
-Indien ge uw kinderen maar kunt liefhebben zoals God u liefheeft, zult ge uw vrouw liefhebben en koesteren zoals de vader in de hemel de Oneindige Geest eert en hooghoudt die de moeder is van alle geest-kinderen in een ontzaglijk universum.' (1471.2) 133:2.3 Toen ze zich inscheepten, zagen ze om naar het tafereel van het echtpaar dat elkaar met tranen in de ogen zwijgend omarmde.
-Corporate Governance Interne governance Corporate Governance Code Code Banken Bankierseed Verklaring Bericht van de Raad van Commissarissen Activiteiten Interne organisatie Commissies Competentiematrix Vergaderingen Zelfevaluatie Tot slot Bericht van het Bestuur van SAAT SAAT Overzicht van aandelen Biografieën Triodos Bank Nederland Home Verslag van de Raad van BestuurDivisies en resultaten Triodos Bank Private Banking Triodos Bank Private Banking EUR 1.381 miljoen Het beheerd vermogen van Private Banking steeg met 12% naar EUR 1.381 miljoen.
-Verder, gezien het feit dat de democraten, het meerderheidsfeest tijdelijk buiten hun kantoor zijn met hun prijs- en loonstabilisatieborden, en dat zelfs deze maatregelen veel te mild bleven om het concurrentieproces tegen ongelijkheid te keren, kan men zich voorstellen wat er moet gebeuren Genomen om de Utopia zonder armoede te bereiken door meer evenwichtige voordelen van de maatschappelijke voordelen, die velen veel vragen.
-Ik zei aan het einde van mijn toespraak dat de Raad, in dit geval het Portugese voorzitterschap, veel aandacht zal besteden aan en zeer zeker bereid is tot het evalueren en meenemen van, elk voorstel van de Commissie aan de Raad dat is gericht op het verder verbeteren van de huidige inspanningen die worden verricht om het aantal doden en gewonden op de wegen in de Gemeenschap te verminderen.
-Ik zou er de voorkeur aan hebben gegeven dat onze Vervoerscommissie niet op een belangrijk onderdeel was afgeweken van het moeizaam bereikte compromis om als referentieperiode voor de rij- en rusttijden vier weken te bepalen. Hiermee is de zo noodzakelijke
-In afwijking van punt a) van bijlage II bij Verordening (EG) nr. 1198/2006 bedraagt in het geval dat een bijdrage wordt verleend voor de financiering van uitrusting, hulpmotoren daaronder begrepen, die de energie-efficiëntie aan boord van vissersvaartuigen, met inbegrip van vaartuigen voor kleinschalige kustvisserij, sterk verbetert, de emissies verlaagt en een bijdrage levert aan de strijd tegen klimaatsverandering, de minimale particuliere financiële bijdrage voor die concrete actie 40 %.
-In de maand september tekenen zowel het volvrachtsegment (+9,5%) als de vracht aan boord van passagierstoestellen (+9,0%) voor de grootste groei, terwijl de express diensten achteruitgaan (-4,2%) door enkele afgelaste vluchten bij DHL.De grote groei van de vracht aan boord van passagierstoestellen is te danken aan de nieuwe routes naar Azië van Cathay Pacific en Hainan Airlines, en de verdubbeling van de capaciteit naar de Golfregio van Emirates.
-We moeten kortom een doeltreffend stelsel uitwerken dat het vrij verkeer van personen en goederen en de volledige totstandbrenging van de ééngemaakte markt waarborgt.
-Ondergetekende, kapitein van het schip (naam …), verklaart dat de in bijgaand veterinair certificaat nr. … bedoelde dieren aan boord van het schip zijn gebleven tijdens de reis van … in … (land van uitvoer) naar … in de EU en dat het schip niet heeft aangelegd op een plaats buiten … (land van uitvoer) op weg naar de EU, behalve in: … (aanloophavens).
-Voorbeelden van functies waarin studenten na de masterspecialisatie terecht zijn gekomen, zijn gedragswetenschapper bij de politie, coach/trainer bij een regionaal opleidingscentrum (roc), psycholoog bij defensie, implementatieleider bij de Raad voor de Kinderbescherming, onderzoeker bij TNO, en adviseur van een veiligheidsregio. POSITIEVE PSYCHOLOGIE & TECHNOLOGIEAls psycholoog gespecialiseerd in de geestelijke gezondheidszorg kun je praktisch handelen afstemmen op wetenschappelijke kennis.
-We liepen allemaal een stuk het achterland in, maar terwijl Lia, Marion en Roswitha verder liepen en 4 sneeuwhazen zagen, gingen Eef, Liesbeth en Pieter terug om deze landontdekking af te sluiten met een schietoefening, Om maximaal voorbereid te zijn op een noodsituatie met een ongewenste ontmoeting met een ijsbeer in het noordelijk ijsgebied is het toch goed om bekend met en gewend aan het aan boord aanwezige geweer te zijn.
-IS VOORSTANDER VAN de integratie van AIS-verslagen (Automatic Identification System) in de door het EU LRIT DC beheerde gegevens om kostenbesparing mogelijk te maken en onnodige aanpassingen van apparatuur aan boord van schepen die in maritieme gebieden varen die door AIS-monitoringstations worden bestreken, te voorkomen; VERZOEKT de lidstaten en de Commissie binnen de IMO het nodige te doen om te bewerkstelligen dat AIS-gegevens, met inachtneming van de respectieve SOLAS-vereisten, in het LRIT-systeem worden geïntegreerd;
-Dit blad met persoonsgegevens kan op de trein worden ingevuld alvorens het FRTD wordt aangebracht, en in ieder geval vóór de binnenkomst op het grondgebied van de lidstaat waardoor de trein rijdt, op voorwaarde dat de essentiële persoonsgegevens - als vermeld in bijlage II - elektronisch worden doorgegeven aan de autoriteiten van de bevoegde lidstaat op het tijdstip dat het verzoek om het spoorkaartje te kopen, wordt gedaan.
-Eveneens worden de brandstoffen, smeeroliën, reservedelen, normale uitrustingsstukken en voorraden in het algemeen en de proviand vrijgesteld, welke aan boord van die luchtvaartuigen blijven, zelfs indien zodanige voorraden verbruikt of geconsumeerd worden bij vluchten binnen dat grondgebied; 4) de onder paragraaf 3 van dit artikel opgesomde goederen en die onder vorenbedoelde vrijstelling vallen, slechts mogen worden gelost met toestemming van de douane-autoriteiten van de andere Overeenkomstsluitende Partij.
-Corporate Governance Interne governance Corporate Governance Code Code Banken Bankierseed Verklaring Bericht van de Raad van Commissarissen Activiteiten Interne organisatie Commissies Competentiematrix Vergaderingen Zelfevaluatie Tot slot Bericht van het Bestuur van SAAT SAAT Overzicht van aandelen Biografieën Triodos Bank Nederland Home ImpactSociaal Gemeenschapsprojecten ensociale huisvesting Gemeenschapsprojecten en sociale huisvesting Impactmetingen In 2015 financierden Triodos Bank en Triodos Investment Management 316 gemeenschapsprojecten en 169 sociale huisvestingsprojecten, die direct en indirect woonruimte bieden aan circa 12.400 mensen.
-Boek dan tegelijkertijd uw internationale... lees meer Aanbieding: binnenlandse routes, combinatie trips Routes: Ancona – Igoumenitsa, Ancona – Patras, Bari – Igoumenitsa, Bari – Patras, Italië – Griekenland, Venetië – Igoumenitsa, Venetië – Patras Minoan Lines 2017 – Camping All Inclusive AanbiedingAanbieding Verstreken special offer Minoan Lines Camping All Inclusive Aanbieding Reis met uw camper/caravan en verblijf in een comfortabele cabine op de Minoan Lines ferries voor de prijs van een dekticket!
+Het leven aan boord was heel anders dan op de grote slagschepen.
+Grimaldi Euromed - Accommodatie Because the luxury comes first! - Toppunt van comfort Reis aan boord van onze schepen en ontdek het hoge niveau van comfort, luxe en service die wij bieden.
+Dit detectiesysteem moet zich volledig op de trein bevinden en moet de bestuurder van diagnosemeldingen voorzien.
+Verder is het Comite´ van oordeel dat de binnenvaart nog niet over voldoende mogelijkheden beschikt om over te gaan tot het gebruik van RIS, en het pleit er derhalve voor dat een voorstel voor het praktisch doorvoeren van RIS wordt opgesteld; de binnenschippers worden aangemoedigd tot en ondersteund bij het aanbrengen van de benodigde apparatuur aan boord van hun schepen, zodat het systeem efficie¨nt kan worden benut en de doelstellingen van het voorstel voor een richtlijn kunnen worden gerealiseerd; kosteneffectieve communicatiesystemen, die het best beantwoorden aan de behoeften van de binnenvaart, worden bevorderd; en de productiekosten van RIS-hardware en -software binnen de perken worden gehouden.
+Je bent een luie betweter die gelogen heeft tegen mij en je CO over het aan boord brengen van smokkelwaar.
+Een Centaur 95mm nabij Hermanville-sur-Mer, duidelijk zijn de 'graadverdelingen' op de toren te zien voor het richten van het geschut vanaf de LCT(A) Varianten waren onder andere de LCT(A), Armored.
+Vaartuigen die hun activiteit richten op de vangst van koppotigen, mogen op het totaal van hun vangsten in de visserijzone van Guinee niet meer dan 20% schaaldicren en niet meer dan 30% vis aan boord hebben.
+Julius Limbani is aan boord.
+Toegestaan aantal stuks bagage Bagage als aktetassen, laptops, rugzakken, koffers of rolkoffers e.d. kunt u gratis meenemen.
+ii) Naarmate het EMA en het ETC relevante knowhow op hetstukvan monitoringcri-teriabeschikbaar maken, is de Commissie graag bereid gebruik te maken van de deskundigheid van dezeinstanties.
+Bij ongeregeld cabotagevervoer is een in artikel 12 bedoeld reisblad vereist dat zich aan boord van het voertuig moet bevinden en op verzoek van iedere met de controle belaste persoon moet worden getoond.
+U kunt de inschrijvingsformulieren vinden bij: • de Minoan Lines havenkantoren. • aan boord van de Minoan Lines schepen.Zodra u het formulier heeft ingevuld geeft u het af bij de receptie van het schip of u verstuurt het per post (gratis).Binnen een paar weken, ontvangt u uw persoonlijke (plastic) lidmaatschapskaart, die u het recht geeft op alle lidmaatschaps-privileges.
+Voor het personeel aan boord van zeeschepen geldt evenwel een langere overgangsperiode van vijf jaar, bovenop de algemene overgangsperiode van drie jaar.
+Stap dus mee aan boord of ga uit de weg.
+Heeft King hier mee ingestemd?
+(6) Ook moet een lijst worden opgesteld van de erkende inrichtingen, fabrieksvaartuigen en koelhuizen, alsmede een lijst van de geregistreerde vriesvaartuigen die zijn uitgerust overeenkomstig het bepaalde in Richtlijn 92/48/EEG van 16 juni 1992 tot vaststelling, overeenkomstig artikel 3, lid 1, onder a) i), van Richtlijn 91/493/EEG(3), van de minimale hygiënische voorschriften die van toepassing zijn op visserijproducten die zijn verkregen aan boord van bepaalde vissersvaartuigen Deze lijsten moeten worden opgesteld op basis van een mededeling van de NFA aan de Commissie.
+„reservering” de boeking van een zitplaats in een autobus of touringcar voor een bepaalde reis met een bepaalde vertrektijd van een geregelde vervoersdienst; m)
+Er was een moord aan boord van dat vliegdekschip, heren.
+e. Vaartocht:Het geheel van varen met en verblijf aan boord van het Schip gedurende de in de Overeenkomst genoemde periode.
+De waarnemer blijft niet langer aan boord van het vaartuig dan nodig is om zijn taken te verrichten.
+(') COM(96) 90. advies van de Commissie „De Politieke Unie versterken en de uitbreiding voorbereiden".
+- Johnson trapt daar nooit in. En als hij dat wel deed, waarom zou je aannemen dat ik het wel zie zitten?
+Deze ambtenaren mogen niet langer aan boord blijven dan nodig is om de vangsten steekproefsgewijs te controleren en hun andere ¡nspectieuken met betrekking tot de visserij te vervullen.
+zeevarenden die werken op schepen die zijn vlag voeren hebben een door zowel de zeevarende als de reder of een vertegenwoordiger van de reder ondertekende arbeidsovereenkomst zeevarenden (of, wanneer zij geen werknemers zijn, een bewijs van contractuele of soortgelijke afspraken) waarin, overeenkomstig deze overeenkomst, in behoorlijke leef- en werkomstandigheden aan boord van het schip wordt voorzien;
+Als je naar het belangenevenwicht kijkt dan moet je ook met deze zaken rekening houden.
+Europa heeft zich, lering trekkend uit een beladen verleden, ingezet voor politieke en economische vrijheid.
+Dan is iemand aan boord niet wie hij of zij lijkt.
+Marit PAULSEN (ELD, S) Voorstel inzake de bewaking van zoonoses en zoönoseverwekkers en houdende wijziging van Beschikking 90/424/EEG van de Raad en intrekking van Richtlijn 92/117/EEG van de Raad Doe: A5-0119/2002 en Voorstel voor een verordening inzake bestrijding van salmonella en andere door voedsel overgedragen zoönoseverwekkers en houdende wijziging van de Richtlijnen 64/432/EEG , 72/462/EEG EN 90/539/EEG van de Raad Doe: A5-0120/2002
+1.1 Het EESC is ingenomen met het initiatief van de Commissie om de eengemaakte markt nieuw leven in te blazen, al neemt zij hierbij de rapporten van Monti, Lamassoure en González niet werkelijk ter harte.
+Zij heeft betrekking op verse en verwerkte produkten, op de verwerking aan de wal en aan boord van fabrieksvaartuigen, en op zowel de communautaire produktie als de invoer.
+Bij het uitvoeren van inspecties aan boord van vissersvaartuigen dragen de NEAFC-inspecteurs geen vuurwapens.
+Artikel 69: in navolging van de bepalingen van artikel 78 van de klassieke richtlijn is artikel 66 van het oorspronkelijke voorstel, betreffende de herziening van de drempels, overgenomen, waarbij lid 1 op een punt is verduidelijkt (eerste alinea: automatische tweejaarlijkse controle en aanpassing uitsluitend indien nodig, dat wil zeggen indien gerechtvaardigd door de wijziging van de verhouding euro/BTR) en de afronding van de drempels bij de herziening is gewijzigd (“op het duizendtal” in plaats van “op het tienduizendtal”).
+ISS astronaut opgetogen over het besturen van de METERON robot op Aarde 1 september 2015 - In de vroege ochtend van 2 september vertrekt de Deense ESA-astronaut Andreas Mogensen met een Soyuz ruimtetuig richting het Internationaal Ruimtestation (ISS) voor een korte missie van 8 dagen.
+12-2001 Sloman Traveller chemicaliën- tanker 18 km N Vlieland brand aan boord chloorgassen in atmosfeer
+Vaanuigen voor de tonijnvisserij en voor de visserij met drijvende beug kunnen door het Staatssecretariaat voor de Visserij worden verzocht een waarnemer aan boord te nemen, díe niet langer aan boord mag blijven dan nodig is voor de uitoefening van zijn taak.
+Op geselecteerde afvaarten, de Royal Geographical Society te Silversea gasten aan boord “Silver Explorer” en van eind september 2013 de “Silver Galapagos” kwaliteit, wetenschappelijke materiaal uit hun archieven.
+Alles is aan boord om te genieten van een prachtige dag licht materiaal vissen in rivier La Saône.
+„visser”: persoon die de beroepsvisserij uitoefent aan boord van een in bedrijf zijnd vissersvaartuig, zoals erkend door de betrokken lidstaat;
+Vis van bestanden waarvoor vangstbeperkingen zijn vastgesteld, mag slechts aan boord worden gehouden of worden aangeland mits deze is gevangen door vaartuigen van lidstaten die over een quotum beschikken en mits dat quotum nog niet is opgebruikt.
+Ik vind het onvoorstelbaar dat de Raad van ministers de voorstellen van de Ecofin-Raad over de begroting accepteert.
+Als heus klein broertje van de Bolkesteinrichtlijn is de richtlijn inzake de liberalisering van de havendiensten slechts bedoeld om ervoor te zorgen dat werknemers tegen elkaar kunnen worden uitgespeeld door het gebruik van onvoldoende geschoold buitenlands personeel aan boord van maar al te vaak onder goedkope vlag varende schepen, en zulks ten koste van de nationale werknemers.
+We moeten rekening houden met hun zorgen en we moeten nauw met hen samenwerken en ik hoop dat u als verantwoordelijke commissaris rekening wilt houden met die kloof en dat u bereid bent zo nauw mogelijk samen te werken om ervoor te zorgen dat alle betrokken partijen nader tot elkaar kunnen worden gebracht en dat met al hun opvattingen rekening wordt gehouden.
+We hebben 'n ruimte om de film zelf te kunnen monteren.
+In de film worden een aantal mensen aan boord van een vliegtuig door straling getroffen.
+Een C-47 van de 75th Troop Carrier Squadron neemt paratroopers aan boord In 1942 werd het Troop Carrier Command gevormd voor het vervoeren van parachutisten en het verslepen van zweefvliegtuigen.
+Het Belgisch Instituut voor Ruimte-Aeronomie (BIRA) heeft het ROSINA (Rosetta Orbiter Spectrometer for Ion and Neutral Analysis) instrument op de satelliet mee gebouwd.
+De lidstaten brengen ook verslag uit over het aantal uitgevoerde inspecties aan boord van schepen en registreren het gemiddelde zwavelgehalte van op hun grondgebied gebruikte scheepsbrandstoffen die momenteel niet binnen de werkingssfeer van de richtlijn vallen.
+De aankoop en installatie aan boord van de vaartuigen van voorzieningen om de uitstoot van verontreinigende stoffen of broeikasgassen te verminderen en de energie-efficiëntie van de vissersvaartuigen te verhogen, kunnen een bijdrage leveren aan de doelstellingen inzake klimaatverandering.
+Ook investeringen in menselijk kapitaal zijn onmisbaar om het concurrentievermogen en de economische prestaties van de aquacultuursector te verbeteren.
+Andere voorstellen van de zijde van uw rapporteurs zullen door de Commissie worden overgenomen.
+Hij is aan boord van de Euryalus, Sir.
+— Verslag van de heer Nianias (A3-379/90) aangenomen op 24 januari 1991 over het voorstel voor: Minimumvoorschriften inzake veiligheid en gezondheid ter bevordering van een betere medische hulpverlening aan boord van schepen (COM(90) 272 def. — SYN 278)
+Voor de details: Vanwege de heersende Bora al op leeftijd motorzwever mag niet leeg zijn. Echter, toen hij reed de toeristen aan boord rond de noordpunt van Losinj en onder de bescherming van de berg was niet meer, ving hem volledig de sterke Bora.
+Artikel 155, lid 2, van het VWEU bepaalt dat op het niveau van de Europese Unie („EU”) gesloten overeenkomsten op gezamenlijk verzoek van de Europese sociale partners mogen worden uitgevoerd door een besluit van de Raad op voorstel van de Commissie.
+De exploitant, agent of kapitein van een schip dat in de in artikel 5 bedoelde gevallen de exclusieve economische zone of een gelijkwaardige zone van een lidstaat binnenvaart, stelt de instanties van die lidstaat overeenkomstig de voorschriften van bijlage III ervan in kennis dat het certificaat van financiële zekerheid zich aan boord bevindt.
+Onverminderd dit voorschrift mogen de restanten van een lading van de categorieën B of C aan boord worden gehouden en mogen deze restanten in zee worden geloosd buiten een bijzonder gebied overeenkomstig respectievelijk paragraaf (2) of (3).
+Niet geldig voor trailers.De korting is geldig voor camping on board reserveringen.
+"Voor de visserij in de Middellandse Zee moet van iedere soort die voorkomt op de in overeenstemming met lid 8 vastgestelde lijst, elke aan boord gehouden hoeveelheid van meer dan 10 kg, uitgedrukt in levend gewicht, in het logboek worden genoteerd.
+De lengte van de pelagische beuglijnen bedraagt niet meer dan 30 zeemijl (55,56 km).
+Vijf White Stars In tegenstelling tot wat vaak wordt gedacht, genoten alle passagiers aan boord van de Titanic, van de elite tot de armelui van het onderdek, van goed eten.
+Volgens de effectbeoordeling bij dit voorstel zal de steunverlening uit hoofde van het Europees Visserijfonds naar verwachting vooral zorgen voor: een bijdrage aan het streven naar evenwicht tussen de beschikbare rijkdommen en de visserij-activiteiten; een zekere compensatie voor de sociaal-economische moeilijkheden als gevolg van de ontwikkelingen in de activiteiten in de sector en de nodige herstructurering; een bijdrage aan de bescherming van het mariene milieu en een grotere selectiviteit van het vistuig en verbeteringen in de veiligheid aan boord, de arbeidsomstandigheden, de gezondheid en de productkwaliteit.
+Artikel 5
+8.1.2.1: Naast de wettelijk vereiste documentatie moeten nog de volgende documenten aan boord van de transporteenheid worden meegevoerd: a) de in 5.4.1 vermelde vervoerdocumenten betreffende alle vervoerde gevaarlijke goederen en, waar zulks van toepassing is, het containerbeladingscertificaat als bepaald in paragraaf 5.4.2; b) de schriftelijke instructies, als gegeven in par. 5.4.3, betreffende alle vervoerde gevaarlijke goederen; 8.1.5: Iedere transporteenheid die gevaarlijke goederen vervoert moet zijn uitgerust met: c) de uitrusting die nodig is voor de uitvoering van de aanvullende en bijzondere maatregelen als aangegeven in de in paragraaf 5.4.3 bedoelde schriftelijke instructies.
+In principe moet iedereen die een platform betreedt, worden gewezen op het observeren van de hoofdwindrichting (windzakken) en op de geluïds- of licht signalen van de alarminstallaties.
+Ook valt in goede aarde dat de Commissie daarin gevolg heeft gegeven aan diverse suggesties uit zijn verkennend advies over sociaal ondernemerschap1.
+3.11 De Europa 2020-strategie moet bij deze overwegingen een centrale plaats innemen in het licht van de open coördinatiemethode, die ten dienste moet staan van het streven naar sociale inclusie en van het Europese cohesiebeleid zelf.
+Ik maak uit z'n signaal op dat het een onderzoeksschip was.
+De fabrikant moet een documentatiepakket verstrekken met een volledige uitleg over de elementen van het waarschuwings- en aansporingssysteem dat zich in het voertuig bevindt en krachtens bijlage 11 verplicht is.
+2. allen die een zeevaartopleiding volgen en zich op het werken aan boord van een schip voorbereiden, een basisopleiding hebben ontvangen ter zake van medische hulpverlenings­ en levensreddende maatregelen die bij een ongeval of een ernstig medisch spoedgeval terstond moeten worden genomen;
+- Ontbijt en diner aan boord
+Het aantal begunstigden mag in elke lidstaat over de gehele in artikel 3 bedoelde programmeringsperiode niet groter zijn dan het aantal arbeidsplaatsen dat aan boord van vaartuigen is geschrapt als gevolg van de definitieve beëindiging van de bedrijfsactiviteit in de zin van artikel 8, lid 2, of als gevolg van de definitieve overbrenging van vaartuigen naar derde landen in het kader van de oprichting van gemengde vennootschappen in de zin van artikel 9, lid 3; b) regelingen waarbij aan vissers een individuele forfaitaire premie wordt toegekend, met dien ver stande dat de subsidiabele kosten per begunstigde maximaal 7 000 ecu bedragen en dat het vaartuig waarop de begunstigden van de maatregelen werkzaam waren, uit de vaart moet zijn gegaan als gevolg van de definitieve beëindiging van de bedrijfsactiviteit in de zin van artikel 8, lid 2, of als gevolg van de definitieve overbrenging van vaartuigen naar derde landen in het kader van de oprichting van gemengde vennootschappen in de zin van artikel 9, lid 3.
+De Algarve kan ook vanaf het water worden verkend aan boord van een boot.
+Voor de loodsdiensten hebben we een uitzondering, de zelfafhandeling blijft beperkt tot het schip zelf, inzake concurrentie tussen havens is het standpunt van het Parlement in feite aanvaard, hoewel de Commissie hier eerst tegen was.
+een vistuig dat alleen bij het vissen op diepzeesoorten wordt gebruikt, zich aan boord van het vaartuig bevindt of in het visserijgebied wordt ingezet, of
+De Commissie heeft ook al de oprichting goedgekeurd van een systeem voor vroegtijdige waarschuwing, een "early warning system" , zodat alle directoraten-generaal voortaan uit voorzorg de programmatie opschorten, wanneer in om het even welk programma van het externe netwerk een anomalie wordt vastgesteld.
+De Golfoorlog zal voor het Griekse toerisme zeer ernstige gevolgen hebben. Gereserveerde reizen en hotels worden al op grote schaal afgezegd, terwijl de toeristen in het algemeen niet bereid zijn deze zomer naar Griekenland te gaan.
+Van de in samenwerking met de nieuwe onafhankelijke staten van de voormalige Sovjet­Unie uitgevoerde studies heeft de belangrijkste betrekking op de opstelling van een gedetailleerde lijst van alle radioactieve afvalstoffen die zijn opgeslagen in het noordoosten van Rusland, op het Kola­schiereiland, aan boord van sche­pen in de noordelijke Ijszee en in onderzeeërs van de noordelijke vloot van Rusland.
+Ligging Golf van Cadiz - Barbate Trafalgar Charters is een charter boot verhuur bedrijf dat zich bezig houdt met het vissen in Barbate, Cádiz.We organiseren onvergetelijke vistrips en we zijn gespecialiseerd in het slepend vissen, chumming, driftend vissen, big game vissen,...Guadalupe
+Laten wij allen hier in dit Huis vandaag goed bedenken wat voor narigheid het BSE-vraagstuk ons de afgelopen jaren heeft bezorgd en laten wij zijn waarschuwing ter harte nemen.
+Richtlijn 87/357/EEG van de Raad van 25 juni 1987 inzake de onderlinge aanpassing van de wetgevingen van de lidstaten betreffende artikelen die door een misleidend uiterlijk een gevaar vormen voor de gezondheid of de veiligheid van de consument
+Nieuws ISS astronaut opgetogen over het besturen van de METERON robot op Aarde 1 september 2015 - In de vroege ochtend van 2 september vertrekt de Deense ESA-astronaut Andreas Mogensen met een Soyuz ruimtetuig richting het Internationaal Ruimtestation (ISS) voor een korte missie van 8 dagen.
+Illegale vangst aan boord van de Guo Ji 809.
+g) goederen die aan boord van fabrieksschepen zijn verkregen uit onder f) bedoelde produkten welke van oorsprong zijn uit dat land, voor zover deze schepen aldaar zijn ingeschreven of geregistreerd en de vlag van dat land voeren;
+THEMATISCH REGISTER gebruik van bepaalde gevaarlijke stoffen en preparaten (door de Commissie ingediend) richtlijn van de Raad betreffende minimumvoorschriften inzake veiligheid en gezondheid met betrekking tot het werken met beeldschermapparatuur (doc. C3­9/90) Rapporteur: mevrouw A. CATASTA
+Alleen het autokinderzitje mag in de passagierscabine worden meegenomen, maar uitsluitend wanneer de passagier een extra zitplaats hiervoor heeft betaald.Aanvullend hebben kinderen tot 4 jaar recht op vervoer van één inklapbare kinderwagen.Daarnaast hebben kinderen tot 2 jaar, die geen aparte zitplaats in het vliegtuig innemen, geen recht op vervoer van handbagage.
+Er moeten te allen tijde kopieën van de plannen aan boord van het vaartuig zijn.”.
+De amendementen die niet kunnen worden overgenomen, betreffen voornamelijk de comitologieregels, de regelingen voor de raadpleging van de communautaire instelllingen of de begrotingsregelingen.
+Onze artiesten In het voorjaar van 2017 hebben we ons entertainmentaanbod aan boord van MS Stavangerfjord en MS Bergensfjord volledig vernieuwd.
+Het EESC is vooral verheugd dat het pleit van de Commissie voor opname van het nu tot Copernicus herdoopte GMES-programma in het meerjarig financieel kader is aanvaard door de lidstaten en het EP.
+waar passend, aanbevelingen voor maatregelen om de mogelijke nadelige gevolgen van de inbreuk in verband met persoonsgegevens te verminderen.
+De commissaris zal uiteraard ook beseffen dat als onze wensen niet ingewilligd worden, wij andere manieren zullen vinden om ze te verwezenlijken.
+De huisvesting en de maaltijden van de waarnemers aan boord beantwoorden aan deze status;
+De in- en uitvoer van goederen moet worden gewaardeerd tegen de fob-waarde („free on board") aan de grens van het land van uitvoer.
+Veiligheidsvoorschriften voor rolstoelaccu's Er zijn drie soorten rolstoelaccu's: Met vloeistof gevulde accu's - deze zijn niet toegestaan aan boord van onze vluchten Gelaccu's; en droge accu's (inclusief lithiumaccu's).
+Vereenvoudigingsmaatregelen ten uitvoer leggen om de administratieve last voor kapiteins en hogere officieren aan boord van schepen te verminderen.
+Hoe zit het de boordsystemen?
+In het partnerschap moet rekening worden gehouden met uitdagingen zoals de bescherming van het leefmilieu, sociaal verantwoorde arbeidsvoorwaarden voor werknemers en de duurzaamheid van de economische ontwikkeling van het land.
+De voorgestelde maatregel is vooral bedoeld om te waarborgen dat alle zeevarenden, die in een lidstaat zijn gekwalificeerd en over dergelijke diploma’s beschikken, op schepen mogen werken die onder de vlag van een lidstaat varen, zonder dat er verdere voorwaarden worden gesteld.
+bruto binnenlands product Bank voor Internationale Betalingen IMF Balance of Payments Manual ( 5e editie ) depositocertificaat c.i.f. aan de grens van het importerende land consumptieprijsindex Europese Centrale Bank effectieve wisselkoers Europees Monetair Instituut Economische en Monetaire Unie Europees wisselkoersmechanisme Europees Stelsel van Centrale Banken Europees Stelsel van Rekeningen 1995 Europese Unie euro f.o.b. aan de grens van het exporterende land geharmoniseerde consumptieprijsindex Hamburgisches Welt-Wirtschafts-Archiv Internationale Arbeidsorganisatie Internationaal Monetair Fonds monetaire financiële instelling statistische indeling van de economische bedrijvigheid in de Europese Gemeenschap NCB nationale centrale bank OESO Organisatie voor Economische Samenwerking en Ontwikkeling PPI producentenprijsindex SITC Rev. 3 Standard International Trade Classification ( revision 3 ) Conform het binnen de Gemeenschap bestaande gebruik worden de landen van de EU in dit Verslag gerangschikt in alfabetische volgorde van de namen in de nationale talen .
+Wat ecologische normen betreft heeft de Commissie internationale handel in veel van haar recente verslagen - bijvoorbeeld het verslag van rapporteur Lipietz over klimaatverandering of mijn eigen verslag over Korea - benadrukt dat de internationale handel de verspreiding van milieuvriendelijke technologieën zou moeten bevorderen. Ik erken nogmaals dat commissaris Mandelson zich bij talloze gelegenheden heeft ingezet voor het verlagen van de tarieven voor milieuvriendelijke technologieën, en ik hoop dan ook dat de commissaris het voorstel van de rapporteur om deel te nemen aan de onderhandelingen met de ASEAN zal aannemen.
+Addendum op het verslag van de Commissie vervoer en toerisme over de toekomstige ontwikkeling van het gemeenschappelijk vervoersbeleid (COM(92) 494 -
+Provan (PPE). - (EN) Mevrouw de commissaris, ik vraag me af of u in de gaten heeft - dat is een serieuze zaak - dat
+Als u dit later ontdekt dan kunt u binnen 7 dagen na aankomst een claim indienen via het e-mailformulier.Terug naar boven Heeft u iets aan boord laten liggen?Afhankelijk van waar en wanneer u een van uw persoonlijke eigendommen heeft achtergelaten, kunt u het volgende doen:Bent u iets verloren aan boord van een KLM-toestel dat op Amsterdam Airport Schiphol is aangekomen?
+De eigenaar van het vissersvaartuig of de namens hem optredende gemachtigde agent betaalt de in punt 5.2 bedoelde factuur binnen een termijn van drie maanden na de vaststelling van het geval van niet-naleving als bedoeld in punt 5.1, of op een latere, op de factuur vermelde datum.
+Onverminderd artikel 29 van Verordening (EG) nr. 1224/2009 zorgen de lidstaten ervoor dat vaartuigen van de Unie die hun vlag voeren en in de Unie zijn geregistreerd, niet langer dan het in hoofdstuk III van deze bijlage bepaalde aantal dagen aanwezig zijn in het gebied wanneer zij gereglementeerd vistuig aan boord hebben.
+Voor nadere informatie: André Riche (Straatsburg) Tel.:(33-3) 881 73840 (Brussel) Tel.:(32-2) 28 40992 e-mail: en vi-press @europarl.eu.int .eu.int uitvoeringsmaatregelen worden genomen door de Commissie, die zich laat bijstaan door een regelgevend comité.
+Maar als iemand haar ontvoerd heeft, als hier 'n misdaad is begaan en de wetshandhaver aan boord heeft er niets aan gedaan hoe ziet dat eruit?
+Wanneer de waarnemer niet in een haven van Kaapverdië van boord gaat, zorgt de reder ervoor dat hij zo spoedig mogelijk op zijn kosten naar Kaapverdië kan terugkeren.
+inlaat- en uitlaatgeluiddempers;
+Grimaldi Lines is op geen enkele wijze aansprakelijk voor diefstal, verlies van of beschadiging aan juwelen, geld, documenten, manuscripten, kostbaarheden of waardevolle zaken anders dan persoonlijke bezittingen, die aan boord van het schip worden bewaard.
+Op 22 juli 1808, werd een overeenkomst gesloten over te geven Andújar; Deze overeenkomst bepaalde dat de Franse gevangenen worden teruggestuurd naar Frankrijk van Cadiz aan boord van Britse schepen; ze was niet gerespecteerd: Engels, Spaans bondgenoten, weigerde een leger dat de vijand gelederen kunnen versterken overgeven.
+Ondermaatse octopus mag niet aan boord worden gehouden, noch worden overgeladen, aangevoerd, vervoerd, opgeslagen, verkocht, uitgestald of te koop aangeboden, maar moet onmiddellijk terug in zee worden gezet.
+Daaronder vallen niet alleen maatregelen voor schepen en voorschriften voor de bouw van schepen, maar ook maatregelen die de landen moeten nemen om hun kusten te beschermen. Wat met name het vraagstuk van de gezondheid en de veiligheid van werknemers betreft moet ik zeggen dat er ten eerste een Europese wetgeving is met betrekking tot de werkplek, ten tweede een speciale richtlijn voor een speciale categorie van schepen, namelijk vissersvaartuigen, en ten derde een richtlijn voor medische zorg op schepen.
+We hebben geprobeerd rekening te houden met de zaken waarnaar de resoluties van het Europees Parlement verwijzen.
+Hoe nauwer het Parlement van meet af aan bij dit proces zal worden betrokken, des te groter de kans op een bevredigend en snel eindresultaat.
+Een apparaat voor kaartvalidatie aan boord van de tram van Barcelona
+In dit verband moeten extra mogelijkheden worden geboden om bijdragen te verlenen voor investeringen aan boord van de vissersvaartuigen.
+Er is nog wel één ding, de bewindvoerders en donateurs.
+Het verslag benadrukt dat er een constante wisselwerking moet zijn tussen de opleiding, de productie en de organisatie van het werk, en constateert dat er in de ondernemingen kennelijk veel aandacht wordt besteed aan de ontwikkeling van de opleidingsmethoden, met name door de invoering van opleidingen in de vorm van modules, het gebruik van multimedia en "on-the-job training".
+Daarom is het belangrijk dat de Europese Unie er zich voor inzet en ik feliciteer de rapporteurs nog eens met hun verslag.
+Zoals u al zei heeft het voorstel waarvoor ik verantwoordelijk ben te maken met de handhaving van de arbeidstijd van zeevarenden aan boord van schepen die communautaire havens aandoen.
+F : Overige inkomsten
+19.3.4 U mag warme dranken aan boord dragen (met inbegrip van koffie en thee aangekocht op de luchthaven) die een deksel hebben.
+De Raad heeft geen enkel van de voor de Commissie aanvaardbare EP-amendementen overgenomen.
+Deze punten zullen in KP7 aan de orde komen.
+Met een grootte van 47-51 Voet, geweldige vaareigenschappen, veel ruimte aan boord en royale uitrusting racen op de Bavaria 50 C door de archipel van de Balearen.
+Bovendien zal uit het Europees Visserijfonds en (met ingang van 2014) uit het Europees Fonds voor Maritieme Zaken en Visserij steun worden verleend om de visserijsector te helpen de veiligheid aan boord te verbeteren en om de werknemers uit deze sector de kans te geven specifieke opleidingscursussen te volgen.
+Het PCB wat hierboven afgebeeld wordt heeft een Voodoo 3 chipset met 8MB SGRAM en wordt voorzien van stroom door de "mini Molex" connector boven de VGA connector.
+Deze trend is ook gedeeltelijk toe te schrijven aan technologische ontwikkelingen op het vlak van scheepsmotoren en -brandstoffen, die zorgen voor een daling van de hoeveelheid oliehoudend afval aan boord.
+Er is in deze verslagen flinke vooruitgang gemaakt, die zich met name lijkt af te tekenen sinds de inspanningen van het Nederlandse voor­zitterschap en de bemoeienissen van de verantwoorde­lijke commissaris naar aanleiding van mijn verslag van verleden jaar.
+(a) geen ander vistuig dan vaste, aan palen bevestigde kustnetten, kamschelpkorren, mosselkorren, sleepnetten en strandzegens, handlijnen, gemechaniseerde peurlijnen, kommen en korven aan boord wordt gehouden of uitgezet, en
+Wat de afboeking van de vangsten betreft moet worden vastgesteld, dat wanneer de overschrijding het gevolg is van het verzuim van de autoriteiten van de Lid-Staat van aanvoer om de nodige controlemaatregelen te treffen, en deze niet zijn overgegaan tot strafrechtelijke of administratieve maatregelen noch tot overdracht van een dergelijke vervolging aan de Lid-Staat van registratie, het passend kan zijn om te besluiten dat de op onwettige wijze aangevoerde of overgeladen hoeveelheden kunnen worden afgeboekt op de quota van de Lid-Staat waar die activiteiten zich hebben voorgedaan.
+Rechtstreeks gerelateerd aan alle maatregelen ter verbetering van de leef- en werkomstandigheden aan boord zijn maatregelen die ontworpen zijn voor het herstel van het sociale prestige en de arbeidsvoldoening die voorheen in het beroep van zeevarende aanwezig waren.
+"Ik zou maar snel op de feesttrein springen...
+Iedereen hier heeft geheimen.
+Overdracht van de vismachtiging
+De heer Rehder laat zich op tal van belangrijke punten kritisch uit en wij kunnen ons vanavond zonder meer in die kritiek vinden.
+Boek Nu lees meer Aanbieding: binnenlandse routes, combinatie trips Routes: Ancona – Igoumenitsa, Ancona – Patras, Bari – Igoumenitsa, Bari – Patras, Italië – Griekenland, Venetië – Igoumenitsa, Venetië – Patras Minoan Lines 2019 – Gratis ontbijt special offer Minoan Lines Gratis ontbijt Geniet van een gratis ontbijt aan boord in het a la carte of self service restaurants door nu van een luxe cabine met Minoan Lines te...
+Wij beseffen tevens dat de huidige structuur van de Joegoslaafse federale staat geen instemming meer vindt bij de bevolking.
+Onderwerpen aan een nNieuw onderzoek van de uitvoeringw?ze van toepassing van de bepalingen betreffende werknemers aan boord van zeevissersvaartuigen
+Het omvat de verplichtingen die voortvloeien uit het Verdrag van Aarhus, terwijl het de lidstaten de nodige flexibiliteit laat om de wetgeving doeltreffend te implementeren.
+Na ongeveer twee minuten stortte het vliegtuig neer op een hotel, waardoor alle inzittenden alsook enkele mensen op de grond stierven.
+Van rechten bij invoer zijn vrijgesteld strooisel, foerage en al het voer aan boord van vervoermiddelen die worden gebruikt voor het vervoer van dieren uit een derde land naar het douanegebied van de Gemeenschap, bestemd om onderweg aan de dieren te worden verstrekt.
+Emissies (Euro 6) van zware bedrijfsvoertuigen, met uitzondering van de voorschriften inzake boorddiagnose (OBD) en toegang tot informatie/ toegang tot informatie
+Eén van onze agenten is aan boord van Dance's schip, vlak in zijn buurt.
+We raden u aanom ookniet te veel bagage mee te nemen, aangezien de ruimte aan boord beperkt is.
+Naast Joops vrouw Marianne, die vanaf het begin een ondersteunende rol heeft gespeeld in het bedrijf, is in 2008 ook de tweede generatie Donkervoorts 'ingestapt'.
+Alles gaat wel een keer (of vaker) kapot, of er lekt weer es wat, of... Elektriciteit aan boord en vooral de elektronica veroorzaken vooral veel hoofdbrekens, want met al dat zoute water in de buurt gaat het snel mis.
+In Verordening (EG) nr. 272/2009 is niet bepaald dat vloeistoffen, spuitbussen en gels moeten worden beschouwd als een categorie voorwerpen die niet mogen worden meegenomen in om beveiligingsredenen beperkt toegankelijke delen van een luchthaven of aan boord van een luchtvaartuig.
+(b) een lijst van het afval aan boord van het schip, met inbegrip van afval dat gedurende de exploitatie van het schip is voortgebracht (deel II);
+Enerzijds hangt dat natuurlijk samen met het feit dat wij veel verwachten van het Verdrag van Amsterdam, waarmee in ieder geval is bereikt dat wij de Britten nu ook in ons sociaal-politieke bootje krijgen en dat het sociaal protocol onderdeel van het Verdrag wordt.
+Vaartuigen die hun activiteit richten op de vangst van garnaal, mogen op het tota.il van hun vangsten m de visserijzonc van Guinee niet meer dan 25% koppotigen en niet meer dan 50% vis aan boord hebben.
+In het verslag zijn veel van de opmerkingen verwerkt die we tijdens de besprekingen in de commissie hebben gemaakt.
+Verwezen wordt naar de regels betreffende geluidshinder aan boord van schepen, als vastgesteld bij IMO-resolutie A.468 (XII).
+Als u begint met uw zoektocht naar de juiste modellen te vinden, vergeet niet te denken dan het traditionele model perceptie.Brands Getting on Board met verschillende soorten modellenVeel merken komen om te beseffen dat de verschillende soorten modellen kunnen waardevolle activa aan hun merk, bedrijfsmissie, and in a way–public perception.Bijvoorbeeld: Lane Bryant vitrines vrouwen buiten de omvang 0 rijk in zijn advertenties voor dameskleding.
+Eenmaal aan boord van de snelste van alle London RIB's (Rigid Inflatable Boats), wordt u meegenomen naar het hoofdkwartier van MI5 en MI6 en dan naar het oosten van de Theems.
 King gaat op verzoek van het Air Ministry terug naar Arnhem om KG374 aan te wijzen en de slachtoffers te identificeren.Ter nagedachtenis aan David Lord en zijn bemanning vloog de Dakota van de Battle of Britain Memorial Flight in jaren negentig van de vorige eeuw als Dakota III, KG374 'YS-DM', van 271 Squadron Op 13 november 1945 wordt aan Lord als enige van het Transport Command postuum, de hoogste onderscheiding voor heldenmoed binnen het Britse Koningrijk, het Victoria Cross uitgereikt en de Nederlandse regering beloond Harry King met het Nederlandse Bronzen Kruis.
-Na een succesvolle inspectie zal het nieuwe DMLC Part II gevalideerd worden door de aanwezige inspecteur en kan een nieuw MLC certificaat worden uitgegeven. Voor de schepen die niet MLC plichtig zijn, maar wel onder het 3 jaarlijkse regime vallen, is het aan te bevelen om tevens het nieuwe DMLC Part I aan boord te hebben alsmede een DMLC Part II aangevuld met de punten 15 en 16. William Boothstraat 2-2 8861 TL Harlingen The Netherlands +31 (0)517-431077 info@roodbovengroen.nl
-Indien de duur van de tijdsperioden waarin werknemers verplicht zijn zonder onderbreking aan boord van het vervoermiddel te verblijven, de toepassing van lid 1 niet noodzakelijk maakt, moet de werkgever, indien de aard van het traject en van de activiteiten zulks vereisen, hetzij de werknemers de beschikking geven over de sanitaire voorzieningen, ontspannings- en verblijfsruimten zoals die in lid 1 zijn gedefinieerd, hetzij passende maatregelen nemen opdat de werknemers voorzieningen kunnen gebruiken die op zijn minst gelijkwaardig zijn aan daartoe geëigende plaatsen en die makkelijk bereikbaar zijn.
-De Commissie is gemachtigd om overeenkomstig artikel 48 bis gedelegeerde handelingen vast te stellen met betrekking tot de methode voor het berekenen van de percentages aan boord gehouden doelsoorten en andere soorten die worden gevangen met één of meer netten die gelijktijdig door meer dan één vissersvaartuig worden gesleept, en met betrekking tot de verificatiemethode die moet garanderen dat de bij de gezamenlijke visactie betrokken vissersvaartuigen die vis aan boord hebben, voldoen aan de percentages vissoorten die in de bijlagen I tot en met V zijn vastgesteld.";
-== Later leven ==De Gerlache nam deel aan verschillenden andere expedities, waaronder:* een commerciële en wetenschappelijke expeditie naar de Perzische Golf in 1901;* de Antarctica expeditie van Jean-Baptiste Charcot, die werd afgeblazen voor het doel in zicht kwam;* de expeditie naar de Groenlandzee aan boord van de "Belgica" in 1905;* de expeditie naar de Barentszzee en de Karazee in 1907;* de expeditie naar Groenland, Spitsbergen en de Frans-Jozef archipel met de "Belgica" in 1909;De Gerlache had twee kinderen bij zijn eerste vrouw, Suzanne Poulet, met wie hij in 1904 trouwde: Philippe (1906) en Marie-Louise (1908).
-Dien uw verzoek uiterlijk 2 werkdagen voor vertrek in door te bellen met KLM CARES.Lees de KLM CARES brochure 'Zorgeloos op reis'Download nu > Terug naar boven Draagbare zuurstofconcentrator (Portable Oxygen Concentrator, POC)Alleen POC's die op een batterij werken of POC's die zowel op een batterij als op netstroom werken, mogen aan boord worden gebruikt.Ook hiervoor vragen wij u ruim op tijd te reserveren.Batterijen voor een POCWij kunnen helaas geen stroomvoorziening bij iedere passagiersstoel garanderen.Neem daarom voldoende, volledig opgeladen batterijen mee.
-Betreft: Kaderprogramma onderzoek de meeste de nieuwe samenwerkingsprocedure betreffen, en hoopt dat zij kan rekenen op de steun van het Parlement voor snelle aanneming van deze programma's. Het is nu van essentieel belang dat alle instellingen zich moeite getroosten om de verloren tijd op het gebied van het communautaire onderzoek in te halen.
-En dit was niet de eerste keer dat ik benaderd werd. Er zijn mensen die omgekocht worden. Ik moet hierbij teruggaan naar Bertrand Russell . Bertrand Russell zei in een van zijn eigen boeken: “De kinderen, die in staat zijn aan de indoctrinatie te ontsnappen, die intelligent zijn en het vermogen hebben om met anderen te communiceren, moeten aan boord van het systeem gebracht worden en door het systeem in dienst genomen worden. Desnoods moeten zij omgekocht worden.” Het werkt meestal, met de meeste mensen. “Anders”, zei hij, “moeten wij hen elimineren”.
-Uit de op 10 oktober 2006, 14 november 2006 en 12 maart 2007 door Portugal meegedeelde gegevens blijkt dat de visserijinspanning van de vaartuigen die sinds 1 januari 2004 hun activiteiten hebben beëindigd, gelijk is aan respectievelijk 9,61 % van de visserijinspanning die in 2003 is geleverd door Portugese vaartuigen die in het geografische gebied aanwezig waren en trawls met een maaswijdte gelijk aan of groter dan 32 mm aan boord hadden, 6,75 % van de visserijinspanning die in 2003 is geleverd door Portugese vaartuigen die in het geografische gebied aanwezig waren en kieuwnetten met een maaswijdte gelijk aan of groter dan 60 mm aan boord hadden, en 14,12 % van de visserijinspanning die in 2003 is geleverd door Portugese vaartuigen die in het geografische gebied aanwezig waren en beuglijnen aan boord hadden.
-— voorstel voor een richtlijn van de Raad betreffende minimumvoorschriften inzake de verbetering van de veiligheid en de gezondheid van de werkenden bij exploratie en winning door middel van boren;
+als het schip als gevolg van één of een combinatie van deze factoren niet zeewaardig is en de opvarenden daardoor een risico zouden lopen.
+Adams was assistent chirurg aan boord van HMS "Samarang" tijdens de onderzoeksreis die de natuur van de Indische Archipel onderzocht van 1843 tot 1846.
+Om 18.30 troffen we elkaar bij een restaurantje aan de rivier de Ness, waar we heerlijk en heel gezellig gegeten hebben.Daarna aan boord nog een afzakkertje, terwijl Jos al te kooi lag, want die moest er het eerst weer uit!Want vanochtend om 7 uur liep de wekker af!
+De lidstaten zorgen ervoor dat vissersvaartuigen die hun vlag voeren en in de Gemeenschap geregistreerd zijn, wanneer ze één van de in punt 4 vermelde vistuigen aan boord hebben, niet langer dan het in punt 6 bepaalde aantal dagen buitengaats en in het gebied aanwezig zijn.
+De regeling zal voortbouwen op bestaande locaties en netwerken en vorige projecten opnemen.
+Het is verboden drijfnetten aan boord te hebben of uit te zetten die langer zijn dan de bij Verordening (EG) nr. 894/97 houdende technische maatregelen voor de instandhouding van de visbestanden18 vastgestelde maximumlengte, gewijzigd door Verordening (EG) nr. 1239/9819 van 8 juni 1998.
+Wanneer visserijproducten aan boord van het vaartuig van een onmiddellijke verpakking worden voorzien, zien de exploitanten van levensmiddelenbedrijven erop toe dat het materiaal voor onmiddellijke verpakking: a) geen bron van besmetting vormt; b) op zodanige wijze wordt opgeslagen dat het niet kan worden verontreinigd; c) indien het bestemd is voor hergebruik, gemakkelijk kan worden schoongemaakt en, indien nodig, ontsmet.
+Nieuwe energie voor uw elektrische smart.Om altijd vol energie aan te komen hebben de nieuwe smart EQ fortwo, fortwo cabrio en forfour talrijke intelligente oplossingen aan boord.
+Nu zitten ze allemaal aan boord van een vrouwelijke bij.
+Denk je dat je die mensen had kunnen redden?
+Bij de amendementen 87 en 126 worden de taken van stationbeheerders en spoorwegondernemingen (inclusief het personeel aan boord van de trein) wat betreft de bijstand die moet worden verleend aan personen met verminderde mobiliteit, aangepast.
+De opbrengst zal. Portugese jongeren aan boord Good.
+Stap aan boord en beleef het!
+Het beleid voor vernieuwing van de vloot is erop gericht om de veiligheid en de leefomstandigheden aan boord van schepen te verbeteren en niet om de capaciteit of de effectiviteit te vergroten.
+Gelet op de verstrekte gegevens moeten aan Nederland extra dagen worden toegekend voor vissersvaartuigen die vistuig zoals genoemd in punt 4, onder b), van bijlage V bij Verordening (EG) nr. 2287/2003 aan boord hebben,
+„offshoredienstschip” een schip dat wordt gebruikt om industrieel personeel te vervoeren en te herbergen dat aan boord geen werk verricht dat essentieel is voor de exploitatie van het schip; zg)
+We moeten ze achter ons zien te krijgen.
+De volgende documenten moeten aan boord van het voertuig worden meegevoerd: b) schriftelijke instructies en informatie verzameld in overeenstemming met de bijlage van de wetstekst die aan de regeling ten grondslag ligt.
+Enige geestelijken aan boord kwamen er echter achter wie ik was en stuurden een telegram vooruit om de Japanse autoriteiten ervan op de hoogte te stellen dat ik lectuur aan boord had.
+Om deze professionele gebruikers te overtuigen , dienen banken tevens een dienst aan te bieden die gemeenschappelijke berichtstandaarden omvat in het hele betalingstraject , zowel in het customer-tobank-domein als in het bank-to-customerdomein , d.w.z. respectievelijk de berichten voor betalingsinitiëring en kennisgeving van betaling , rekeningbericht en rekeningafschrift .
+3D-printers kunnen mee aan boord om nieuwe onderdelen te printen en het schip te vergroten want het moet ook plaats bieden aan een groeiend ecosysteem.
+Stap aan boord van deze BAVARIA 39-3 en geniet van de ruimte.
+De Commissie heeft ook bepaald dat de resultaten van het NRI-overleg in het kader van artikel 6, lid 1, openbaar toegankelijk moeten worden gemaakt, behalve wanneer het om commercieel gevoelige informatie gaat, waardoor nog een element van amendement 33 is meegenomen.
+Iedereen die houdt van in de lucht tijd om te gaan, kan binnenkort aan boord van de “Quantum of the Seas” en “Anthem of the Seas” ervaring.
+Er zijn twee Engels verslaggevers aan boord van het schip, twee Franse, één Zuid Koreaan.
+Treinen zonder ingebouwde hoogtebegrenzing zijn op deze lijn dan ook niet toegestaan.
+Daarvoor hebben we alle belanghebbenden nodig, de lidstaten, de gemeentes, de eigenaren en de huurders van onze gebouwen.
+Overnachten doe je aan boord op het eiland.
+Gelet daarop moet deze verordening bescherming bieden tegen de mogelijke negatieve effecten van gevaarlijke materialen aan boord van alle schepen die een haven of een ankerplaats van een lidstaat aandoen, met naleving van de op die materialen van toepassing zijnde bepalingen in het internationale recht.
+Mobiele communicatiediensten aan boord van vaartuigen (MCV-diensten) worden gebruikt aan boord van vracht- en passagiersvaartuigen die binnen de territoriale wateren van de Europese Unie en in internationale wateren varen en vaak van pan-Europese of internationale aard zijn.
+Wanneer het vaartuig vist met een vergunning die is afgegeven door cen ander land van de subregio (Mauritanië, Gambia, Guinée-Bissau of Guinee), moet hei aantal Senegalese zeelieden op het vaartuig 33% uitmaken van de niet tot de officieren behorende bemanning die tot taak heeft het schip te doen varen.
+De treinen moeten dan ook worden uitgerust met stroombeperkingsapparatuur zoals omschreven in bijlage O van deze TSI.
+Bevreesd dat de gevangenen zouden ontsnappen, besloten de soldaten die aan boord waren, hen allen te doden.
+Het opslaan van boorduitrustingsstukken en voorraden De normale boorduitrustingsstukken, alsmede het materiaal en de voorraden die zich aan boord van de luchtvaartuigen van een der Overeenkomstsluitende Partijen bevinden kunnen op het grondgebied van de andere Overeenkomstsluitende Partij slechts worden uitgeladen met toestemming van de douaneautoriteiten van die Partij.
+Veel belangrijke maatregelen om de innovatiecapaciteit van de Europese geneesmiddelenindustrie te verbeteren zullen ingang vinden in de lopende herziening van de communautaire geneesmiddelenwetgeving overeenkomstig Verordening nr. 2309/93 en Richtlijn 2001/83/EG.
+Ja, er zijn adapters aan boord die we ertussen kunnen zetten, om een ISO-regulator op een ander type ventiel aan te sluiten.
+Ik weet dat er - zoals mevrouw Attwooll al aangaf - enige verdeeldheid is ontstaan over de steun voor maatregelen ter verbetering van de veiligheid van de scheepvaart, over arbeidsomstandigheden en over de hygiëne aan boord van vissersschepen.
+Op grond van artikel 60, lid 3, van Verordening (EG) nr. 1224/2009 mag een lidstaat, bij wijze van afwijking van de in artikel 60, lid 1, vastgestelde algemene weegplicht, toestaan dat visserijproducten aan boord van het vissersvaartuig worden gewogen op voorwaarde dat die lidstaat een in artikel 60, lid 1, bedoeld door de Commissie goedgekeurd steekproevenplan heeft aangenomen dat is gebaseerd op de risicogebaseerde methode zoals vastgesteld in artikel 76, lid 2, van Uitvoeringsverordening (EU) nr. 404/2011, in samenhang met bijlage XX van die verordening.
+Al het militaire personeel aan boord is in de hoogste staat van paraatheid gebracht.
+Vanaf het moment dat u aan boord komt van de met airconditioning voorziene schepen van European Seaways, voelt u zich direct welkom door de vriendelijke sfeer aan boord.
+De kapitein van een communautair vissersvaartuig dat in het westelijk Kanaal is geweest die een aan boord gehouden hoeveelheid tong wil overladen op zee of wil aanlanden in een haven of op een plaats van aanlanding in een derde land, deelt tenminste 24 uur van te voren aan de bevoegde autoriteiten van de vlaggenlidstaat de volgende gegevens mee:
+Maak kennis met de spoorlijn van de 3 Valleien, een van de mooiste parcours van Europa. Keer terug in de tijd met een authentieke stoomtrein en doorkruis de 'Drie Valleien' met hun ongelooflijke landschappen.
+Dit is een boodschap voor de Tau'ri op dit schip.
+Uit de statistieken van de havenstaatcontrole over aan boord van geïnspecteerde schepen aangetroffen ongerechtigheden en over de redenen waarom schepen werden vastgehouden bleek dat de structurele veiligheid van bulkcarriers steeds zorgwekkender en de behoefte aan maatregelen steeds dringender werd.
+Er zal alleen steun zijn voor maatregelen om de veiligheid aan boord van de vaartuigen te verbeteren zonder de in tonnage of motorvermogen uitgedrukte capaciteit te verhogen.
+Dit gebouw kwam nauwelijks van een campagne van acht maanden in de Stille Oceaan binnen die twee vorming van de vloot van de Atlantische Oceaan, ze VF-14 Squadrons en VF-32, ontplooid aan boord van USS John F. Kennedy (CV-67), hun eerste F-14A ontvingen. Sedertdien werden 18 eenheden van US Navy op dit apparaat veranderd, aangezien Tomcat voor Navy Voorraad eveneens is bestemd: Squadron VF-301, geplaatst in Miramar, nam levering ervan aan het einde van 1984, en Squadron VF-302 was in 1985.
+Bijgevolg kan de waarnemer in cen andere dan een Senegalese haven worden ingescheept cn/of van boord gaan, op voorwaarde dat de reis- en verblijfkosten ten laste van de reder komen.
+De helikopter dient te zijn uitgerust met een automatisch inzetbare plaatsaanduidende noodzender die tegelijk op 121,5 MHz en 406 MHz kan uitzenden.
+Normale uitrustingsstukken, reserveonderdelen, voorraden brandstof, smeermiddelen en proviand aan boord van Iuchtvaartuigen van een van beide Overeenkomstsluitende Partijen kunnen op het grondgebied van de andere Overeenkomstsluitende Partij slechts worden uitgeladen met toestemming van de douaneautoriteiten van deze Overeenkomstsluitende Partij, die kunnen verlangen dat deze materialen onder hun toezicht worden geplaatst, totdat zij weer worden uitgevoerd of overeenkomstig de douanevoorschriften een andere bestemming hebben gekregen.Artikel 10.
+Bovendien nodig ik de Fractie van de Europese Sociaal-democraten uit om hun verouderde opvatting in te ruilen voor deze moderne zienswijze.
+In gevallen waarin troepen van de Republiek Moldavië aan boord van een schip of een vliegtuig van een lidstaat van de EU opereren, oefent deze lidstaat daarover rechtsmacht uit overeenkomstig zijn interne wetgeving en procedures.
+Het Comité stelt zich evenwel op het standpunt dat de richtlijn aan precisie en evenwichtigheid zou winnen indien twee reeds in zijn voorgaande advies gedane voorstellen, die de Commissie in haar gewijzigde voorstel niet heeft gevolgd, zouden worden overgenomen.
+h) "aan boord geplaatst": aan boord van een schip geïnstalleerde of geplaatste uitrusting;
+Het verlof loopt af om zeven uur.
+Eindelijk was ik aan boord, mijn verblijfplaats voor de komende drie nachten.
+Zoals blijkt uit vrachtdocumenten aan boord van de Labiko 2, heeft de industrie voor de productie van haaienleverolie, vanwege het enorme aantal gedode haaien, een ecologische voetafdruk die een visserijvorm in slechts enkele jaren kan wegvagen.
+De douaneautoriteiten stellen de maatregelen vast die in acht moeten worden genomen om het douanetoezicht op de in lid 1 bedoelde goederen of op de zich in het in lid 2 bedoelde geval aan boord van een schip of vliegtuig bevindende goederen mogelijk te maken en om er in voorkomend geval voor te zorgen dat deze goederen vervolgens naar een douanekantoor of enige andere door hen aangewezen of goedgekeurde plaats worden overgebracht.
+Ze is het er mee eens.
+De gezagvoerder staat niet toe dat iemand aan boord van een luchtvaartuig gebruik maakt van een draagbaar elektronisch apparaat, met inbegrip van een electronic flight bag (EFB), dat een negatieve invloed kan hebben op de werking van de systemen en apparatuur van het luchtvaartuig of op het vermogen van de cockpitbemanning om het luchtvaartuig te besturen.”;
+Het nieuwe sociaal actieprogramma, dat gezien wordt als een belangrijk bestanddeel van het Europese sociale beleid, moet worden overgenomen door alle Europese instellingen, door de lidstaten en door de sociale partners. Daarmee wordt ook aangegeven hoe belangrijk het is dat er wijzen worden gevonden om de maatschappelijke discussie in de toekomst op een objectiever en besluitvaardiger wijze te laten verlopen.
+De heer Kallio, die deel uitmaakte van de studiegroep, feliciteert de rapporteurs met hun werk.
+de maximumduur van tijdvakken van dienst aan boord waarna een zeevarende recht heeft op repatriëring, waarbij zij aangetekend dat dergelijke tijdvakken ten hoogste 12 maanden mogen bedragen, en
+Bij de trawlvisserij is het belangrijk dat de opening van de kuil van het trawlnet wordt geobserveerd.
+Terwijl alle economische indicatoren langzaam maar zeker evolueerden naar de convergentie die nodig is voor de start van de Europese monetaire unie conform het overeengekomen tijdschema en de voorwaarden van het Verdrag van Maastricht - zoals u zojuist nog duidelijk in herinnering hebt gebracht - hebben twee onvoorziene gebeurtenissen van zuiver politieke aard een proces doorkruist dat de financiële markten van de hele wereld al hadden aanvaard en waar die markten zelfs al op vooruit waren gelopen.
+Bij het berekenen van het gederfde inkomen wegens de beperkingen op het gebruik van gronden en grindwinningen tijdens de overgangsperiode, houdt de Commissie enkel rekening met de reële kosten; het is in dit geval zeer waarschijnlijk dat de onderneming het gederfde inkomen heel binnenkort zal terugwinnen.
+Nieuw: internet aan boord
+Huisdier aan boord (internationaal en Canarische eilanden)
+Veiligheid van de goederen aan boord
+In deze voorschriften zijn de minimumeisen voor radarinstallaties voor de binnenvaart vastgelegd, alsmede de keuringsvoorwaarden waaronder aan de minimumeisen moet worden voldaan.
+Aan boord van het schip, ontmoet hij een geheimzinnig meisje.
+Richtlijn 92/85/EEG (PB L 348 van 28.11.1992) De gezondheid en veiligheid op het werk van werk­neemsters tijdens de zwangerschap, na de bevalling en tijdens de lactatie Luxemburg
+.12 Het gebruik van een blusstof die uit zichzelf of onder te verwachten gebruiksomstandigheden toxische gassen verspreidt in hoeveelheden die voor de mens gevaar opleveren of die voor het milieu schadelĳke gassen afgeeft, is niet toegestaan in brandblusinstallaties aan boord van nieuwe schepen en in nieuwe brandblusinstallaties op bestaande schepen.
+De Commissie begrijpt dat amendement 2, alsmede de amendementen 9 tot en met 12 en 14 tot en met 17 tot gevolg kunnen hebben dat de bepalingen van de richtlijn worden uitgebreid tot personeelsleden als schoonheidsspecialisten, secretaresses en medische begeleiders, die alleen om zuiver commerciële redenen aan boord van het vliegtuig zijn en hoegenaamd geen veiligheidsrol te vervullen hebben.
+HOOFDSTUK VII
+Professor Block legde uit: „De rimpelingen die door de Differential Microwave Radiometer aan boord van COBE werden geregistreerd, waren dezelfde fluctuaties die hun stempel op onze kosmos hebben gedrukt en miljarden jaren geleden tot de vorming van sterrenstelsels hebben geleid. ”
+(10) Overeenkomstig het beginsel van de proportionaliteit is het voor het bereiken van het hoofddoel, namelijk de instandhouding van de haaienbestanden, noodzakelijk en wenselijk regels vast te stellen voor het afsnijden van haaienvinnen aan boord van vaartuigen.
+De benodigde formulieren zijn te verkrijgen bij Superfast Ferries S.A. Passagiers met functiebeperkingen Aan boord van onze schepen zijn er speciaal ontworpen makkelijk toegankelijke hutten voor passagiers met functiebeperkingen.
+Biotechspelers aan boord
+In afwijking van lid 1, onder f), ii) en onder h), mogen vaartuigen met een lengte van ten hoogste 12,2 meter die hun thuishaven hebben aan de oostkust van Ierland en Noord-Ierland tussen 53°00' en 55°00' noorderbreedte, hoeveelheden haring aan boord houden uit de onder f), ii) en onder h), vermelde zones.
+Meer dan je aan boord kunt dragen of mee naar huis kunt nemen.
+(8) "overlading": het overbrengen van alle aan boord van een vaartuig aanwezige visserijproducten of van een deel daarvan naar een ander vaartuig;
+28. "diensttijd": het dienst doen aan boord van een schip voorzover van belang voor de afgifte van een vaarbevoegdheidsbewijs of een ander bewijs van beroepsbekwaamheid;

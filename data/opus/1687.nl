@@ -1,48 +1,27 @@
-Wat is beschadigd?
-Is 't erg? Hoeveel tijd rest me nog?
+Hoeveel zijn we kwijt?
+Hoeveel krijg je van me?
 Wat is de schade?
-Hoeveel schade is er?
-Hoeveel is de schade?
-Wat ben ik je schuldig?
-Hoeveel kostte het?
-Wat heeft ze?
-- Wat is de schade?
-- Wat zou de schade zijn?
-Hoeveel schade?
-Is de schade groot?
-De schade?
-Maar hou het systeem open voor de defensie.
+Wat is de schade?
+- Dus, wat is de schade?
 Wat is de schade.
-En, wat is de schade?
-Hoeveel kost het?
-Alstublieft, wat is de schade?
-Wat ben ik je verschuldigd?
-Wat is het probleem?
-- 22,11 dollar.
-Hoeveel?
-- Wat kost 't?
-Hoe erg is de schade?
-Hey, wat is de schade?
-Generaal, wat is de schade?
 Wat is de schade?
-Hoe schandalig hoog is ze?
 Wat is het probleem?
 - Mooi.
-Zo, hoeveel is het nu?
-Wat is de schade?
-Wat is de schade, Ronald?
-- Dus, wat is de schade?
-Wat is de schade?
-Hoeveel zijn we kwijt?
-Wat is de schade?
-Hoe groot is de schade?
-Hoeveel is het?
-Wat is de schade?
-Hoeveel krijg je van me?
+Je zou niet beter kunnen ruiken.
+Hey, wat is de schade?
+Hoe erg is de schade?
 Waar is Chip, en wat is de schade?
 Wat is de schade?
+Alstublieft, wat is de schade?
 Wat is de schade?
-Je zou niet beter kunnen ruiken.
+Wat is de schade?
+Wat is de schade, Ronald?
 Hoeveel ben ikjullie verschuldigd?
+Hoeveel schade is er?
+Hoe schandalig hoog is ze?
+Generaal, wat is de schade?
 Maandag kan ik pas ingrijpen.
+Wat ben ik je schuldig?
+Wat is de schade?
 Ik bestel wel een nieuwe telefoon.
+Hoe groot is de schade?

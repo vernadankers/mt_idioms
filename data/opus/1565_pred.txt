@@ -1,9 +1,5 @@
-Je weet wel , je gewicht in de schaal leggen ?	-0.631740391254425
-Leuk om je gewicht in de schaal te leggen ?	-0.5852751135826111
-Werp je gewicht niet bij mij , verdomme .	-0.6282714605331421
-- Je kunt je gewicht in Jersey gooien .	-0.7299016714096069
-Je houdt er wel van om je gewicht in de schaal te leggen , hè Mark ?	-0.6812020540237427
-Als je denkt je gewicht te kunnen gooien , ga je weg !	-0.6494641304016113
-Nou , het is een goed ding dat je klaar bent om het podium op te gaan en je gewicht rond te gooien .	-0.5428222417831421
-Je gooit je gewicht rond en je laat iemand een naam geven die mijn jongen vermoordde en nu mag je terug naar je kantoor gaan en je goed voelen over jezelf ?	-0.5402500629425049
-Een halve eeuw lang doe je geen moeite om de hele vreedzame westerse wereld te bedreigen en dan ... beslis je op een dag dat je niet meer aan het touw wilt trekken .	-0.5538898706436157
+Je houdt er wel van om je gewicht in de schaal te leggen, hè Mark?
+Je gooit je gewicht rond en je laat iemand een naam geven die mijn jongen vermoordde en nu mag je terug naar je kantoor gaan en je goed voelen over jezelf?
+Werp je gewicht niet bij mij, verdomme.
+Een halve eeuw lang doe je geen moeite om de hele vreedzame westerse wereld te bedreigen en dan... beslis je op een dag dat je niet meer aan het touw wilt trekken.
+- Je kunt je gewicht in Jersey gooien.

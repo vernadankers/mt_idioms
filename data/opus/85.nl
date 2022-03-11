@@ -1,2 +1,0 @@
-Uiteraard hopende dat het huidige akkoord tussen Palestijnen en Israëli's en de wederzijdse erkenning tussen de twee nu ook spoedig gevolgd zal kunnen worden door vredesakkoorden met de andere partijen met wie Israël op dit moment nog in een situatie van vijandelijkheid verkeert.
-Een Russisch tijdschrift kondigde aan: „Wij maken ons gereed om zwaarden tot ploegscharen te slaan ”, terwijl de secretaris - generaal van de Verenigde Naties verklaarde:„ Wij bevinden ons niet langer in de koude oorlog. ”

@@ -1,500 +1,500 @@
-Voor nu tenminste.
-- Ja. Voorlopig dan.
-Mooi.
-Je pantoffels.
-Voor nu?
-- Op het ogenblik wel.
-Intact... Voorlopig.
-Voor het moment.
-Dus voor dit moment...
-Op dit moment, ja.
-- Nog niks concreets.
-Al is het maar tijdelijk.
-Nee, nog even niet.
-Althans voorlopig.
-- Nog wel.
-Je hebt gelijk, "ondertussen".
-Het is maar voor even.
-Niet voor een korte periode.
-En tijdelijk heb ik hier vrede mee.
-Voorlopig ben ik dus mobiel.
-Ik laat de chromatograaf voorlopig hier.
-We zullen het hier bij laten voor het ogenblik.
-“Het kapitaal is vooralsnog toereikend.
-Hou dit voorlopig onder ons.
-Hij hoeft niet dood.
-Jullie drieën verblijven daar ondertussen.
-Ankara heeft bovendien de grensovergangen naar Armenië gesloten en dat blijft voorlopig ook zo.
-Ik leen dit zolang.
-'T is veel rustiger, weet je. Je kunt hier voorlopig blijven.
-Voorlopig is je vergunning ingetrokken.
-Daarbij zullen de besluiten voorlopig nog met eenparigheid van stemmen worden genomen.
-Eén per dag, voor nu.
-Die houden we in gedachten.
-Alleen zet ik die voorlopig even op slaapstand.
-Je zult deze voorlopig met mij moeten delen.
-Voorlopig blijft dit ons geheimpje.
-Hayley en Hope zijn voorlopig veilig.
-Laura mag ik Erics dagboek lenen?
-We laten het systeem voorlopig open.
-Avon is een tijdje uitgeschakeld.
-Een waterput is op het moment afgedekt.
-We zitten voorlopig aan hem vast.
-Welkom in uw nieuwe huis, voor de komende tijd.
-Voorlopig ben ik overal op voorbereid.
-Althans voorlopig.
-Voorlopig zal deze stijging nog doorgaan.
-Er worden derhalve nog geen financiële bepalingen gevraagd.
-Ik ga voorlopig hier maar slapen.
-Je kunt die jongen sparen voor het moment.
-Tot nu toe waren het slechts... enkele dagboeken. - Ze is verlegen.
-En voor nu, heb ik niets kwaads in de zin.
-Voorlopig wordt Birkoff geschorst.
-Voorlopig hebben wij kunnen zien dat het werkte.
-Haar partij heeft gezegd dat ze voorlopig aanblijft als leider.
-En laten we hier voorlopig discreet over zijn, oké?
-Neal, zullen we dat even aan de kant leggen?
-Polen en Zweden hebben momenteel geen streefdatum.
-Het blijft voorlopig dus gissen wie Saito Hodo is.
-Wat het ook was lijkt voorlopig verdwenen.
-Ik zal er voorlopig mee moeten leren leven.
-Voorlopig doet de buzz zijn eigen werk.
-Voorlopig is het niet nodig om hem op te pakken.
-Ik breng je voorlopig naar m'n moeder.
-Dit is 'n militaire aangelegenheid.
-Voorlopig beschikken we alleen nog maar over de hoofdlijnen van de overeenkomst.
-We houden hem voorlopig in het politiebureau.
-In hotel Homan werden we voorlopig ondergebracht.
-Dat Lillith voorlopig even uit de buurt houdt.
-We houden hem voorlopig onder verdoving en volgen de intracerebrale druk.
-Voorlopig nemen we de computergegevens als feiten aan.
-Ik denk dat een andere optie op korte termijn onhaalbaar is.
-Leila, zeg niks tegen je moeder voor nu.
-En dat gaat misschien verder dan dr. Turner.
-Maar vooralsnog wist hij al zulke neigingen doeltreffend de baas te blijven.
-Hoe het nu verder gaat, is voorlopig nog niet geweten.
-Het totale aantal automaten is voorlopig nog vrij beperkt.
-Hij is m'n gast, en dat blijft hij voorlopig ook.
-Ondertussen, heb ik je programmeerd om alleen op mij in te werken.
-Het voormalige Retraitehuis Schinnen is voorlopig Ahmads nieuwe thuis.
-Soms is het beter om voorlopig niets te vertellen.
-Hier kun je wel even onderduiken.
-den. Het aanbod is momenteel nog beperkt tot twee modellen: Like en
-Hij zal tussentijds in het ziekenhuis moeten blijven.
-Daarom mijn hartelijke felicitaties.
-Tijdelijk omringt het de gehele stad...
-Laten we ons nu concentreren op de bouw van de fabriek, ja?
-Het ontwerp, de constructie, enz. zijn conform de voorschriften van de Bijlagen B.1c of B.1a van de ADR, maar er zijn een paar specifieke aspecten met betrekking tot de problemen op het gebied van de afvalstoffen.
-Voorlopig bestaan en functioneren deze catalogi echter onafhankelijk van elkaar.
-Het antwoord daarop is vooralsnog moeilijk te geven.
-Maar voorlopig kunnen we nog niet weg, dus wachten we het hier af.
-Ga naar je kamer en blijf daar een poosje zitten.
-De F.B.I. heeft ons met rust gelaten. Voor zolang het duurt.
-Wulf-Mathies. - (DE) Mijnheer de Voorzitter, ik wil dit graag proberen.
-Ze helpen me momenteel en ik vroeg me af of...
-Maar voorlopig, is de naam Ari Cohen ons kleine geheimpje. Ik hoop dat je hem voor me kan vinden.
-Momenteel overtreft de vraag van de boeren naar de verschillende pro­dukten nog het aanbod.
-Goed, dat blijft nog even ons geheimpje.
-Dan laat ik het voorlopig aan u over.
-Voorlopig ligt het qua populariteit achter op de internationale norm ISO 14001.
-En we willen het graag voorlopig stilhouden.
-In welke vorm dat moet gebeuren, blijft voorlopig een open vraag.
-Vooralsnog is er geen reden om in Nederland te vaccineren.
-De zon is ver weg en laat zich voorlopig niet zien.
-Wij worden momenteel geconfronteerd met een humanitaire crisis met dramatische afmetingen voor Europa.
-Walt's lichaam wordt verplaats naar een gebouw van de Secret Service.
-Drukapparatuur voor het vervoer van gevaarlijke goederen valt daar voorlopig buiten.
-Voorlopig kunnen we niets anders doen dan deze lijn duidelijk voortzetten.
-Dus totdat het zo ver is wil ik tenminste plezier hebben on het leven.
-Maar voorlopig vormen wij een team en hebben wij elkaar nodig.
-Op dit moment is deze optie enkel beschikbaar bij Small- en Medium-albums.
-Voorlopig trekt hij in bij zijn ouders aan de Schinkelkade 17 (huis).
-Ik zal me nu vooral concentreren op hoe we snel en rechtsreeks op de crisis kunnen reageren.
-Het kan een tijd duren voordat iemand die de waarheid geweld aandoet, ontmaskerd wordt, maar sta eens stil bij zijn toekomst.
-De terroristische dreiging is nu groter en zal niet onmiddellijk verdwijnen.
-Luister, Dit zal een beetje tijd kosten, dus blijf tijdelijk maar even hier.
-We logeren in het huis van je moeder tot onze zaakjes zijn geregeld.
-Over de ratificatie kan ik nu nog niets zeggen.
-Voorlopig hebben niet-bancaire dienstverleners niet aan deze werkzaamheden mogen deelnemen25.
-Hoewel de huwelijksvooruitzichten op dat moment niet rooskleurig waren, gehoorzaamde Hosea het goddelijke gebod.
-Ik stel voor dat wij de vergadering voortzetten in de zaal zoals ze nu is.
-Voorlopig niet, maar ik denk dat ze hier ook niet veilig zijn.
-De Universiteit van Aruba werd opgericht, voorlopig alleen nog maar met een Juridische Faculteit.
-III.c – tenuitvoerlegging van het opt-in-beginsel met (voorlopig) een zekere flexibiliteit.
-Samen hebben we momenteel een kweekhok waar we voorlopig meer vooruit kunnen.
-Voorlopig bestaat het 19e regiment niet meer.
-Mogen we u uitnodigen om binnenkort naar onze nieuwe website te kijken? “ArtKidsFoundation.org”
-Wat Polen betreft, behoort het Berianisme, voor het ogenblik althans, tot het verleden.
-Het is alleen dat we op dit moment geen details over onze acties kunnen onthullen.
-Bijgevolg concentreert dit voorstel zich voorlopig op het gebruik van gewasbeschermingsmiddelen.
-Voor alsnog werd dit voorstel afgewezen door het merendeel van de overige lidstaten.
-Voorlopig slaap je bij de dienstboden in de Hal van Zeus.
-dus ik ga 'n BB voor hem zoeken.
-Macedonië nam deel aan het Eurovisiesongfestival 2009 in Moskou, Rusland.
-Misschien, maar voor nu is ze meer waard levend dan dood.
-Tenminste een Lid-Staat heeft de quotaregeling, althans voorlopig, naast zich neergelegd.
-Dat moet u weten. Maar kom niet bij mij klagen als u uw vingers brandt.
-Voorlopig is het aan de lidstaten zelf om hier werk van te maken.
-Op het oorspronkelijke ontwerp van mevrouw Van Lancker viel weinig of niets aan te merken.
-U behoudt voorlopig uw baan als directeur... en de leiding over andere operaties van CTU.
-Om de waterzuivering en de distributie voorlopig uit te sluiten, lijkt mij wijs beleid.
-Dat is dus een onopgelost probleem. Graag uw antwoord daarop.
-Er is zeker nog ruimte voor verbetering maar vooralsnog klinkt 'Ascend To Chaos' heel prima.
-Op het nippertje is de invoering van de Economische en Monetaire Unie een feit geworden, een ogenschijnlijk technisch­economische maatregel die wel degelijk op de langere termijn tot een gevoel van politieke saamhorigheid kan leiden.
-De British Civil Aviation Authority heeft besloten voorlopig geen gevolg aan deze aanbevelingen te geven.
-Alles in aanmerking genomen, kan het zijn dat het onverstandig is om te verhuizen — althans voorlopig.
-"Op dit moment zijn niet alleen de fortificaties, maar ook de troepen in een armzalige conditie."
-In de tussentijd is het misschien verstandig om bij John en mij uit de buurt te blijven. Voorlopig tenminste.
-Toen in de loop van 2010 het horeca-imperium van Sjoerd Kooistra ineenstortte, werd op 6 september van dat jaar ook de ARC gesloten.
-Je zou willen om te proberen over te schakelen naar de web player in plaats en gebruik het voor het moment.
-Tot nu toe werden aan de Commissie echter nog geen voorstellen gedaan.
-(FR) Mijnheer de Voorzitter,
-Ik zal je niet lastigvallen met de details, maar ik neem geen andere zaken aan voorlopig.
-Korporaal, en dat ben je nu nog, ik wil je ergens op wijzen.
-TENDENZEN EN PERSPECTIEVEN de bedrijven wel een financiële bijdrage.
-televisieprogrammadiensten en EER-satellietdiensten die momenteel aan de vereisten voldoen, en
-We vragen ze voorlopig niet zich te verplichten tot uitstootvermindering in absolute zin.
-Nee joh, ik ben ook pas in mei 2001 geboren en voorlopig nog lang niet volwassen.
-Daarop zal het verklikker - orgaan een signaal sturen naar de klier om voorlopig de afgifte van hormoon te staken.
-Mijnheer de commissaris, bij de discussie over deze richtlijn staat het Europees sociaal model op het spel.
-In wezen was men echter van gevoelen dat er geen sprake was, voor het moment tenminste, van enige substantiële vermindering van ploegendienst.
-Voorlopig worden de huidige VSNU-overeenkomsten, hoewel niet conform de voorwaarden van Plan S, geaccepteerd voor naleving via de derde optie.
-Tot dusver zijn vier vestigingsplaatsen voorgesteld: Cadarache (Frankrijk), Clarington (Canada), Rokkasho (Japan) en Vandellos (Spanje).
-Omdat dit gevaar aanwezig is, heeft de Unie besloten dit wapen voorlopig niet in stelling te brengen.
-"Daar is de overheid vooralsnog onze voornaamste partner, maar de ontwikkelingen gaan snel", zegt Snijders.
-De Commissie ziet op dit ogenblik geen haalbare andere uitgangsbasis die dezelfde resultaten kan geven.
-We hebben al contact gezocht met je vrouw... en we hebben haar en je kinderen tijdelijk in een hotel ondergebracht.
-1) Voor de toepassing van dit deel worden de televisieprogrammadiensten en de [EER]-satellietdiensten als volgt in twee categorieën verdeeld: a) televisieprogrammadiensten en EER-satellietdiensten die momenteel aan de vereisten voldoen, en b) alle andere televisieprogrammadiensten en EER-satellietdiensten.
-Ik heb met Toby gesproken en hij begrijp dat je voorlopig slecht bereikbaar zult zijn.
-De Gemeenschap moet wereldwijd een stabiliserende en vredesbevorderende invloed proberen uit te oefenen op crises in andere regio's van de wereld.
-De gedachtenbank bevat werk van - vooralsnog - vijftig Surinaamse dichters van 1939 tot heden.
-Handhaaf alarmfase drie. En licht Rusland, Groot-Brittannië, Frankrijk, China en Canada in.
-Het lijkt mij beter het programma voorlopig te richten op verbetering van het huidige overgangssysteem.
-Ik deel de opmerkingen van de heer Linkohr en teken hierbij aan dat de activiteiten van het Centrum in een fase zijn gekomen die wij als de fase van de rijpheid en de stabiliteit kunnen betitelen.
-Een lijst met de beoogde uitbreidingen van bestanden die worden gezocht om zich te versleutelde onbekend is voor het moment.
-Vooralsnog is het meer betrouwbaar om eDNA uit de watermonsters in het laboratorium te filtreren.
-Ja, het Gilde zal hier ook wel een dikke vinger in de pap hebben.
-Hoewel het verslag-von Boetticher voorlopig voorziet in beperkte taken voor het agentschap moeten we ons daar dan ook niet door gerust laten stellen.
-Je bent hier om je Avatar opleiding af te maken. Dus blijf voorlopig op het eiland.
-De zaak is echter uitermate gecompliceerd.
-Vooralsnog zullen de meesten behoorlijk gecharmeerd zijn van wat de band op 'Slavior' laat horen.
-Schengen is echter veel beter dan niets op het gebied van personenverkeer.
-In Agartala hebben we enkele dagen rust genomen om van onze laatste dagen in India te genieten.
-Door netwerk- en schaaleffecten zal de USD waarschijnlijk voorlopig nog de dominerende internationale valuta blijven.
+In dit verslag wil men ons doen geloven dat men, in tegenwoordigheid van Parlementsleden, op zoek is naar de beste oplossing voor een goed functioneren van ons Parlement.
+Evenmin wordt hiermee al gewaarborgd dat de afnemers alle vruchten plukken van deliberalisering. Er moet dan ook nog veel werk worden verzet voordat de interne Europese gasmarkt eenfeit is.
 Zonder vooruit te lopen op het antwoord van de Commissie is het noodzakelijk dat er toestemming wordt gegeven voor leningen voor deze twee kernreactoren.
-Ondanks belangrijke aanpassingen van de wetgeving blijven er nog grote moeilijkheden bestaan wat de behandeling van de Koerden in de praktijk betreft.
-Tot slot moet ik zeggen dat wij momenteel niet van plan zijn het mandaat van het agentschap uit te breiden tot buiten de Europese Unie.
-En ten slotte, mijnheer de Voorzitter, nog een enkel woord met betrekking tot de prioriteiten.
-Voorlopig — dus zonder de rectificaties aan de inkomstenzijde — is het BTW percentage 0,96 %.
-Officieren behouden hun post voor het moment... maar voor de rest van jullie zijn er nieuwe posten.
-Op dit moment kun je beginnen je voor te stellen wat de toekomst in petto heeft, evenals de vreugde en het geluk dat het zal brengen.
-In dat opzicht spreken de cijfers duidelijke taal: Japan voert 24 % buitenlandse produkten in, tegen Europa 46 % en de Verenigde Staten 66 %.
-De Raad heeft er met name nota van genomen dat het secretariaat-generaal van de Raad voorlopig blijft optreden als secretariaat van de EVDA.
-Kernenergie is op dit moment een noodzakelijke energiebron, maar niet tegen elke prijs en in alle omstandigheden.
-Demmas blijft voorlopig aan boord. Hij blijft de situatie op llari observeren.
-Aan een zekere nationale inkleuring kan dan ook niet worden ontkomen, zodat van afschaffing van artikel 223 voorlopig geen sprake zal kunnen zijn.
-Defraigne wordt gesteld, aangezien deze kwestie in deze staat van oudsher op een bijzonder eigenaardige manier is geregeld. geld.
-Wegen-, tunnel- en spoorwegbouwers rapporteerden een daling van 5,8%.Het ziet ernaar uit dat de aan de infrastructuur gerelateerde expansie voorlopig voorbij is.
-Quetzals in het wild genieten, althans voorlopig, vrijheid en betrekkelijke veiligheid in de nevelwouden van Midden - Amerika.
-Voorlopig wordt er voorgesteld om enkel de artikelen van Verordening (EEG) nr. 3821/85 van de Raad te wijzigen, en niet de technische bijlagen.
-Naar alle waarschijnlijkheid zullen de transportdiensten en de verschillende snelle communicatiemiddelen tijdelijk ontwricht raken of worden lamgelegd.
-Voorlopig zijn er nog maar weinig scholen die via ADSL (4%), kabelmodem (6%) of de satelliet (4%) met internet verbonden zijn.
-De Commissie is veeleer van mening dat de bevoegdheid om in beroepen te voorzien, in eerste instantie in beginsel bij het Hof zou moeten blijven.
-Hoewel sommige termijngoederen in Europa in euro genoteerd staan, blijft het aantal nog beperkt.
-Bussemaker laat zich door de cijfers vooralsnog niet van de wijs brengen, maar hoe zit het met de Erasmus Universiteit Rotterdam?
-Voorlopig kan ervan worden uitgegaan dat de beschikbare analysemethoden voor de bepaling van toxafeen toereikend zijn voor de toepassing van deze verordening.
-Dank zij deze projecten zijn in 1988 naar schatting 44 554 arbeidsplaatsen geschapen of in stand gehouden.
-Ik vind dat we de afvaltransporten voorlopig maar moesten opschorten.
-Salisch (PSE). - (DE) Mijnheer Delors, aan het einde van uw verklaring zei u, dat 3% economische groei de werkgelegenheid met 1% zal doen toenemen. Dat is
-Van de destijds nog uitvijftien lidstaten bestaande EU beslotendrie landen (Denemarken, Zweden en het Verenigd Koninkrijk) voorlopig vast tehouden aan hun eigen munt.
-2. of zij overwegen de versterking van de samenwerking tussen de Gemeenschap en Turkije voorlopig afte remmen?
-Wat voorts de vraag betreft of de Gemeenschap preventieve protectionistische maatregelen zou moeten nemen wil ik gaarne naar voren brengen dat de Gemeenschap immers juist via het stelsel van algemene tariefpreferenties en andere beleidsmaatregelen de producenten van de derde wereld een steeds grotere en ook regelmatiger toegang tot de Europese markten wenst te verschaffen en dat wij bij de produkten die hier te sprake zijn gebracht te maken hebben met die welke op de zogenaamde gevoelige lijst voorkomen, zodat wij in voldoende mate over de mogelijkheid beschikken het door U gevreesde effect tegen te gaan.
-Op te merken is dat de meeste boten nu aankomen in de nieuwe haven, ten noorden van Toúrlos, voorlopig nog een lelijke betonwoestijn.
-Maar de examens komen eraan. Nu gaat al mijn aandacht daarnaar uit.
-Nee, deze band moet vooral blijven oefenen en de luisteraar niet lastig vallen met dit soort wanproducten.
-Het echtpaar verliet daarom dat gebied maar, doch keerde de volgende dag terug om hun traktaatverspreiding voort te zetten, zonder dat zich weer een incident voordeed.
-Een delegatie, die in beginsel voor de tekst is, onthoudt zich voorlopig, in afwachting van de besluitvorming over het begrotingsdeel.
-Voor het slagen daarvan is evenwel voortdurende steun van de Begrotingscommissie en het hele Parlement vereist.
-Globaal gezien moeten de grondbeginselen van de huidige hoofdstukken voorlopig worden gehandhaafd, maar moet de tekst van de bepalingen vereenvoudigd worden.
-We staan te popelen om te beginnen en op het moment is de “Disclosure/Onthullings” bekendmaking, het sleutelmoment voor een nieuwe fase in jullie evolutie.
-Wij vinden ook dat de minder ontwikkelde landen het recht moeten kunnen krijgen om tot nader order hun import van landbouwproducten te reguleren.
-In de lidstaten is de Duitse Bundestag momenteel9 het enige parlement dat formele regels hanteert voor de registratie van lobbyisten.
-Dit is vroeger reeds meer gebeurd en ik voel mij nu niet geroepen om te bepalen wat er in de toekomst moet gebeuren.
-Als iets dergelijks niet mogelijk is, moeten we ons afvragen of online zakendoen vooralsnog meer is dan een lege dop.
-In 2005 had deze vereniging ongeveer 600 leden. Klassikerforeningen is de uitgever van het tijdschrift Klassikerforeninges Meddelelser dat zesmaal per jaar verschijnt.
-Vooralsnog moeten we het debat voeren, wat moeilijk is omdat het cohesiebeleid wordt gehekeld en soms zelfs veroordeeld.
-Het projekt zal aan het eind van 1978 worden afgerond. Momenteel kunnen de voorlopige resultaten van de wijzigingen dus alleen worden afgeleid.
-De Raad kan zich dan ook in dit stadium nog niet uitspreken over de inhoud van het verslag en van de Commissievoorstellen.
-Tot dusver hebben nog niet alle lidstaten de regelingen getroffen die nodig zijn om binnen een redelijke tijd een doorlopende enquête te houden.
-Voorshands zijn prijzen en met name grote prijsverschillen binnen de Lid-Staten van de EG voor de consumenten belangrijke indicatoren voor de vraag of de mededinging al dan niet functioneert. neert.
-Wij zorgen uiteraard voor de technische en logistieke steun, maar voorlopig dient het voorstel van de Commissie als uitgangspunt voor de debatten.
-Het zou dan ook logischer zijn om deze "bestaande" installaties voorlopig buiten het toepassingsgebied van de voorgestelde richtlijn te houden.
-Op dit ogenblik stuiten de onderhandelingen op de volgende problemen: textiel, diensten en vooral landbouw.
-Zeevervoer is, in zijn algemeen heid beschouwd, een sector waar de meeste, maar niet alle, maatschappijen in particuliere handen zijn.
-Misschien dat er ooit geconstateerd wordt dat die opsplitsing voor elke instelling verplicht moet worden. Voorlopig moeten we de kleinere instellingen daar echter maar van vrijstellen.
-Hier, in de voormalige hoofdstad van Myanmar, Yangon, kunnen wij aan de hulpgoederen komen voor op het ogenblik verbazingwekkend stabiele en gunstige prijzen.
-Daar het normale leven zich naar het schijnt in dit land lijkt te herstellen, hebben de Tien momenteel geen plannen om nieuwe stappen te ondernemen.
-Daar ontlook mijn liefde voor de gitaar, vooralsnog hopeloos, omdat me het geld voor een gitaar en gitaarlessen ontbrak.
-De volgende mondelinge vragen met debat zullen in het debat worden opgenomen :
-Die lopen af, en daar boffen wij financieel mee, omdat die nu dus even geen geld kosten.
-Daarom is het wenselijk luchtvaartmaatschappijen voorlopig terzijde te laten, maar tegelijkertijd het probleem verder te bestude-
-In onze eeuw werd wel de ruimte veroverd en werden vele andere successen geboekt, maar kunnen voorlopig ook nog vele ziekten niet worden genezen.
-In Kroatië, dat het EU-lidmaatschap heeft aangevraagd, lijkt vooralsnog het proces van aanpassing aan de Europese mededingingswetgeving het meest vergevorderd te zijn.
-Momenteel sturen slechts zeer weinig landen jaargegevens in , waarbij het niveau van gedetailleerdheid zeer uiteenloopt en de vergelijkbaarheid beperkt is .
-Ten eerste, is onze algemene opvatting dat bepaalde nadelen die uit de uitbreiding van de Gemeenschap voortvloeien, worden gecompenseerd door voordelen in andere sectoren, geheel overeind gebleven.
-Het verenigde Europa kan niet het resultaat zijn van de hegemonie van een politiek bestuursorgaan of van - vergeef mij het woord -een federatief imperialisme, zoals men dat in het politie ke debat van de jaren 1920 in Europa noemde.
-Voorlopig echter steun ik het huidige quotasysteem, hoewel het niet de enige en ook niet de effectiefste manier is om de produktie van programma's te bevorderen. Een
-'Voorlopig houdt de Nederlandse regering door handig inspelen op de angst van het Nederlandse volk voor steeds meer werkloosheid een uitverkoop van cultuur, natuurbehoud en milieubeheer.'
-Voor het ogenblik is Internet jullie enige bron van betrouwbare informatie, maar wees op je hoede voor hen die om uiteenlopende redenen iets anders dan de waarheid verspreiden.
-De song Master And Margarita, waarvan we voorlopig alleen maar een live versie kunnen tonen, was voorzien voor dit album.
-Wat overbodig is, kunnen we later nog altijd uit onderhavige richtlijn nemen, als het via de kaderrichtlijn gewaarborgd is. Maar thans hebben wij daarvoor in de eerste plaats de vereiste meerderheid in het Parlement nodig.
-Deze opgevraagde gegevens mogen in beginsel niet bekendgemaakt worden, tenzij zulks onontbeerlijk is voor de recht zetting van de gepubliceerde, onjuist , onvolledig of onoprecht bevonden informatie.
-Dit blijft voorlopig een experimentele ingreep en slechts een handvol centra in de wereld beschikken over ervaring en deskundigheid om dit uit te voeren.
-Hoewel lokaal geproduceerd drinkwater kan voldoen aan de veiligheidsnormen, is voldoende controle en onderhoud zeer uitdagend en duur, dus dit is vooralsnog niet aan te raden.
-Dit is gonna be een manier om zich te ontdoen van claustrofobie voorlopig, maar het lost niet de onderliggende problemen van claustrofobie oorzaken.
-Op grond van een pragmatische aanpak aanvaardt de Commissie voor het ogenblik het compromis als een stap voorwaarts in vergelijking met de huidige situatie in verband met bijlage III.
-Aan vankelijk dient gestreefd naar begrotingen die bijna in evenwicht zijn, zoals overigens bepaald is in het pact voor stabiliteit en groei.
-Mikey, Terry en ik zitten voorlopig allemaal in zijn slaapkamer... dus als je wilt scoren, moet je misschien de bank delen.
-De afschaffing van de huidige beperkingen zal de vervoersondernemers in staat stellen om het beheer van hun activiteiten en het rendement van hun wagenpark te optimaliseren.
-De politiek zal tot een afweging moeten komen van wat als wenselijk gezien wordt en van wat zeker voorlopig niet gewenst is en dus niet door de Gemeenschap gestimuleerd moet worden.
-Nu, indien deze zaak dan exemplarisch is of zal blijven voor de houding van de Turkse regering en justitie dan denk ik dat Turkije de toetreding voorlopig wel kan vergeten.
-Hoewel fraude niet het probleem nummer één van de Europese Unie is, neemt zij wellicht nooit geziene proporties aan.
-De NVWA raadt ouders van kinderen aan om hun kind uit voorzorg voorlopig geen eieren met op de NVWA-website gepubliceerde codes te laten eten.
-De onderwatertunnel laat alleen motorvoertuigen toe, voor de dichtstbijzijnde brug moet je een omweg maken van 45 minuten, en voorlopig is de Noord-Zuidlijn van de metro alleen nog maar een kolossale bouwplaats.
-Mevrouw Cramon Daiber (V). - (DE) Mijnheer de Voorzitter, geachte collega's, ook ik wil mij erkentelijk tonen voor de vriendelijke sfeer die in deze commissie heeft geheerst.
-De informele afspraak om nu elke twee jaar met een verslag te komen, lijkt voorlopig redelijk. Deze dient echter — en ik volg daarin de rapporteur — formeel bekrachtigd te worden.
-Dit geldt zeer zeker voor Tibet. Momenteel is er geen schijn van kans dat het redelijk vijfpuntenplan van de Dalai Lama daar onderwerp van gesprek wordt.
-Momenteel is echter moeilijk voorstelbaar dat deze constellaties tot sterk geïntegreerde gemeenschappen zullen uitgroeien, omdat de hieraan deelnemende Staten doorgaans door instabiliteit worden gekenmerkt.
 Wat in de eerste plaats het streven naar concentratie betreft kan ik u bij gebrek aan de nodige informatie op het ogenblik andermaal niet meedelen wat er zich juist voordoet.
-De overige 243 gevestigde geografische aanduidingen, waarvoor uiterlijk op 20 februari 2015 een technisch dossier is ingediend, blijven voorlopig opgenomen in bijlage III bij Verordening (EG) nr. 110/2008.
-Maar tegelijk spelen er ook aspecten die niet zuiver economisch zijn, bijvoorbeeld in verband met de snelle evolutie van de technologie, of sociologische aspecten, zoals tot op welke hoogte elk van ons zich met zijn eigen telefoonnummer identificeert, tot op welke hoogte het voor iedere gebruiker - natuurlijk of rechtspersoon - een gedoe ís om van telefoonnummer te moeten veranderen, omdat het enorme kosten zijn die wij moeten zien te vermijden, en vandaar dat er nummerportabiliteit of - transportabiliteit moet bestaan.
-Als ik tegen een landbouwer zeg dat hij tijdelijk zal moeten leven met prijsdalingen tegen compensatie, dan weet hij tenminste waar hij aan toe is.
-Deze tabel (geïnde bedragen) betreft uitgaven die voorlopig in het programma waren gehandhaafd in afwachting van het resultaat van de terugvorderingsprocedure en die na inning zijn afgetrokken.
-Voorlopig is het echter nog zo dat veel markten nationaal of regionaal zijn, en dit moet in de mededingingsanalyse, met inbegrip van de marktdefinitie, tot uitdrukking komen zodat concurrentie en consumenten hiervan geen hinder ondervinden.
-En daartoe is weer een verhoging van de eigen middelen vereist.
-Uit de inhoud van de brief blijkt dus duidelijk, dat de Commissie verzoekster enkel wilde meedelen, dat haar diensten voorlopig geen actie zouden ondernemen.
-De maatschappij weigert om voor bepaalde vluchten an dere dan business class tickets te verkopen.
-Dat is de reden waarom goud en zilver het allergrootste groeipotentieel hebben op exorbitante winst, dat nog nooit eerder in de geschiedenis is voorgekomen, daarom is het nu nog een goed aankoopmoment.
-Zie „De demografische situatie ¡n de Europese Unie — 1995", Europese Commissie, Directoraat-generaal V. Malta is in de studie opgenomen hoewel het land het indienen van zijn lidmaatschapsaanvraag heeft opgeschort.
-Deze lijst van eigenschappen kan eindeloos worden uitgebreid, maar in ons geval wordt alleen rekening houden met de drie bovengenoemde kwaliteiten en voorlopig zal slechts een verdere sub-segment af te leiden.
-Daarom gaat de Wegenadministratie voorlopig door met de onderhandelde contracten met Tieliikelaitos, terwijl ze verder zoekt naar een ander aankoopmodel voor toekomstige aanbestedingen.
-Fans moeten wachten op meer informatie omdat, volgens Polygon, BioWare de details over Mass Effect en Dragon Age games nog niet verder wil onthullen.
-Omwille van mezelf, mijn partij en onze kiezers heb ik vandaag tegengestemd, ook al heeft Zweden er zojuist voor gekozen om buiten de EMU te blijven.
-In mijn land heeft de plaatselijke overheid geen bevoegdheid voor het opleggen van belastingen en daarom is deze, overigens volkomen terechte oplossing tenminste in mijn land uitgesloten.
-Vraag nr. 8: Zou men zover moeten gaan dat wordt aangenomen dat de niet-naleving van dergelijke clausules met zich brengt dat de rechter onbevoegd is om van het geschil kennis te nemen?
-Vooralsnog heeft de Commissie ervoor gekozen om slechts een paar kleine aanpassingen voor te stellen, zonder het beleid inzake de uitroeiing, bestrijding en bewaking van dierziekten en zoönosen te wijzigen.
-Voorlopig blijft ons acceptatiebeleid voor de chemische sector over het algemeen positief voor alle grote deelsectoren (basischemicaliën, petrochemicaliën, fijne en gespecialiseerd chemicaliën).Dit geldt ook voor de farmaceutische sector.
-De Commissie heeft in artikel 11 voorgesteld dat binnen vijf jaar na de inwerkingtreding van de huidige verordening de nationale stelsels vervan gen worden door het Europese stelsel, maar alleen voor die productgroepen waarvoor specifieke communautaire criteria zijn bepaald.
-Liechtenstein dient Richtlijn 2004/109/EG volledig ten uitvoer te leggen, echter zonder afbreuk te doen aan Richtlijn 2001/34/EG, aangezien er in Liechtenstein voorlopig geen activiteiten in de zin van laatstgenoemde richtlijn plaatsvinden,
-Voorlopig kunnen onderdanen van bepaalde landen waarmee de Gemeenschap overeenkomsten heeft ondertekend die een sociaal element bevatten een beroep op deze overeenkomsten doen in verband met arbeidsvoorwaarden, beloning en sociale voorzieningen.
-Daarom is ervoor gekozen om de bestaande interieuronderdelen (voorlopig) zoveel mogelijk te handhaven en keuzes te maken op basis van de kennis van de materialen uit die tijd.
-Ondertussen is de druk van de bevolking een signaal voor de Franse regering,een oproep om haar bangelijke houding af te leggen en niet langer steunte verlenen aan een militair regime dat zo weinig respect opbrengt voorde mensenrechten en de democratie.
-Voorlopig moeten we echter opereren binnen het kader van het nabuurschapsbeleid en alle mogelijkheden blijven aangrijpen die dat mechanisme ons biedt.
-(3) Liechtenstein dient Richtlijn 2004/109/EG volledig ten uitvoer te leggen, echter zonder afbreuk te doen aan Richtlijn 2001/34/EG, aangezien er in Liechtenstein voorlopig geen activiteiten in de zin van laatstgenoemde richtlijn plaatsvinden,
-- Mijnheer de Voorzitter, de voor juli aangekondigde presidentsverkiezingen gelden - althans voorlopig - niet als voorwaarde voor het consolideren van het veiligheidsbeleid en voor de democratisering van het land.
-Binnen dit kader hanteert de ECB voorlopig een kortetermijnaanpak , dat wil zeggen dat statistieken worden gecompileerd met gebruikmaking van op nationaal en internationaal niveau beschikbare informatie .
-Ook al ben ik momenteel, in beginsel, vrij positief, toch wacht ik de uitslag van de stemmingen af alvorens een definitief standpunt in te nemen.
-Zorg er dan voor dat je met je smartphone of tablet dichterbij het apparaat bent. * De connect app is vooralsnog alleen beschikbaar voor Android onder de naam "Plugwise connect".
-Voor het ogenblik bestaan er geen geharmoniseerde regels voor compensatieregelingen die in een minimumdekking van de deelnemers voorzien mocht een ICBE niet in staat blijken haar verplichtingen jegens haar deelnemers na te komen.
-Minister Langs Nederlandse collega laat geen gelegenheid voorbijgaan om de indruk te wekken dat het Europees recht in Nederland, althans voorlopig, vóór de verkiezingen, niet van toepassing is.
-Ten eerste heeft de EG een groot aantal maatregelen doorgevoerd in het kader van de verwezenlijking van de inteme markt.
-Ondanks onze ambitie om de politieke rol van de Europese Unie in de regio te versterken, zijn wij ons ervan bewust dat de VS op dit moment een beslissende factor voor de bemiddelingspogingen in het vredesproces moeten blijven.
-Als ik u goed begrijp legt u zich erbij neer dat de wet wordt gehandhaafd op voorwaarde dat de bepalingen van de overeenkomst in acht worden genomen, en dat er ondertussen niets gebeurt.
-Dankzij zijn verslag wordt het mogelijk de doorzichtigheid van het vijfde - of vooreerst althans het vierde - kaderprogramma voor onderzoek en ontwikkeling te verbeteren.
-Lamassoure, fungerend voorzitter van de Raad. — (FR) Mijnheer de Voorzitter, geachte afgevaardigden, ik dank het Europees Parlement omdat het een debat over de conferentie voor stabiliteit in Europa op de agenda van deze vergaderperiode heeft ingeschreven.
-De meesten hebben echter clausules opgenomen die grotendeels gelijk zijn aan die welke in tabel A staan en hebben een directeur (managing director) aangesteld.
-Om dat - in ieder geval tijdelijk - te voorkomen, moet de Commissie de richtlijn die het in de handel brengen van op dieren uitgeteste cosmeticaproducten verbiedt een paar jaar opschorten.
-Mevrouw Van Lancker, ik weet dat u hier niet achter staat, en we zullen ook eerst alles proberen om tot overeenstemming te komen, maar dat zijn de consequenties.
-Toevallig was dat net op het moment dat Isla Gable midden in het Beagle kanaal was neergelegd, dus daar een beschut plekje gezocht en ons anker maar overboord gegooid.
-Ik gebruik deze formulering bewust.Ik zeg "aanpassing tussen" (in plaats van "aanpassing van... aan..."), omdat ik mij neutraal wil opstellen ten opzichte van de vraag welke cultuur wordt aangepast en ten behoeve waarvan de aanpassing plaatsvindt.
-Als dat zo is, blijven wij binnen de financiële perspectieven en is het flexibiliteitsinstrument voorlopig helemaal niet nodig en kunnen wij dat voor andere dingen gebruiken.
-Ik vind het zeer spijtig dat er op dit punt geen akkoord is bereikt met de Raad. De herzieningsprocedures voor betalingsbalansen en de uitvoeringsprocedures zijn nog steeds niet vastgesteld.
-De naam van de voorlopig voor inspectie gebruikte vaartuigen (speciale inspectievaartuigen of vissersvaartuigen) moet zo snel mogelijk aan de ICCAT-commissie worden gemeld.
-Gregor bleef op de vloer voor het moment, vooral omdat hij bang was dat zijn vader zou kunnen nemen een vlucht omhoog op de muur of het plafond als een daad van echte kwaadaardigheid.
-— Volledig onaanvaardbaar is het feit dat menige lid staat het arrest van het Hof van Justitie naast zich neerlegt.
-Ik ben het in ieder geval eens met dit model, dat gericht is op vereenvoudiging en een samenhangend beleid nastreeft voor een ruimte die uniform noch één volledig geheel is, maar toch in voldoende mate homogeen is om als één geheel behandeld te worden.
-De Commissie ging er tevens mee akkoord dat de opstelling van dergelijke voorschriften voorlopig zou plaatsvinden binnen het kader van een intergouvernementele overeenkomst tussen de Lid-Staten, tenzij de Ge meenschap hierover de bevoegdheid krijgt.
 Ten tweede, er bestaat op dit punt niettemin een probleem dat niet opgelost kan worden in het nodige tijdsbestek door beleidsveranderingen ten aanzien van hoofdstuk 1 en hoofdstuk 1 1 van ons werk — d.w.z. door ver anderingen in de essentie of de doelstelling van de be leidsvormen andere dan het landbouwbeleid.
-IX a) de duur van zijn tewerkstelling ad interim,indien hij is aangesteld ter vervanging van een ambtenaar of tijdelijke functionaris die tijdelijk niet in staat is zijn werkzaamheden te verrichten;
-De Commissie kan de amendementen 111 en 112 niet overnemen, aangezien daarin sprake is van normen op Europees vlak voor verscheidene verontreinigende stoffen. De Commissie is veeleer van mening dat die normen voorlopig aan de lidstaten moeten worden overgelaten.
-Voorlopig bestaat deze serie uit twee modellen: de Hibiscus 745 CD Vario met een werkbreedte van 7,4 meter en de 915 CD Vario met een werkbreedte van 8,90 meter.
-Het geplande Stadsforum zou het eerste in een reeks van dergelijke ontmoetingen kunnen worden.
-Andere punten waren: het 40-ton-quotum in Zwitserland, aanvankelijk 120.000 ritten per jaar, vervolgens vanaf 2003 300.000 ritten.
-Ik pak die beer... en gooi hem in het grootste vuur dat je ooit hebt gezien... als je daardoor voor nu kunt vergeten wat je gezien hebt.
-Aangezien de Commissie immers onmiddellijk een nieuw voorstel moet indienen, en naar wij hopen wacht zij daarmee niet opnieuw vijftien maanden, kunnen wij het gedurende deze periode ook zonder een richtlijn stellen.
-Wij moeten ook de angst en verwarring afwijzen als wij het missen, en bezig zijn met wat we op dat moment wel weten, want als we doen wat we kunnen, kan Hij ons bijsturen.
-Het Nieuwe Tijdperk is eerder dit jaar begonnen, toen de oude energieën begonnen af te nemen en werden vervangen door de nieuwe energieën, wat voorlopig betekent dat zij beiden jullie denken hebben beïnvloed.
-Opgemerkt dient te worden dat met een dedicated server, ook al heb je misschien een set up fee betalen, de server meestal is eigendom van het bedrijf, bent u slechts huren het voor het moment.
-Idealiter zouden we graag een vergelijkbaar proces ontwikkelen binnen de OTW, maar tot die tijd werken we graag met onze vrienden van EFF als het gaat om juridische bijstand buiten de Verenigde Staten.
-Aangezien de Commissie nog geen voorstel ter zake heeft ingediend, is de Raad van oordeel op dit moment nog geen standpunt betreffende de toekomst van het Cohesiefonds te kunnen innemen.
-Ja, ook slechte dingen hebben hun tijd nodig - maar ten minste de data zijn dan aleens geregistreerd. * Leferenz: hoogleraar, gerechtelijke psychiater, herenmensenrechts- & patiëntenmoord-ideoloog al onder/boven Hitler (de vertalers).
-James Legge wist deze sterren veel westelijk van de meridiaan zouden moeten lijken en gezegd: „kon niet de sterren gezien hebben, die op het ogenblik de equinoctiale en solstitial punten bezetten, die op de genoemde seizoenen culmineren.“
-Voor het eerst treffen wij dus een regeling waardoor de Gemeenschap bewust een ongelijke fiscale behandeling van de burgers aanvaardt.
-Blijkbaar kon je doen wat je graag met oude Worple als je gaf hem zijn hoofd eerst op zijn stokpaardje, zodat deze kleine chats gebruikt om Corky's rekening in orde voor het moment.
-In het licht van bovenstaande overwegingen is het volgens het Comité voorlopig het best dat Verordening 870/95, nadat de voorgestelde wijzigingen zijn aangebracht, tot 2005 wordt verlengd.
-Artikel 1
-Vooralsnog hebben de Europese oliemaatschappijen blijk gegeven van hun grote reserves ten aanzien van vrijwillige convenanten en gaat hun voorkeur uit naar een oplossing in de vorm van regelgeving, waardoor zij en hun concurrenten in derde landen op gelijke voet zouden worden behandeld.
-Dat betekent dat deze landen nog steeds hun eigen nationale valuta hebben , waarvoor zij nog steeds hun eigen monetair beleid voeren , en dat hun centrale bank op dit gebied vooralsnog soeverein blijft .
-Hierdoor is er geregeld sprake van wateroverlast op straat.Met de Urban Waterbuffer wordt het water verzameld, op verschillende manieren ontdaan van blad en zand en vervolgens op 10 meter diepte geïnfiltreerd via vooralsnog 3 waterputten.
-De haven van Roscoff is momenteel de enige haven in Frankrijk die over de noodzakelijke haveninstallaties beschikt voor transportdiensten per ferryboot tussen Bretagne en Ierland welke een markt vertegenwoordigden van 100.000 passagiers in 1994.
-Voorzitter, ik kan persoonlijk zeer goed de woedende reactie van de Turken begrijpen nu blijkt dat hun land voorlopig, en naar ik persoonlijk hoop definitief, niet in aanmerking komt voor lidmaatschap van de Europese Unie.
-De meeste effecten van de te verkiezen opties zullen over de hele EU zijn gespreid, met het grootste effect voor de EU12 en voor de meerderheid van de EU15 waar een dergelijke elementaire betaalrekening momenteel niet wordt aangeboden.
-Hieruit blijkt dat de Commissie het hart zeker op de goede plaats heeft zitten en dat het milieubeleid misschien voor één keer zelfs de kern vormt van het algemene streven van het Commissiebeleid.
-Het volstaat niet meer om te veroordelen, de lidstaten moeten worden aangespoord om te handelen.
-Om verder te groeien zou ik een nieuwe stal moeten bouwen, grond bijkopen e.d.”, aldus Matthijs. Voorlopig richt hij zich op het kinderdagverblijf dat in april 2012 zijn deuren moet gaan openen. Nederlands
-In 2000 heeft de ECB de werkzaamheden geïntensiveerd die betrekking hebben op de financiële rekeningen , die zullen bestaan uit financiële stroomstatistieken op kwartaalbasis en een kwartaaloverzicht van de uitstaande financiële activa en passiva .
-Voorlopig kunnen de fans hun hart ophalen aan deze zéér eerlijke live registratie, die een hele vette productie heeft, met het publiek steeds vooraan in de mix, niet zo'n overgeproduceerd, weggemixed album.
-Als reden daarvoor wordt aangevoerd dat Iran nu de controles van het Internationaal Atoomenergieagentschap heeft aanvaard en de verrijking van uranium voorlopig heeft opgeschort.
-De Duitse mark is tot nu toe ankermunt, ook als het tekort 3, 5 % zou zijn en de Euro niet door zou gaan, dan nog blijft de mark voorlopig de ankermunt.
-Het speciale karakter van de Gemeenschap en de wijze waarop de bevoegdheden tussen haar en de Lid-Staten zijn verdeeld kunnen problemen opleveren voor haarzelf en haar partners.
-In afwijking van artikel 5, lid 3, van Verordening (EG) nr. 896/2001 wordt voorlopig niet overgegaan op de vaststelling van de aanpassingscoëfficiënten die voor 2004 moeten worden toegepast op de referentiehoeveelheid van de traditionele marktdeelnemers voor de tariefcontingenten A/B en C.
-3.2 Het Comité heeft besloten om nu reeds, in de vorm van aanbevelingen, in het bijzonder en op kortere termijn de aandacht te vestigen op twee aspecten van de algemene thematiek, waarvoor ook kan worden samengewerkt met de EU-instellingen, indien deze dit wensen.
-Een dorpje waar zich op dat moment veel kunstenaars verzamelen.Mondriaan heeft dan al even in Parijs gewoond, maar kan door het uitbreken van de Eerste Wereldoorlog na een familiebezoek in Nederland tijdelijk niet terug naar Parijs.
-Voorlopig zag Adam af van iedere poging om een representatief bestuur in te stellen en vóór de ineenstorting van het regime van Eden slaagde hij erin daarbuiten bijna honderd handels- en sociale centra te vestigen, waar krachtige persoonlijkheden in zijn naam het bewind voerden.
-(8) Overwegende dat Beschikking nr. 1692/96/EG van het Europees Parlement en de Raad van f)
-schriftelijk. - (DE) Het grondgebied van Kameroen wordt voor 40 procent door bos bedekt - momenteel althans. Kameroen is immers de grootste exporteur van tropisch hout in Afrika en in geen enkel ander land worden bossen zo massaal gerooid.
-Het is waar dat staatsinvesteringsfondsen de financiële markten voorlopig niet verstoren (ze zijn zelfs het Amerikaanse bancaire systeem te hulp geschoten) en dat ze eerder gericht zijn op langetermijninvesteringen.
-Zolang geen technisch en economische haalbare alternatieven voor fosfaten beschikbaar zijn voor andere soorten detergentia, voorziet het voorstel slechts in een beperking van het gehalte aan fosfaten en andere fosforverbindingen in huishoudelijke wasmiddelen (voorgestelde nieuwe bijlage VI bis).
-Momenteel zijn aanvullende maatregelen in voorbereiding en mijn collega, mevrouw Fischer Boel, de commissaris voor landbouw, onderhoudt nauw contact met de Spaanse minister van Landbouw.
-De conferentie verzoekt de Raad in deze context om met name de procedure van het Raadgevend Comité met het oog op de snelheid en de doeltreffendheid van het besluitvormingsproces een voorname plaats te geven bij de uitoefening van de uitvoeringsbevoegdheden die op het ge bied van artikel 100 A van het EEG-Verdrag aan de Commissie zijn ver leend."
-Dat is ons inziens een aspect waar geen twijfel over mag bestaan, de erkenning dat het hier alleen de eigen bevolking aangaat, als deze eenmaal de democratische vrijheden verworven heeft.
-Ik heb nu de indruk dat alles wat we tot nu toe gedaan hebben in het teken stond van de voorbereiding van dit nieuwe Verdrag. Als we echter een degelijker en zichtbaarder beleid willen kunnen voeren, moeten we echt een rechtsgrondslag hebben.
-Nooit tevoren in zijn geschiedenis heeft Europa zoveel hulp uitgetrokken voor het organiseren van verkiezingen. Het verzoek om ze vergezeld te laten gaan van veiligheidstroepen is afkomstig van alle partijen in de voorlopige regering van het land, en dat verzoek zouden wij moeten willigen.
-Mijn fractie vindt dat op dit moment mobiele telefonie nog niet moet worden opgenomen in de universele dienstverlening vanwege de grote verschillen tussen de EU-landen, maar we moeten wel die deur openhouden want terecht is er sprake van convergentie.
-De groep is ervan overtuigd dat bij de huidige stand van zaken de beste resultaten op het gebied van archivistische coördinatie kunnen worden bereikt wanneer actieve vormen van samenwerking worden ontwikkeld, en gestimuleerd en wel eerder op basis van onderlinge overeenstemming dan op normatieve grondslag, en dit op hetzij bilateraal, multilateraal, communautair of zelfs extra-communautair niveau.
-Uiteindelijk kan dit leiden tot een quantumchip waarop honderden kunstmatige atomen met elkaar communiceren door middel van fotonen, maar de ambitie richt zich nu eerst op een tussenstap: 'Ons gaat het nu om de fundamentele fysica.
-Projectleider TU Delft Ad Winkels: "Bovendien vinden we het belangrijk om niet alleen te doen aan onderzoek en onderwijs op het gebied van duurzame mobiliteit, maar het ook in de dagelijkse praktijk te stimuleren." De energie wordt voorlopig dan ook nog gratis aangeboden.
-Nadat Nanda's vrouw en de andere leden van de huishouding ermee klaar waren, werden de geschoolden die hun plicht hadden gedaan bedacht met voedsel, kleding, bloemenslingers en koeien en werd het kind, met slaperige oogjes, zolang apart gelegd.(Vedabase)
-Het is waar, de vorige keer had dezelfde heer de la Malène voorspeld dat in Milaan geen rampen zouden plaatsgrijpen, maar tezelfder tijd zou er helemaal niets gebeuren : wel, hij is een slecht profeet gebleken.
-Zij informeerde de ACS over de aan de gang zijnde veterinaire onderzoeken en verklaarde dat zij er zich momenteel niet toe kon verbinden een datum voor het opheffen van het verbod op invoer vanuit deze drie landen vast te stellen.
-Voorstel voor een richtlijn van de Raad houdende wijziging van bijlage A, bijlage D, hoofdstuk I, en bijlage F bij richtlijn 64/432/EEG inzake veterinair rechtelijke vraagstukken op het gebied van het intracommunautaire handelsverkeer in runderen en varkens (COM(97)04Ó4 - C4-0464/97-97/0209(CNS))
-De volgende verklaring van het voorzitter schap namens de Europese Unie, over het onlangs door de LTTE bekendgemaakte voornemen voor lopig niet meer deel te nemen aan de vredesonderhandelingen in Sri Lanka is op 30 april te Brussel en Athene bekendgemaakt.
-Twee jaar later, op 10 mei 1943, stuurde hij een brief naar zijn klanten met de mededeling dat "het voor u als enthousiast jiujitsuleerling een tegenvaller zal zijn dat de lessen voorlopig gestaakt moeten worden.
-Indien een verbintenis voorshands niet kan worden nagekomen of de vordering wordt betwist, mag een verdeling van het vermogen slechts ge schieden, wanneer de schuldeiser zekerheidstelling ontvangt dan wel bij een gedeeltelijke verdeling het resterende vermogen de schuldeiser voldoende zekerheid biedt.
-De waarheid is dat er wel een copyright zit op de broncode maar dat Linux is ondergebracht onder een licentie die kopiëren, verdelen en het gebruiken zonder kosten toestaat. Toch zitten er nog wat ingewikkeldere kantjes aan die we voor het ogenblik niet hoeven te bespreken.
-Verder wil ik net als de rapporteur benadrukken dat we thans nota dienen te nemen van de rekeningen over het begrotingsjaar 1996, zodat het onderzoek naar de rekeningen over latere jaren kan worden voortgezet.
-De Europese Unie neemt akte van het standpunt van Indonesië dat verreikende autonomie binnen het constitutionele kader van de Republiek Indonesië voorlopig de beste oplossing is en dat de Oost-Timorezen over dit voorstel moeten worden geraadpleegd.
-Ook al is duidelijk dat structurele veranderingen slechts op langere termijn mogelijk zijn en dat daarom eigenlijk verder moet worden gekeken dan het jaar 2000, toch acht het Comité het realistisch en verantwoord om het voorlopig te houden bij een evaluatie van de tendensen die zich in het komende decennium zullen voordoen.
-De studenten, waarvan het aantal voorlopig per land en per jaar beperkt is tot 25, zullen het eerste en laatste jaar aan hun eigen instelling doorbrengen en de andere twee jaar in de beide andere instellingen.
-Niettemin moet het Verdrag, wanneer het gaat om zaken die althans tijdelijk tot de nationale bevoegd heden blijven behoren, ermee rekening houden dat een Lid-Staat van mening kan zijn dat hij zich niet bij het gemeenschappelijk standpunt kan aansluiten en dat die Lid-Staat een dergelijke aansluiting niet kan worden opgedrongen.
-Het is immers niet uitgesloten dat de Lid-Staten, voor de op heffing van de verschillen die tussen de in de onderscheidene landen gevoerde politiek be staan, het instrumentarium waarover zij voor de tenuitvoerlegging van deze politiek beschikken anders zullen moeten hanteren.
-Dat is de taak waarvoor wij staan en wij denken, mijn heer de Voorzitter, dat de gedachten, de ideeën die verweven zijn in het verslag van de Commissie voor institutionele vraagstukken en in de resolutie, daarbij een grote rol kunnen spelen, dat wij daar al onze krachten voor moeten inspannen, samen met de Commissie, samen ook met de Raad.
-Overeenkomstig de voorlopig van kracht zijnde Verordening (EG) nr. 216/2008 van het Europees Parlement en de Raad en Verordening (EG) nr. 2042/2003 van de Commissie, en behoudens de hierna gespecificeerde voorwaarde, certificeert de [BEVOEGDE AUTORITEIT VAN DE LIDSTAAT] hierbij:
-Op dit moment heeft de multilaterale benadering dus onze eerste prioriteit, en dat is de reden waarom wij iedere beslissing om de onderhandelingen met betrekking tot vrijhandelszones opnieuw op te starten hebben uitgesteld totdat de cyclus die we in Doha begonnen zijn is afgerond.
-In de Gemeenschap zijn er legio wegen en manieren om betalingen te verrichten; deze grote verscheidenheid vormt, ook al wegens de verscheidenheid van talen, culturen en - voorlopig nog - valuta's, een formidabele uitdaging.
-Overeenkomstig Verordening (EG) nr. 216/2008 van het Europees Parlement en de Raad en de van kracht zijnde Verordening (EG) nr. 1702/2003 van de Commissie en onder de hierna vermelde voorwaarden, verklaart de [BEVOEGDE AUTORITEIT VAN DE LIDSTAAT] hierbij:
-Maar voor 1986 hebben wij al gezien dat er veel meer projecten werden ingediend voor langdurige werklozen dan voor jeugdige werklozen. Die indieningstrend komt overeen met een verschuiving in de werkloosheidsproblemen ten gunste van jongeren en ten nadele van oudere groepen werklozen die vaak zeer lang werkloos zijn.
-Dit doel wordt momenteel nagestreefd in het kader van overleg op hoog niveau tussen de Commissie en Japan ; de resultaten daarvan zullen worden besproken tijdens de Raad Buitenlandse Zaken op 22/23 juni 1981.
-Ik ben dan ook van mening dat het voorlopig belangrijk en terecht is dat de Europese Unie eraan blijft vasthouden dat eerst alle voorwaarden van het Kwartet en de afspraken van Mekka nagekomen moeten worden alvorens de betalingen aan de Palestijnse regering van nationale eenheid kunnen worden hervat.
-Gegeven het feit dat de Verenigde Staten voorlopig niet van plan zijn het Protocol te ratificeren, betekent dit dat naast ratificatie door de EU en de kandidaat-lidstaten ratificatie door tenminste Japan en Rusland nodig is om het Protocol in werking te laten treden.
-Op dit ogenblik maken antipersoonsmijnen op onze wereldnog altijd om de 20 minuten één slachtoffer.En éénslachtoffer op drie moet geamputeerd worden.Verschrikkelijk!Ook als een conflict beëindigd is, gaan deze mijnen door met hetdoden en het afsnijden van elke mogelijkheid op een gelukkig leven.
-Zij hebben nu de in de politieke leiding van de contra's nieuwe, voorlopig laatste, „vrijheidsstrijder", de heer Bermudes, benoemd, die echter vanwege zijn strijd tegen de vrijheid van het Nicaraguaanse volk aan de zijde van Somoza zeer bekend is.
-Sinds eind vorig jaar worden – voorlopig bij wijze van experiment - op de lijn Lyon-Turijn interoperabele locomotieven gebruikt van het type BB 36000 van de SNCF en E402 B van de Italiaanse spoorwegen, die op zowel het Franse als het Italiaanse spoorwegnet kunnen rijden.
-Maar blijf dan samen met ons aanhouden, en aanvaard de procedure zoals die nu wordt voorgesteld niet. Dat voorstel zal namelijk niets opleveren en de euro niet stabiliseren, de eerstvolgende maanden niet en ook de eerstvolgende jaren niet.
-Ook inzake de toepassing van de verordening over de afschaffing van invoerrechten ingevolge de toetredingsverdragen van Spanje en Portugal, zijn er geen problemen op te merken rond de invoer van wijn, groenten en fruit uit Spanje en Portugal.
-Er zijn momenteel geen initiatieven aan de gang om het gebruik van Hazchem-aanduidingen op Britse voertuigen die gevaarlijke goederen vervoeren te verbieden wanneer deze voertuigen bij uitsluitend binnenlands vervoer zijn betrokken, en vooralsnog is de Commissie niet in enigerlei besprekingen over dit onderwerp verwikkeld.
-Ik wil ook nog melden dat 2009, het Jaar van creativiteit en innovatie, een jaar is waarin we, als deze overeenkomst door mobiele telefoonfabrikanten wordt ondertekend - hoewel dat voorlopig alleen op vrijwillige basis kan -, een verdere stap in de richting van deze standaardisatie zetten.
-Dit betekent niet dat de uiterlijke omstandigheden van iemand op een bepaald moment een aanwijzing vormen voor zijn hele karakter, maar dat die omstandigheden zo nauw verbonden zijn met het één of andere vitale deel van zijn denken dat ze voorlopig onmisbaar zijn voor zijn ontwikkeling.'
-In het financiële dienstenactieplan is vooralsnog gekozen voor een aanpak om de regels in de lidstaten door verschillende toezichtautoriteiten, zoveel mogelijk te stroomlijnen, en dan van daaruit toe te werken naar een level playing field voor de markten.
-De Commissie stelde voor tien van deze besluiten in te trekken, met als voornaamste argument dat deze geen enkel praktisch nut meer hadden en inmiddels door het wetgevingsproces waren achterhaald; de overige besluiten moesten gehandhaafd blijven, waarvan drie op tijdelijke basis.
-Hoewel de Commissie meent dat het nog enige tijd zal duren voor op communautair niveau een algemene regeling kan worden getroffen voor alle in de deze ontwerpresolutie opgeworpen kwesties, ben ik ervan overtuigd dat het verslag van de heer Lannoye een belangrijke bijdrage zal leveren aan het debat dat in vele van onze lidstaten al aan de gang is.
-Ondanks een zeker pessimisme ten aanzien van het tempo waarin de liberalisering in deze sector zich zal voltrekken, dwong Commissielid Van Miert toch op spoed aan omdat deze liberalisering bij de interne markt hoort.
-Twee reizigers uit Nederland passen zolang op de camp-site, Floris en Marieke. Ze reizen in een grote vrachtwagen rond met hun twee honden Bo en Ducko. Het op een plek blijven en een kampeerplek managen is voor hun een nieuwe ervaring.
-Indien er, wat waarschijnlijk het geval zal zijn, geen overeenstemming bereikt zal worden over deze norm, zullen de Japanners met hun systeem door blijven gaan — het NHK-nieuwssysteem.
-Hieronder een neefje van de Klaversnuittor. Kennelijk een oud baasje, want hij is helemaal kaal. We zijn er niet in geslaagd om de soort vast te stellen, dus moeten we het voorlopig doen met het laten zien van de foto's zonder commentaar.
-In landen waar specifieke wetgeving zal worden aangenomen, maar ook in landen waar voorlopig de bestaande omroepregels op dit nieuwe dienstenplatform van toepassing zijn, dienen de hoofdkenmerken van het algemene regelgevingskader voor mobiele tv te zijn: duidelijkheid, transparantie en efficiëntie van de procedures.
-Beste collega's, ik deel u mede dat het Gerecht van eerste aanleg van de Europese Gemeenschappen op 25 november een uitspraak in kort geding heeft gedaan in de zaak tussen de parlementsleden Martinez-De Gaulle en het Europees Parlement. Dit maakt voorlopig een einde aan het kort geding dat deze collega's hadden aangespannen.
-1.10 Voor het ogenblik is het EESC van mening dat werk moet worden gemaakt van toepassing van de open coördinatiemethode, een toezichthoudende rol van de Commissie, goede praktijken en transparante informatie, overeenkomstig de Lissabonstrategie, teneinde de convergentie te bevorderen.
-Maar voor nu, ben ik bereid te accepteren dat de BBC een heer in kostuum zou hebben het belangrijkste nieuws leest... gevolgd door een dame die het minder belangrijk nieuws leest... gevolgd door Trevor McDonald die ons al het laatste nieuws leest... over berovingen en drugs-invallen.
-De Commissie volgt de ontwikkelingen en merkt op dat het voorlopig nog niet nodig is specifieke technologieën op te leggen14, omdat het bedrijfsleven het normalisatieproces15 volledig in overeenstemming met de in opdracht van de Commissie binnen het CEPT besproken voorwaarden uitvoert.
-Ten tweede, dat wij het probleem van het voedseltekort dat daar nu acuut is en waar gelukkig nu de toegang terug mogelijk is geworden, dat daar de Europese Unie ook het voortouw zou moeten nemen om ervoor te zorgen dat het voedsel tijdelijk de hongerende bevolking bereikt.
-De beslissing van de Commissie om de procedures in te leiden zal voornamelijk afhangen van het voorafgaand onderzoek, de omstandigheden van het individuele geval en het betrokken openbaar belang.
-Steeds meer wor den wij als parlementariërs geconfronteerd met richtlijnen en verordeningen waarbij om controle gevraagd wordt op voor voeding bestemde produkten.
-Velen vrezen dat de acties die de Gemeenschap op het gebied van onderzoek onderneemt, een bron van financiering zouden kunnen worden voor Japanse en Amerikaanse bedrijven die op gemeenschapsbodem gevestigd zijn: een paard van Troje dus, waarmee bedrijven buiten de Gemeenschap nieuwe markten en nieuwe handelskanalen kunnen aanboren.
-Mag ik er ten slotte op wijzen dat de vraagstelling zoals die hier voor ons ligt onderdeel uitmaakte van het advies dat het Parlement in een eerdere vergaderperiode over de landbouwprijsvoorstellen heeft uitgebracht en dat bij
-Vooralsnog ontbreekt echter de politieke wil en de politieke moed om een dergelijk doortastend en noodzakelijk beleid te voeren, zeker met alles wat het inhoudt, zoals bijvoorbeeld het weigeren van ontwikkelingshulp aan landen die weigeren terugnameovereenkomsten te sluiten voor asielbedriegers.
-De door alle Lid-Staten toe te passen gemeenschappelijke grondbeginselen vastleggen die bepalen wie en wat wordt beschermd, welke exclusieve rechten worden verleend, welke uitzonderingen er op die rechten bestaan en voor welke duur de bescherming geldt, terwijl andere onderwerpen voorlopig overeenkomstig het nationale recht kunnen worden geregeld.
-Ik ben van mening dat als amalgaamafval in tandheelkundige praktijken naar behoren wordt afgescheiden en op een verantwoordelijke, veilige manier kan worden opgeslagen, zoals in het verslag wordt voorgesteld, er voorlopig geen noodzaak is om amalgaam als vullingmateriaal in de ban te doen.
-Zoals ik al zei, zien we naar aanleiding van de bevindingen en het verrichte werk van de diverse werkgroepen alsmede het seminar voor deskundigen, vooralsnog geen reden om de grenswaarden in de richtlijn te wijzigen.
-Het is niet onwaarschijnlijk dat men soms de greep zal verliezen op bepaalde elementen van het ANC, Inkatha en van de blanke bevolking, en er zullen zich verder een aantal tijdelijke problemen voordoen.
-(14) Hoewel de maximumgehalten uit toxicologisch oogpunt voor zowel dioxinen, furanen als dioxineachtige PCB's zouden moeten gelden, zijn ze voorlopig alleen van toepassing op dioxinen en furanen en niet op dioxineachtige PCB's, omdat er nog te weinig bekend is over de prevalentie van dioxineachtige PCB's.
-- wanneer de bevoegde autoriteiten hebben vastgesteld dat, naar hun oordeel, een beleggingsonderneming, om redenen die rechtstreeks verband houden met haar financiële positie, momenteel niet in staat lijkt te zijn te voldoen aan haar verplichtingen die voortvloeien uit vorderingen van beleggers, en daartoe ook op afzienbare termijn niet in staat lijkt te zullen zijn, dan wel
-Het beleid van de Europese Unie, en dus van de Europese Raad en het Europese voorzitterschap, met betrekking tot Cuba is op dit moment geregeld in de volgende documenten: het gemeenschappelijk platform van de Europese Unie voor 2006, en de conclusies van de Raad Algemene Zaken en Externe Betrekkingen van vorig jaar.
-Op dit ogenblik kunnen we deze wijziging echter niet in ons voorstel inbouwen. Ik kan het amendement in zijn huidige vorm niet aanvaarden.
-Het wordt echter onderkend dat er overgangsmaatregelen moeten komen voor de nieuwe lidstaten en dat er voor hen op dit moment nog geen gedetailleerde minimumaantallen dienen te worden aanbevolen voor de steekproefsgewijze controle op de aanwezigheid van dioxinen, furanen en dioxineachtige PCB’s in diervoeder,
-Doch wat doet deCommissie om ten minste op budgettair gebied bij teblijven '.
-Helaas gaat de nieuwe premier verder op de door zijn voorganger ingeslagen weg, namelijk enerzijds unilaterale afscheiding op basis van die de totstandkoming van een volwaardige Palestijnse staat onmogelijk maken, en anderzijds de onderdrukking van het Palestijnse volk om het tot overgave te dwingen.
-Bedoeling is dat in een volgende fase docenten worden onderzocht.In een derde en voorlopig laatste fase worden leerervaringen gemonitord en lesmateriaal ontwikkeld.Meer over onderzoek onder het HvA-speerpunt Urban Education Volg ons op twitter facebook instagram linkedin youtube © 2019 Hogeschool van Amsterdam De websites van de HvA maken gebruik van cookies.
-Enerzijds groeit de markt snel, anderzijds kunnen de nieuwe lidstaten een lichte schok veroorzaken op de EU-houtmarkt en in de arbeidsintensieve, mechanische houtverwerkende sector omdat de houtprijzen en arbeidskosten in de MOE-landen vooralsnog laag zullen blijven.
-Wat de harmonisatie van de werkloosheidsuitkeringen en andere sociale verstrekkingen betreft, dient gezegd dat het, gezien de grote structuurverschillen tussen de socialeverzekeringsstelsels van de Lid-Staten, eigenlijk onvoorstelbaar is dat binnenkort een gemeenschappelijk beleid voor alle Lid-Staten kan worden verwacht.
-Gedroogde druiven vormen voor personen die daarvan veel consumeren, met name kinderen, een belangrijke voedingsbron van ochratoxine A. Er zou derhalve voorlopig een technisch haalbaar maximumgehalte vastgesteld moeten worden, maar het is absoluut noodzakelijk om de methoden ter vermindering van de verontreiniging te verbeteren.
-Ter voltooiing van de interne markt op dit gebied is het volgens het actieplan eveneens noodzakelijk ‑ momenteel ontbrekende ‑ geharmoniseerde regels voor de markttoegang en de bedrijfsuitoefening van beheermaatschappijen in te voeren, opdat de marktdeelnemers uit de financiële sector elkaar op voet van gelijkheid kunnen beconcurreren.
-Dit heeft een aan tal successen opgeleverd, zoals de verordening betreffende de bescherming van de financiële belangen en de verordening inzake steekproeven, maar wij moeten de vakmensen ongetwijfeld nog meer van het nut van onze werkzaamheden overtuigen door kwesties aan te pakken die de burger na aan het hart liggen.
-Wij zijn er desalniettemin van overtuigd dat zelfs een groei van ongeveer 2,5% - iets meer of iets minder - de werkgelegenheid in de Unie zal blijven bevorderen. Tot dusver werd er immers geen spectaculaire daling van de werkgelegenheid of aanzienlijke toename van de werkloosheid geregistreerd.
-Als iedereen echter met die doelstelling instemt en als er voor een bepaald land een uitstel van twee jaar nodig is, dan is dat niet het Europa met de twee snelheden.
-Ten slotte lijkt het ons onmisbaar gekwantificeerde doelstellingen op termijn te definiëren en mechanismen voor permanente controle op de mate van economische en sociale samenhang in werking te stellen.
-Voorlopig blijft ons acceptatiebeleid open tot neutraal voor de Britse autosector.De Britse autoproductie blijft immers een sterke sector (door zijn diversiteit, met een redelijke mix van volume-, premium en gespecialiseerde producenten), de output is nog altijd bevredigend (vergeleken met de productieniveaus van voor 2016) en de exportvraag blijft groot.
-Omdat het door de Commissie gepresenteerde werkprogramma zo uitgebreid is, is het volgens Comité ondoenlijk om elk facet ervan nu in detail te behandelen; in het navolgende advies worden daarom vooralsnog dan ook alleen die aspecten nader bekeken die het Comité op dit moment essentieel acht.
-Voorlopig kunnen we voor de Europese Gemeenschap als geheel nog niet met Elisabeth Badinter zeggen "De een is de ander"(6), ook al spiegeien de vrouwen van vandaag zich allang niet meer aan het beeld dat hun grootmoeders en sommige moeders hun hebben nagelaten, en leggen ze steeds meer nadruk op hun wil tot zelfbeschikking.
-Daarom heb ik mede namens de landbouwcommissie een voorstel aan de plenaire voorgelegd om deze plattelandsontwikkelingsplannen niet als prealabele conditie te stellen, maar voorshands een dergelijk planmatig kader te vervangen door een pragmatische aanpak die de financiering mogelijk maakt van een aantal maatregelen waarvan iedereen het nut inziet.
-a) elk schip, vissersvaartuig en pleziervaartuig, ongeacht hun vlag, die een haven in een lidstaat aandoen of daar in bedrijf zijn, met uitzondering van oorlogsschepen, marinehulpschepen en andere schepen in eigendom of onder beheer van een staat die uitsluitend voor een niet-commerciële overheidsdienst worden gebruikt, en
-Nu bestaat het gevaar, aangezien de Golfoorlog tot een eind is gekomen, dat aan een duurzame en vreedzame oplossing voor het gebied niet dezelfde prioriteit zal worden gegeven. Ik geef echter wel toe dat de Gemeenschap redelijk snel te hulp kwam aan het Koerdische volk en heb daar ook waardering voor.
-Wij zijn van mening dat gecontroleerde en verstandige immigratie werkelijk tot verrijking van de Europese landen kan leiden.
-Er is nog veel meer wat gezegd kan worden (en zal worden), over de manier waarop wij naar onze Vader moeten bidden. Voorlopig zijn hier enkele simpele punten die je moet weten: als je meer wilt weten, vraag je pastoren en oudsten ernaar en vraag hun naar schriften.
-Ik bedoel, waarde collega's, dat wij onze beginselen trouw blijven als wij vasthouden aan het beginsel dat de Britse restitutie aan de uitgavenkant behoort te staan, doch tijdelijk aanvaarden dat zij gedurende twee jaar onder inkomsten wordt ingeschreven.
-Als ik het geheugen van de Commissie even mag opfrissen, in de bijlage bij het verslag staat dat "overeenkomstig artikel 56, lid 1 van het Reglement en naar aanleiding van een verzoek van de commissie, de vertegenwoordiger van de Commissie verklaarde dat de diensten van de Commissie momenteel niet bezig zijn met de uitwerking van een nieuw voorstel voor technische maatregelen" .
-Het is een graf van Sun Ch'uan in Nanjing in China. Zon Ch'uan is de Chinese oude held die is wijdvermaard voor drie van de wil. In het graf, er is geen rivier in overal waar op de voet, maar een stenig standbeeld wordt voorlopig opgestoken.
-De Twaalf zijn definitief akkoord met het principe de eventuele opneming van dit fonds in de tegenboekingen van de overeenkomst EEG-EVA te bespreken, zolang de Commissie tegenargumen
-4.3 Wat de gekozen vorm (verordening) en optie betreft (facultatieve, "secundaire regeling" in elke lidstaat op basis van een uitdrukkelijk akkoord van de overeenkomstsluitende partijen), kan het instrument, zoals reeds in het eerder vermelde EESC-advies is uiteengezet, worden beperkt tot louter handelsovereenkomsten en kunnen consumentenovereenkomsten voorlopig buiten beschouwing worden gelaten.
-De gezondheidszorg blijft echter — evenals de sociale zekerheid en andere welzijnsaangelegenheden — in de eerste plaats een nationale „bevoegdheid" en daar zal op korte termijn weinig verandering in komen.
-Voorlopig kom ik niet verder dan dit: als literatuur voor kinderen voor de groei van het kind wil blijven kiezen, zal er ruimte moeten worden gemaakt voor de schrijver met die 'andere' moraal, voor hij die niet komt met een boodschap van optimisme, van hoop, van geloof in goedheid.
-Uiteraard weet ik dat er teksten zijn gepresenteerd over de illegale immigratie, met name wat betreft de mensenhandel en de verantwoordelijkheid van de vervoerders. Het gaat hier evenwel om specifieke teksten die door de lidstaten zijn gepresenteerd op basis van het initiatiefrecht waarover ze voorlopig nog beschikken.
-Voorlopig heeft dit mijns inziens veel meer nadelen dan voordelen: het gevaar om de inflatiedruk, die toch al nadrukkelijk aanwezig is, nog verder op te voeren; het gevaar om de vaak futloze binnenlandse vraag lam te leggen; en het probleem van de sociale billijkheid van een dergelijke reorganisatie.
-De in de Oostenrijkse veterinaire en fytosanitaire wetgeving vastgestelde normen zijn erg strikt, maar er zijn toch ook verschillen ten opzichte van de Gemeenschap.
-Ik wil benadrukken dat de handelaars de opslag op passende wijze kunnen integreren in hun uitvoeractiviteiten. Dat zal ook bijdragen tot een verbetering van hun concurrentiepositie op de derdelandenmarkten.
-De verwachte resultaten van de deconcentratie - sneller en beter projectbeheer - zijn tot dusverre beperkt gebleven door problemen bij de werving van personeel met relevante expertise en bij de optimale benutting van deze expertise, moeilijkheden op het hoofdkantoor bij de ondersteuning van de delegaties, vooralsnog ontoereikende financiële-informatiesystemen en gecompliceerde procedures.
-Genoeg stof om weer eens bij te praten met Marchosias.Een goed gesprek over het album, de band, aankomende releases en de ambities… Door: Neithan _ Archiveer onder black metal Om maar eens met de subtiliteit van een T-34 in huis te vallen: waarom brengen jullie zo'n weergaloze plaat alleen in eerste instantie op vinyl uit?
-Voorlopig ziet het Eurosysteem geen noodzaak deze categorie in Ierland gebruikte activa uit te breiden naar alle landen van het eurogebied , aangezien leningen met woninghypotheken als onderpand reeds in veel landen in geëffectiseerde vorm als onderpand beleenbaar zijn , hetzij als effecten met woninghypotheken als onderpand of in de vorm van instrumenten van het Pfandbrief-type .
-In alinea 3 van punt 7 van de toelichting op deze ontwerprichtlijn wordt duidelijk gemaakt dat er een kader voor één enkele luchtvaartautoriteit zou moeten worden geschapen om zodoende de totale harmonisatie van veiligheidsvoorschriften te garanderen alsmede een samenhangende tenuitvoerlegging daarvan.
-Bovendien is er tot op heden geen heldere definitie van een hoog risico patiënt.
-Voorts bestreed de Belgische regering 's Hofs rechtsmacht ex artikel 177 op grond dat de door de Tariefcommissie gestelde vragen niet relevant waren voor de beslissing van het geschil door de Tariefcommissie.
-Wat betreft Eurydice, het communautaire informatienet voor onderwijszaken, dat in het verslag van mevrouw Viehoff wordt genoemd, moet ik het Parlement meedelen dat de Commissie voor jeugd, cultuur, onderwijs, voorlichting en sport pas zeer onlangs heeft besloten voorlopig geen nieuwe the ma's aan de huidige vier prioritaire onderwerpen van het Eurydice informatienet toe te voegen.
-Naast aanpassingen die het communautaire karakter van de eigen middelen beter tot uitdrukking brengen bevatten deze voorstellen ook duidelijk een verbetering van de inningsen vaststellinggsmodaliteiten, met name voor zover de nationale wetgevingen tot dusver een alibi vormden om voorlopig de rechten niet vast te stellen en niet ter beschikking van de Gemeenschap te stellen.
-Met andere woorden: Legija moet nog flink wat werk verrichten voordat ze de belofte van hun biografie kunnen waarmaken: "een band die door de menigte heen breekt met non-nonsense, stamp-op-je-muil-metal". [sic] Voorlopig komen ze op mij over als de zoveelste band waarvan we volgend jaar niets meer zullen horen.
-Economische en Monetaire Unie taire samenwerking op 13 maart 1979 werden over eenkomsten tussen de Centrale Banken betreffende de tenuitvoerlegging van het EMS ondertekend, te weten onder meer een overeenkomst in zake de werking van het Europees Monetair Stelsel en een akte inzake de monetaire steun op korte termijn.
-De omstandigheden in Europa zijn echter in het algemeen zo, dat de koeling door zonne­energie nog geenszins kan concurreren, terwijl de markt voor klimaatregeling beperkt is (en niet aangemoedigd moet worden zolang onvervangbare energiebronnen hiervoor de meeste energie moeten leveren), zodat de ontwikkeling van klimaatregeling en koeling d.m.v. zonne­energie op dit ogenblik belangrijker is voor de export dan voor gebruik binnen Europa.
-Hij zou namelijk aan het Paflement geen motivatie voot zijn standpunt gegeven hebben en niet uitgelegd hebben welke de economische en ecologische gevolgen zijn als zijn standpunt vetschilt van dat van het Parlement.
-echter ruim en de regering heeft gemeend dat de voorstellenvan deel 8 wellicht niet effectief genoeg zijn. Zij wil nu nieuwewetgeving voorbereiden in de vorm van een wet tegenasociaal gedrag (Anti-Social Behaviour Bill), die eerder tegendrugspanden dan tegen individuele personen is gericht enwaarbij de politie in overleg met de lokale autoriteitendergelijke panden binnen 48 uur kan sluiten.
+De volgende mondelinge vragen met debat zullen in het debat worden opgenomen :
+De nieuwe hoofdlijnen van het economisch beleid worden echter gekenmerkt door een uitgesproken besluiteloosheid en onduidelijkheid, wat erop neerkomt dat men gewoon doorgaat met een beleid dat met het oog op de zich opstapelende problemen buitengewoon inefficiënt is.
+Begrijp ik uit het antwoord dat de Commissie niet van plan is voorlopig met een concreet voorstel over educatief verlof te komen in de vorm van een aanbeveling of in de vorm van een richtlijn ?
+Hulp bij herbebossingsprogramma's in de derde wereld om erosie of zelfs uitworp van kooldioxide tegen te gaan illustreerde op treffende wijze hoe activiteiten die ver van het Europese vasteland plaatsvonden, een wezenlijke bijdrage zouden kunnen vormen tot een groter ecologisch evenwicht in de toekomst.
+Het stuit mij tenslotte tegen de borst dat er geen enkel krediet voor Libanon is uitgetrokken, terwijl er in artikel 953 wel kredieten voor de zogenaamde frontlijnstaten, die niet bepaald een voorbeeld van democratie zijn, worden uitgetrokken.
+De lidstaten worden momenteel echter weinig gestimuleerd om gebruik te maken van de gedeeltelijke afsluiting: thans moeten financiële correcties betreffende concrete acties die gedeeltelijk worden afgesloten netto correcties zijn, wat betekent dat het bedrag voor het programma verloren gaat.
+De Raad overweegt daarom voorlopig nog niet onderhandelingen over een zoals in de vraag genoemde overeenkomst te openen.
+Hetgeen Jezus tijdelijk in handen van de Vader gaf, moet het geest-duplicaat zijn geweest van het vroege werk van de Richter bij de vergeestelijking van zijn sterfelijke bewustzijn, zodat de transcriptie van de menselijke ervaring naar de woningwerelden kon worden overgebracht.
+Overwegende dat de richtsnoeren van de Plantenbeschermingsorganisatie voor Europa en het gebied van de Middellandse Zee (EPPO) thans het beste beschikbare uitgangspunt vormen voor de vaststelling van de in alle Lid-Staten in het kader van de richtsnoeren voor proeven inzake de deugdelijkheid toe te passen minimumeisen; dat het evenwel dringend nodig blijkt om deze richtsnoeren grondig te onderzoeken en wanneer bepaalde richtsnoeren niet voor proeven inzake de deugdelijkheid geschikt mochten blijken, bij deze richtlijn strengere standaarden vast te stellen;
+We hebben overigens van meet af aan gezegd - ook dat heeft mevrouw Mann naar voren gebracht - dat deregulering bij de volgende stap regulering betekent.
+Opener 'I Follow' is alvast een onweerstaanbare binnenkomer met een licht epische sfeer, vurige gitaarsolo en een vleugje sensualiteit.Bovendien bevat het enkele ruwe passages en is de videoclip ronduit verleidelijk.
+Enkel die landen kunnen als betrouwbare partners worden beschouwd.
+Ik maak van de gelegenheid gebruik om het Parlement te danken voor zijn desbetreffende steun, die heel duidelijk is gebleken tijdens de behandeling van de begroting voor 1996.
 Voorlopig verschaffen de monetaire gegevens echter sinds de toename van de volatiliteit in de financiële markten begin augustus weinig aanwijzingen van dergelijke herschikkingen , terwijl niet kan worden uitgesloten dat de stroom bankleningen aan de sector van niet-financiële vennootschappen in augustus deels de herintermediatie van enige financiering naar bankbalansen weerspiegelt .
-Door de nauwgezetheid van de analyse moeten we echter niet uit het oog verliezen — zoals zeer terecht opgemerkt is — dat steenkool een zeer belangrijke primaire energie bron blijft, van wezenlijk belang voor de Gemeenschap.
-Mevrouw Van den Brink (S). — Voorzitter, ik wil aansluiten bij hetgeen onze collega, de heer Bertens, met wie ik een bezoek heb gebracht aan de Koerdische vluchtelingenkampen in Iran, heeft gezegd en vragen dat de Com missie een evaluatieverslag opmaakt van de hulpverlening. ning.
-Dat betekent dat wij de gedachte van een ruimer filiaal voor „energie" — datgeen waarover men voor de Wereldbank heeft gesproken — waaraan wij zeer actief zouden deelnemen samen met de arabische landen als een veelbelovend idee beschouwden ; wij hebben daaraan vastgehouden en wij daarvoor gestreden.
-Bovendien zullen de cliënten uiteindelijk ook van deze lagere kosten profiteren , aangezien in een door concurrentie gekenmerkte markt de banken ertoe worden gebracht hun tarieven voor betalingssysteemdiensten te verlagen en de kostenbesparingen aan hun cliënten door te geven . Het Eurosysteem is van mening dat het GEBG-initiatief van de banken niet louter gericht dient te zijn op het ten opzichte van de
-Bovendien wil ik de aandacht trekken op de maatregelen die combinatie van gezin en arbeid beter mogelijk moeten maken.
-In het dorp van Dong Van u kunt genieten van een prachtige en kleurrijke markt op zondag, op dit moment heel inheemse, Hoewel weer in mijn magische bal een daling van authenticiteit en een toename van de winkels van toeristische sieraden in een paar jaar, het tempo van de bouw in het dorp is waanzinnig, vooral rond de markt. La burbuja inmobiliaria ha llegado Vietnam.
-— — — — — — voor het Verenigd Koninkrijk: voorlopig ten minste 11 „Standard regions"; voor Denemarken: de 15 „amter", samengevoegd in 3 gebieden.
-U kent in alle bescheidenheid toch wel dat kenmerk van de democratie in wording, dat het ruim voldoende is de meerderheid alleen maar het gevóel te geven dat zij iets in te brengen heeft? Daar hoeft u toch niet meer voor achter uw oren te krabben? Maar ik moet toegeven, ik heb het gevoel dat ik nog steeds het licht niet heb gezien, dus ik blijf vooralsnog wel achter mijn oren krabben.
-Ik kan het ver slag van mevrouw Aglietta steunen maar ik wil er toch op wijzen dat men de nodige zin voor diplomatie en goede betrekkingen aan de dag moet leggen tegenover een volk dat een daadwerkelijke inspanning levert als uitdrukking van zijn liefde voor de vrijheid en van de ondernemingszin die het altijd al heeft betoond.
-Bc heb met algemene stemmen, met unanimiteit in de commissie buitenlandse zaken bekomen dat wij op dit ogenbük een onderscheid zouden maken tussen veiligheid en defensie en dat wij in een verslag in de toekomst, maar nu om te beginnen een eerste deel aan de veiligheid zouden wijden en na het einde van de Intergouvernementele Conferentie, wanneer wij zullen we ten of daar belangrijke besüssingen werden getroffen of niet, dan het tweede deel over de defensie te maken en die twee samen zouden het standpunt van het Parlement weerspiegelen.
-Ik ben derhalve van oordeel dat de leiders van de Gemeenschap erop toe zouden moeten zien — hetgeen mijn tweede opmerking bevestigt — dat de andere landen van Europa bij de oplossing van het Joegoslavische conflict worden betrokken en niet alleen door hen om steun te vragen, zoals dat de afgelopen tijd het geval is geweest.
-De ECB merkte op dat zij van mening was dat de door haar gekozen oplossing voorlopig een verdedigbaar compromis is, niet alleen gezien de noodzaak van een optimale doelmatigheid en tijdige beschikbaarheid, maar ookin verband met budgettaire beperkingen.Ook wees de Bank erop dat zijpas een jaar geleden is opgericht en dat zij ervan uitgaat dat eerstestappen in de door klager bepleite richting te zijner tijd zichtbaar zullenworden.
-Verder heeft de Commissie ook nog haar goedkeuring gehecht aan twee andere, al in de aanhef van dit advies genoemde documenten, die voorstellen bevatten voor de basisbeginselen waarop de EMU moet worden gegrondvest: in het eerste document worden regels voorgesteld die moeten garanderen dat de gemeenschappelijke munt van meet af aan stabiel is en blijft, en in het tweede document worden voorstellen gedaan om de betrekkingen te regelen tussen de gemeenschappelijke munt en de munten van de lidstaten die voorlopig nog buiten de EMU blijven.
-Er wordt niet echt veel druk op mij gelegd aangezien ik geen precieze doelen heb, voor mij werkt het per periode: Paris-Nice dan de Dauphiné, het Frans kampioenschap en de Tour de France. Ik wil nu een goede start maken in het nieuwe seizoen: de Tour is zeker dé wedstrijd, maar ik ga niet naar de Tour voor het podium dus om te beginnen richt ik mij volledig op de andere wedstrijden.
-de bevoegde autoriteiten hebben vastgesteld dat, naar hun oordeel, een beleggingsonderneming, om redenen die rechtstreeks verband houden met de financiële positie van de beleggingsonderneming of de financiële positie van een derde waarbij door de beleggingsonderneming financiële instrumenten zijn gedeponeerd, momenteel niet in staat lijkt te zijn te voldoen aan haar verplichtingen die voortvloeien uit vorderingen van beleggers, en daartoe ook op afzienbare termijn niet in staat lijkt te zullen zijn;
-De voorgestelde richtlijn is tevens aangepast aan de nieuwe institutionele situatie. Zij zal slechts van toepassing zijn op de elf lidstaten die daadwerkelijk het akkoord inzake het sociaal beleid hebben ondertekend.
-Toch moet ik zeggen dat ik op basis van de informatie die ik hier net heb gehoord geneigd ben om te geloven dat de eenheid op dit moment steeds groter wordt en dat de Afrikaanse Unie nuttige en efficiënte voorstellen op tafel zal leggen om uit deze crisis te raken. Die crisis is uiteraard betreurenswaardig en een heuse belediging voor al wie in Afrika de democratie steunt en ingang probeert te laten vinden.
-Uitgaande van de theorie van Chomsky – die zich bezighoudt met de begrippen competence, de expressieve potentie van de individuele spreker, en performance, dat de feitelijke talige prestatie van de spreker in een concrete situatie betekent –, stelt Mel´tsjoek zich er voorlopig mee tevreden de computer te laten werken op het gebied van de competence.Met andere woorden, Mel'tsjoek stelt zich niet ten doel reële, door sprekers geuite zinnen, teksten waarmee een vertaler te maken krijgt, door de computer te laten vertalen.
-Hoewel er diverse instrumenten van invloed zijn op gebouwen en bouwproducten, zoals de Richtlijn betreffende energieprestaties van gebouwen20, de Richtlijn betreffende energie-efficiëntie21, de Verordening voor bouwproducten22, het EU-emissiehandelssysteem23, de Richtlijn industriële emissies24, de Kaderrichtlijn afvalstoffen25 en de Richtlijn betreffende het storten van afvalstoffen26, concentreren zij zich op verschillende productiemiddelen en delen van de levenscyclus en zijn zij voorlopig niet de aangewezen instrumenten voor een aanpak van de gehele levensduur.
-, namens de PSE-Fractie. - Ik zou om te beginnen rapporteur Gilles Savary en al degenen die tot het eindresultaat hebben bijgedragen, willen danken voor het verrichte werk en de rapporteur vooral ook voor het feit dat hij doorgezet heeft, ondanks het feit dat de Commissie heeft laten weten af te zien, voorlopig althans, van het actieplan waarnaar wij zo lang vragen.
-Onverminderd het bepaalde in punt 9 moet een vaartuig dat tijdelijk wordt ingezet voor de visserij op tonijn of tonijnachtigen in het verdragsgebied buiten de onder nationale jurisdictie vallende wateren, halt houden wanneer het passende sein uit het internationale seinboek is gegeven door een vaartuig dat een inspecteur aan boord heeft, tenzij het daadwerkelijk visserijactiviteiten beoefent, in welk geval het moet halt houden zodra deze activiteiten beëindigd zijn.
-Barry een aanpassing van de door de Raad vastgestelde verordeningen, heeft de Commissie in dit stadium, rekening houdend met het feit dat de toepassing van de nieuwe regeling zich in een aantal Lid-Staten nog in een beginstadium bevindt, nog geen wijzigingen voorgesteld van de op 31 maart 1984 door de Raad vastgestelde reglementering.
-Bilaterale en regionale overeenkomsten zijn dan ook geen alternatief voor multilaterale onderhandelingen, maar veeleer een aanvulling om niet alleen de tarifaire en non-tarifaire belemmeringen effectiever te kunnen afbreken, maar om ook voor structuren te zorgen op gebieden waarop de WTO-leden besloten hebben om - althans voorlopig - niet binnen het multilaterale stelsel collectief te onderhandelen. Ik denk daarbij aan de mededingingsregels, aan overheidsaanbestedingen en aan de arbeidsdimensie.
-Wij beschouwen het als een bevriend land, dat moet democratiseren en dat wij kunnen helpen, maar voor het ogenblik willen wij graag de volgende boodschap richten tot de Syrische regering: neemt u deze boodschap alstublieft serieus, nu de tijd is gekomen om een besluit te nemen over deze associatieovereenkomst.
+Het leek dokter Vogel goed om even pauze te nemen.
+Ik ben dan ook van mening dat het voorlopig belangrijk en terecht is dat de Europese Unie eraan blijft vasthouden dat eerst alle voorwaarden van het Kwartet en de afspraken van Mekka nagekomen moeten worden alvorens de betalingen aan de Palestijnse regering van nationale eenheid kunnen worden hervat.
+Om te beginnen wordt op grond van deze ontheffing een half miljoen buitenlandse burgers, met inbegrip van 20.000 Britse paspoorthouders, politieke vertegenwoordiging op plaatselijk niveau ontzegd.
+Half 1991 was Slovenië nog het slachtoffer van de interventie van het zogenaamde Joegoslavische volksleger en 5 jaar later heeft het onafhankelijke Slovenië zich ontwikkeld tot een volwassen democratie met goede regelingen voor zijn minderheidsgroepen, nog niet goed genoeg, maar voorlopig goed gezien de omstandigheden.
+De Dam te Amsterdam zal voorlopig nog niet omgedoopt worden tot ...
+De voorgestelde maatregelen voorzien in de vaststelling van ma ximumgehalten en, voorbij een bepaalde be smettingsgraad, in een verbod om de betrokken grondstoffen rechtstreeks als enkelvoudig dier voeder aan de veehouders te verkopen of zelfs te gebruiken voor de vervaardiging van mengvoeders.
+Misschien dat er ooit geconstateerd wordt dat die opsplitsing voor elke instelling verplicht moet worden. Voorlopig moeten we de kleinere instellingen daar echter maar van vrijstellen.
+Thans worden zij nog beschermd door zeer hoge douanetarieven, zodat zij de voornaamste leveranciers op de binnenlandse markt zijn.
+Tot nog toe was dit niet mogelijk en zoals ik reeds gezegd heb, heeft Canada laten weten dat dit niet haalbaar is.
+De beslissing van de Commissie om de procedures in te leiden zal voornamelijk afhangen van het voorafgaand onderzoek, de omstandigheden van het individuele geval en het betrokken openbaar belang.
+Als daarna het toegepaste onderzoek een afgerond geheel begint te bereiken, stelt op zijn beurt het RCN de vergaarde kennis aan de industrie ter beschikking.
+Hier hebben wij te maken met een taalgebruik dat alleen maar dient voor desinformatie en politieke propaganda.
+Dit soort maatregelen worden gecoördineerd door de bevoegde organen van de Raad en er zijn hierbij - vooralsnog - geen Afrikaanse landen betrokken.
+Het projekt zal aan het eind van 1978 worden afgerond. Momenteel kunnen de voorlopige resultaten van de wijzigingen dus alleen worden afgeleid.
+Een dergelijk beleid vereist op zijn beurt een institutioneel kader in verband waarmee ik op dit moment enkel wil wijzen op het belang van een economische en sociale unie als politieke tegenhanger van de monetaire unie; een nieuw sociaal contract dat de hoeksteen voor de solidariteit tussen de Europeanen vormt en dat gebaseerd moet zijn op een minimum aan sociale harmonisatie, met speciale aandacht voor de arbeidswetgeving, de sociale zekerheid, de bestrijding van sociale uitsluiting en de bevordering van de werkgelegenheid.
+Overwegende dat het verbieden van het gebruik van bepaalde vezels, zoals die van amfiboolasbest, die volgens bepaalde wetenschappelijke bronnen bijzonder gevaarlijk zijn, een zeer doeltreffende manier is om de gezondheid van de mens en het milieu te beschermen; dat om praktische redenen een dergelijk verbod vooralsnog niet kan worden uitgebreid tot natuurlijke materialen zoals ertsen en zand, die asbestvezels als natuurlijke onzuiverheden bevatten;
+Om de nodige politieke impulsen te geven en haar maatregelen te coördineren, heeft de Commissie met onmiddellijke ingang een Groep van Europees commissarissen voor de levensmiddelenhygiëne in het leven geroepen.
+Misschien zou er een dag komen dat hij het wel kon vertellen, maar voor zover liet hij het hierbij.
+De onderhandelingen worden voortgezet over de andere hoofdstukken in functie van de door de kandidaat­landen verschafte gegevens over de tenuitvoerlegging van het acquis of over hun verzoeken betreffende overgangsperioden.
+Bovendien zou alleen mogen worden verkocht aan landen, of particuliere eigenaars die onder de vlag van die landen varen, die zich bereid hebben verklaard voor afgedankte schepen voorlopig het Verdrag van Bazel toe te passen.
+Een ander aspect aan Assasin's Creed Origins dat nog een verrassing blijft, is de identiteit van andere speelbare personages naast Bayek.
+Overeenkomstig de voorlopig van kracht zijnde Verordening (EG) nr. 216/2008 van het Europees Parlement en de Raad, heeft
+In juni 1988 is een eerste akkoord met deze organisatie gesloten (zie hieronder). Deze over eenkomst ging minder ver dan de Golfstaten hadden gewenst.
+Herstructurering, verdichting, polycentrisme, reconversie en renovatie zullen bepalend zijn voor de evolutie van het kantorenpark in de komende jaren. Als de kantoorsector even belangrijk blijft voor en in de stad, dan is het op dit ogenblik moeilijk om de omvang van de toekomstige wijzigingen in te schatten.
+Inzake de wetgevende activiteit is de Commissie van oordeel dat het (voorlopig) niet nodig is al zover te gaan.
+Mallet verwikkeld, met name Syrië, dat tijdens een proces in Londen rechtstreeks bij de zaak bleek te zijn betrokken.
 Daar bleef hij de hele nacht, die deels bracht hij in een staat van semi-slaap, waaruit zijn honger voortdurend wakker hem met een begin, maar deels in een staat van zorgen en duistere hoop, die alle leidden tot de conclusie gekomen dat voor de tijd wezen dat hij zou moeten blijven kalm en met geduld en de de grootste aandacht voor zijn familie tolereren de problemen, die in zijn huidige staat hij nu gedwongen om hen te veroorzaken.
-En terwijl de geest van mijn Vader altijd de goddelijke gids en mentor zal zijn van allen die het verband met deze geestelijke gemeenschap aangaan, overhandig ik nu aan jullie en jullie opvolgers de sleutels van het uiterlijke koninkrijk – het gezag in wereldlijke zaken – de sociale en economische aspecten van deze vereniging van mannen en vrouwen die broeders zijn in het koninkrijk.’ En opnieuw bond hij hun op het hart om voorlopig niemand te zeggen dat hij de Zoon van God was.
-Zou de goede analogie - gezien de ongelijkheid die heerst- op het ogenblik het probleem zijn waar de overstromingsdeskundigen mee worstelen? Als het waterniveau aan de ene kant van de dam te hoog is, moet er iets gedaan worden om te voorkomen dat de dam barst: als je de dam zelf niet wilt uitschakelen, moeten er vanwege de ongelijke druk van beide kanten bepaalde beslissingen gemaakt worden: stroomgoten verlagen de druk misschien voorlopig; het ondersteunen van de infrastructuur kan het water een poosje op een afstand houden.
-Die uw eerste aanval overleefd hadden?' ………IG 'Het lijkt er op dat die hun vrienden de hal in gedragen hebben, met de intentie om te ontsnappen in hun wagens die nog steeds buiten geparkeerd staan.Een Volvo 240GL estate (1983) en een Londonse Taxi, alle twee hebben ze een gelijke draaicirkel, ondanks dat ik niet zie hoe ze er allemaal inpaste.Ik vermoed dat ze hun vrienden bovenop de andere lichamen in de hal legde, voor zo lang het duurde, totdat het onheil toesloeg.' ………AC 'We hebben er nu twaalf op de hoop.
-De volgende stap is om de optimalisaties zo aan te passen dat er alleen voor de schaatser realistische slagen gevonden worden.'Een andere resterende uitdaging is dat er nog geen meetsysteem bestaat dat positie en oriëntatie (stuurhoek) nauwkeurig genoeg en continu over de hele baan kan meten.Dat is waarom we de schaatsslag die de computer vindt, voorlopig nog niet kunnen aanleren aan schaatsers via real-time feedback in een bril.' Met de shorttrack meetschaats zijn vier verschillende slagen te onderscheiden in het shorttrack schaatsen.
-(16) Overwegende dat artikel 5, lid 1, punt 2, sub d), aan de vrijstelling de voorwaarde verbindt dat de dealer in grote series vervaardigde personenauto's voor eindgebruikers op de gemeenschappelijke markt in de voor hun woonplaats of de plaats van kentekenregistratie vereiste uitvoeringen bij de leverancier kan bestellen, voor zover de fabrikant eveneens bij de plaatselijke, van het distributienet deel uitmakende onderneming een model aanbiedt dat met dat uit het gamma van de overeenkomst met de dealer overeenstemt (artikel 13, punt 10); dat deze regeling een garantie vormt tegen het gevaar dat de fabrikant en de van
-Het Verdrag van Amsterdam had deze vraagstukken reeds onttrokken aan de nationale parlementen en overgebracht naar een communautair kader. Het voorziet echter in twee fundamentele afwijkingen ten aanzien van de gebruikelijke procedures: de Commissie moet het initiatiefrecht delen met de lidstaten tijdens een overgangsperiode die beperkt is tot vijf jaar na inwerkingtreding van het Verdrag van Amsterdam (dus tot 1 mei 2004), en de Raad neemt gedurende minstens vijf jaar beslissingen met eenparigheid van stemmen, niet met gekwalificeerde meerderheid, waardoor ieder volk voorlopig het recht behoudt om soeverein te beslissen.
-Zolang de bezittende klassen niet alleen geen behoefte aan bevrijding bespeuren, maar ook het zichzelf bevrijden van de arbeidersklasse uit alle macht tegenwerken, zal de arbeidersklasse wel gedwongen zijn de sociale omwenteling alleen voor te bereiden en door te voeren.Ook de Franse burgers van 1789 verklaarden dat de bevrijding van de bourgeoisie met de emancipatie van heel het menselijk geslacht gelijkstond; adel en geestelijkheid wilden dat echter niet inzien.Hoewel deze bewering toentertijd, voor zover het feodalisme erbij betrokken was, een onmiskenbare, abstracte, historische waarheid inhield, ontaardde zij al spoedig in een puur sentimentele frase en ging zij in het vuur van de revolutionaire strijd geheel in rook op.
+De eerst vermelde is het American National Corpus, dat in opzet is geënt op het British National Corpus, maar zich nog in de fase van opbouw bevindt en waarvan tot nu toe alleen een zogenaamde bèta-versie voorhanden is (een niet beproefde en provisorische versie).
+Dit is een nieuwe procedure, die wij met de bevoegde commissie van het Parlement hebben afgesproken. Tot zover hebben wij onze belofte gehouden door het verslag vandaag voor te stellen.
+Het is de hoogste tijd dat de Commissie onmiddellijk orde op zaken stelt en door eventuele sancties correcte naleving afdwingt.
+De Commissie schaart zich vierkant achter het verslag over de NAFO-zone, maar ik wilde in dit verband wel twee opmerkingen kwijt. Zoals ik al herhaalde malen in dit Huis heb gezegd, is het betreffende conflict - dat vooral een politiek doel had, namelijk de communautaire vloot uit de internationale wateren zetten - voorlopig opgelost met de communautaire vloot die in NAFO-kader opereert.
+Voorlopig is het nog niet mogelijk toegang te geven aan externe onderzoekers (zonder UGent-account).
+In afwachting daarvan overweegt de Commissie voorstellen te doen om:
+Zij hebben beide de Raad van de EU te kennen gegeven ( Denemarken in 1992 en het Verenigd Koninkrijk in 1997 ) dat zij niet voornemens waren over te gaan op de derde fase , dat wil zeggen dat zij voorlopig geen deel wilden gaan uitmaken van het eurogebied .
+Napier Brown had gecon­stateerd dat, waar de in het klein verkochte suiket niets anders was dan in kleinverpakking ver­kochte industriesuiker, de prijsmarges tussen beide verpakkingen zeer hoog lag.
+Hoewel de Commissie een juridisch verbindende oplossing op lange termijn niet uitsluit, acht zij het op dit moment beter zich te concentreren op een adequate actie op nationaal niveau.
+In plaats van voorlopig naar een compromis te zoeken op basis van de ver houding van het specifieke deel tot het totale belastingbedrag, wordt in de resolutie beweerd dat het compromis gebaseerd moet zijn op de incidentie van de evenredige belastingheffing op de kleinhandelsprijs. prijs.
+Vooralsnog blijf ik sceptisch over het idee.
+Zoals ik al zei, zien we naar aanleiding van de bevindingen en het verrichte werk van de diverse werkgroepen alsmede het seminar voor deskundigen, vooralsnog geen reden om de grenswaarden in de richtlijn te wijzigen.
+Het is op het ogenblik dus niet duidelijk welke andere maatregelen de Commissie nog zou kunnen riemen om de inkomenssituatie yah de Ierse boeren te verbeteren.
+Het Comité erkent niettemin dat het Stabiliteits- en groeipact de noodzakelijke begrotingsdiscipline en -convergentie tot nu toe reeds heeft bevorderd.
+Drukapparatuur voor het vervoer van gevaarlijke goederen valt daar voorlopig buiten.
+Voor de tijd als het werkt voor een relay wordt aangesloten op de GPIO 17, in een paar dagen zal ik eindigen met het tweede deel te bedienen van de acht uitgangen.
+Vooralsnog moeten we ons tevreden stellen met deze wederom uitstekende vijfde Hardline studio-plaat 'Human Nature'.
+Daartussenin hebben wij in dit Parlement regelmatig, ik zou bijna zeggen eindeloos, gedebateerd op basis van de voorstellen die voor het EFRO III op tafel zijn gelegd welke helaas nooit tot een besluit in de Raad zijn gekomen.
+Hun kinderen worden voorlopig nog niet terugverwacht in de lagere school, die maar een paar lokalen telt.
+BEPERKING
+Lamassoure, fungerend voorzitter van de Raad. — (FR) Mijnheer de Voorzitter, geachte afgevaardigden, ik dank het Europees Parlement omdat het een debat over de conferentie voor stabiliteit in Europa op de agenda van deze vergaderperiode heeft ingeschreven.
+Voorlopig slaap je bij de dienstboden in de Hal van Zeus.
+Hoe de uitkomst ook zal zijn, nú bent u hier, nú kunt u ervan genieten, en dat is op dit moment toch nog een aardige slotsom om de tentoonstelling voor geopend te verklaren.
+Momenteel zijn weinig gegevens beschikbaar over de aanwezigheid van T-2- en HT-2-toxine.
+Op dit ogenblik hebben wij ervoor gekozen om op deze manier van start te gaan. Aangezien het hier gaat om een zaak die beschouwd kan worden niet als zijnde van ondergeschikt belang - ik zeg niet dat het niet belangrijk is dat iedereen in zijn eigen taal over deze teksten kan beschikken -, maar als een opstartproject dat met beperkte middelen moet beginnen, zoals u overigens zelf heeft onderstreept, wil ik niet dat men dit argument ertegenin brengt.
+Maar, nogmaals, ik weet niet of de Commissie mij hierop kan antwoorden.
+— Volledig onaanvaardbaar is het feit dat menige lid staat het arrest van het Hof van Justitie naast zich neerlegt.
+Voor de nabije toekomst en in afwachting van een volgende bijeenkomst:
+Toch zijn veel landen van mening dat ze, op dit moment, niet alle grenscontroles kunnen afschaffen.
+Ik huur voorlopig iets in de jachthaven. Tonya is nu m'n spullen aan het inpakken.
+Dat onderzoek is dan vooral bedoeld om voorlopig niets te doen en het vinden van een oplossing te vertragen.
+Uw aller instemming, welke ik U vanavond vraag, dient U des te gemakkelijker te vallen, omdat het hier gaat om een tot drie jaren beperkte proeftegeling, volgens welke het begin van de zomertijd blijft zoals die tot uu toe* is geregeld, terwijl de uniforme datum voor het einde van de zomertijd vooreerst slechts voor de jaren 1986, 1987 en 1988 op de genoemde wijze wordt vastgesteld.
+Ik wist natuurlijk wel wat van Deva’s in het algemeen en dat Devi de vrouwelijke vorm daarvan is. Terwijl ik naar mijn bankgenote keek en naar haar transparante uitstraling en rode haren – ze had iets Iers over zich - kon ik me er ineens wel iets bij voorstellen dat zij uit het Deva-rijk afkomstig was, tijdelijk getransformeerd naar iets wat op homo sapiens leek.
+De heer Carvalho Cardoso (PPE), schriftelijk. — (PT) Wij steunen het voorstel van de Commissie voor een richtlijn waarmee via toezicht op en beperking van grote financiële risico's niet alleen wordt beoogd omvangrijke bankcrises bij kredietinstellingen te voorkomen, maar ook wordt beoogd concurrentiedistorsies tussen deze instellingen te vermijden.
+We betreuren het voorlopig lagere niveau van de activiteiten die we samen verrichten en, zonder verdere politieke spanning te willen veroorzaken, hopen we te kunnen werken aan normalisering van de situatie.
+De indicator de kleur blijft grijs voor de tijd tijdens die overgangsfase.
+Vooraleer in deze fase een antwoord kan worden gegeven op de zuiver formele vraag of het toepassingsgebied moet worden uitgebreid door middel van een wijziging van de verordening "Brussel II" dan wel door middel van de goedkeuring van een nieuwe verordening (die zou voortbouwen op de bepalingen inzake de ouderlijke verantwoordelijkheid van de verordening "Brussel II"), alsmede op de vraag welke plaats het initiatief inzake het omgangsrecht dan zou innemen, moeten de volgende punten worden onderzocht:
+Zelf vind ik dat de folkelementen erg meevallen (niet alleen qua instrumenten, maar ook qua arrangementen en gevoel), dus hou ik het even op paganistische black metal (voor zo ver je de titels of de teksten kan verstaan).
+Naar aanleiding van onderzoek naar een mogelijke herziening van de voorschriften inzake de voorafgaande goedkeuring van de financieel controleur bij afzonderlijke transacties, zijn wij tot de slotsom gekomen dat de toepassing van algemeen aanvaarde controletechnieken, zoals steekproefsgewijze controles, voorlopig mag worden voortgezet in het kader van de bestaande regelingen die de financieel controleur het recht geven om bij transacties voorafgaande controles uit te voeren, indien zulks nodig wordt geacht.
+Alleen zijn wij mensen voorlopig wel nog beter in co-creatie, in het juist inschatten van de noden van medemensen, van wat er allemaal meespeelt onder tafel.
+Dus voorlopig moeten we het maar vergeten. We hebben geen keus. Ik ga nu graag verder met m'n spel.
+. Nog even, vrijwillig. Lukt het?
+Wij denken dat in ieder geval in deze periode geschikte acties — en ik bedoel niet alleen financiële, maar ook politieke acties — door de Gemeenschap moeten worden ondernomen, om deze grote kloof te dichten.
+Thans is het voor de Commissie vaak onmogelijk om objectieve en doorzichtige gegevens te ontvangen betreffende de interne kostentoerekening van de betrokken ondernemingen aangezien de ondernemingen zelf vaak niet over dergelijke gegevens beschikken.
+Jammer genoeg alleen maar mei woorden voorlopig, maar ook mei daden.
+werking daarvan te waarborgen, zullen worden besproken tijdens de intergouvernementele conferentie die volgens het Verdrag van Maastricht in 1996 moet worden belegd.
+Bijgevolg wordt in Italië noch de spotmarkt noch de markt voor langlopende leveringsovereenkomsten momenteel gekenmerkt door een echt concurrerende structuur.
+h ) speciale , afsluitbare ruimten , respectievelijk bestemd voor het opslaan van enerzijds het ter voortgezette keuring aangehouden vlees en anderzijds , vlees dat schadelijk is voor de gezondheid en ongeschikt voor menselijke consumptie , alsmede de afvallen , voor zover dit vlees en deze afvallen niet dagelijks van het slachthuis worden afgevoerd ;
+De Socialistische Fractie ondersteunt de opname van Brunei in het EEG-ASEAN-Samenwerkingsakkoord om de volgende reden.
+Cienfuegos heeft zijn zegje gedaan. Voorlopig bent u veilig. Tenzij u iets verzwijgt.
+Ook hier in India zou het wel verslechteren naarmate de westerse consumptiecultuur verder oprukt, maar voorlopig waren er nog zat plekken waar het goed toeven is. Hun ashram bij Mount Abu bijvoorbeeld.
+Wij verkeren thans in een stadium waarin wij de politieke eenheid naderbij zien komen.
+Hoewel dit een belangrijke stap vooruit is, is dat al leen toch niet toereikend voor een duurzaam herstel van de Europese produktie en economie.
+Niet dat zulke plattelandsontwikkelingsplannen op zich niet nuttig en nodig zijn, maar zij kunnen onmogelijk op zo'n korte termijn op democratische wijze en voldoende integraal van opzet worden
+Op dit moment is er in ieder geval nog geen enkel concreet voorstel.
+Mevrouw de Voorzitter, onze fractie, de Groenen, heeft zich uitgesproken voor het nee tegen het Verdrag van Maastricht, juist vanwege het gebrek aan Europese ambitie, het gebrek aan sociale ambitie, het gebrek aan milieuambitie.
+Edvald Boasson Hagen (Team Sky) is voorlopig de beste jongere, met een voorsprong van 11 seconden op Thibaut Pinot (FDJ) die de trui van beste jongere meerdere malen mee naar huis nam in andere wedstrijden de afgelopen weken.
+Ook deze actie zou gunstige effecten moeten hebben op de werk gelegenheid.
+Een betaling in gedeelten van de resterende douanerechten die nog van toepassing zijn op ingevoerde produkten uit de andere Lid­Staten druist in tegen de van kracht zijnde wetgeving, en wordt door de Commissie niet geëist.
+Al moeten wij er zeker naar streven in de toekomst tot een Europese wetgeving te komen, wij hebben voorlopig het beste gedaan wat wij konden doen, namelijk zorgen dat zelfs in het geval van beroep de gedaagde de procedurele garanties geniet die zijn vastgelegd in de artikelen 5 en 6 van het Europees Verdrag ter bescherming van de rechten van de mens.
+Op dit moment komen in de strategie alleen de GBP's aan bod omdat ze veruit het belangrijkst zijn in termen van gebruikte hoeveelheden en economische omzet.
+In dat opzicht betekent Reykjavik uitstel, maar dan ook niet meer dan uitstel, want te oordelen naar de nabesprekingen van Reykjavik via tussenpetsonen bestaat het gevaar nog steeds in vrij grote mate en de risico's van ontkoppeling tussen de Europese en de Amerikaanse defensie blijven tenminste even groot, al was het alleen maar omdat men zijn twijfels kan hebben over de duurzaamheid van het strategisch defensieinitiatief na het eind van het mandaat van president Reagan.
+De strategie van de belangrijkste Europese audiovisuele groepen wordt bepaald door de noodzaak een kritieke massa te bereiken, de wens om nieuwe groeigebieden te betreden en het doel de toegang tot bredere internationale markten te verzekeren.
+heeft de Commissie rechten van de vrouw meegedeeld dat er een toename van 30 naar 39 % was geweest bij de acties ten gunste van vrouwen voor het begrotingsjaar 1984.
+Om redenen die al in de mededeling zijn toegelicht geeft de Commissie voorlopig echter de voorkeur aan maatregelen die zich beperken tot gewasbeschermingsmiddelen voor de landbouw.
+De concentratie Mercedes/Kässbohrer is een geval, waarin hoge marktaandelen op een op dat ogenblik nog nationale markt eerder voor een verbod spraken, doch de gerechtvaardigde verwachting van een snel toenemende openstelling van deze markt voor de Europese concurrentie uiteindelijk toch tot een goedkeuring moest leiden.
+De relatief geringe investeringsgeneigdheid in binnen- en buitenland zal voorlopig echter ook in het herstructureringsgebied voelbaar blijven. Diensten
+Ik ben derhalve van oordeel dat de leiders van de Gemeenschap erop toe zouden moeten zien — hetgeen mijn tweede opmerking bevestigt — dat de andere landen van Europa bij de oplossing van het Joegoslavische conflict worden betrokken en niet alleen door hen om steun te vragen, zoals dat de afgelopen tijd het geval is geweest.
+De aan de aanvraag gehechte documenten vormen voldoende bewijs dat de doelstelling van een concurrerende elektriciteitsmarkt, gezien de huidige omvang en structuur van deze markt op het eiland, voorlopig onhaalbaar of onpraktisch is.
+De in de Oostenrijkse veterinaire en fytosanitaire wetgeving vastgestelde normen zijn erg strikt, maar er zijn toch ook verschillen ten opzichte van de Gemeenschap.
+Teneinde evenwel de continuïteit van het handelsverkeer met de ACS-landen en daardoor ook de bevoorrading van de communautaire markt te garanderen, en tegelijk elke verstoring van de handelsstromen te voorkomen, moet als overgangsmaatregel een deel van het tariefcontingent worden gereserveerd voor de marktdeelnemers die reeds ACS-bananen aan de Gemeenschap hebben geleverd in het kader van de voordien geldende invoerregeling.
+(a) Deze waarde is de waarde die op elk ogenblik toepasselijk is in het kader van de gemeenschappelijke landbouwpolitiek.
+De IOA heeft besloten dat u voorlopig... de Atlantis-expeditie kunt blijven leiden.
+Er is vandaag voorts besloten dat wij, hoewel het Comité van presidenten als zodanig op 31 december te middernacht wordt ontbonden, onze infrastructuur zullen aanhouden.
+Voorlopig zijn de versies zijn alleen beschikbaar in het Engels, Frans, Spaans, Duits en Japans.
+Nadat Nanda's vrouw en de andere leden van de huishouding ermee klaar waren, werden de geschoolden die hun plicht hadden gedaan bedacht met voedsel, kleding, bloemenslingers en koeien en werd het kind, met slaperige oogjes, zolang apart gelegd. (Vedabase)
+Het Ver enigd Koninkrijk blijft momenteel buiten het stelsel (beperkte deelneming aan sommige kredietmechanismen).
+Men was er zich destijds geheel van bewust dat de overgang naar een sociale markteconomie met grote moeilijkheden gepaard zou gaan.
+385 die voor Tacis, KEDO en de steun aan geïndustrialiseerde derde landen, de vis­serijovereenkomsten en de snellereactiefaciliteit.
+De commandant sliep voorlopig nog in het Tuzla hotel.Hij grinnikte.
+De heer Wohlfart, fungerend voorzitter van de Raad. — (FR) In het licht van de door verslaving, vooral onder jongeren veroorzaakte onmetelijke ellende is de Raad blij met elk initiatief waardoor de strijd kan worden aangebonden tegen de illegale handel in drugs en de kwalijke uitwassen daarvan.
+Verschillende vormen van mobiliteit in het beroepsleven
+Op die manier werd de zekerheid van de niet-achtergestelde vorderingen van WAK gegarandeerd, werd de zware schuldenlast verlicht, werden insolventieprocedures voorlopig vermeden kon GfW de handelsactiviteiten voortzetten.
+Vooralsnog zou het er naar uitzien dat we 30 oktober gewoon op het Museumplein zouden staan.
+Met deze resolutie, mijnheer de Voorzitter, sluit het Europese Parlement zich niet alleen aan bij de belangrijke ver klaringen van de VN en de Raad van Europa, maar geeft zin aan de opbouw van de Gemeenschap moet leiden, die niet een proces van vervlakking is, maar een samenvloeien van verschillende culturen met be houd van hun specifieke kenmerken, ten einde elkaar te verrijken zonder in de fouten te hervallen die de nationale eenwordingsprocessen kenmerken.
+----- in juni 2010, met #33, sluit ik 'de interne relaties' af, maar laat een foutje achter....Ik meen dat ik de begrippen structuur en systeem die toen en nu vaak door elkaar worden gebruikt nader moet bekijken en besluit #34 en #35 voorlopig over te slaan om mij in #36 op het probleem van de structuur te concentreren.
+De onderlinge concurrentie tus­sen de banken om soms tegen elke prijs emissieleider te worden, kan er inder­daad toe leiden dat emissies slechts een matig succes of zelfs een "flop" blijken te zijn.
+Hoewel er diverse instrumenten van invloed zijn op gebouwen en bouwproducten, zoals de Richtlijn betreffende energieprestaties van gebouwen20, de Richtlijn betreffende energie-efficiëntie21, de Verordening voor bouwproducten22, het EU-emissiehandelssysteem23, de Richtlijn industriële emissies24, de Kaderrichtlijn afvalstoffen25 en de Richtlijn betreffende het storten van afvalstoffen26, concentreren zij zich op verschillende productiemiddelen en delen van de levenscyclus en zijn zij voorlopig niet de aangewezen instrumenten voor een aanpak van de gehele levensduur.
+Indien de Raad binnen zes maanden nadat een Lid-Staat de informatie overeenkomstig lid 1 heeft verstrekt, geen besluit heeft genomen over de nodige stappen, mag de betrokken Lid-Staat de stappen nemen die voorshands noodzakelijk zijn om ervoor te zorgen dat hij daadwerkelijk lijndiensten kan blijven onderhouden overeenkomstig arti- kel 5, lid 1.
+De tweede opmerking, mijnheer de Voorzitter is dat dit mijns inziens een kwestie is ten aanzien waarvan het Bureau, uiteraard het Bureau in uitgebreide samen stelling, zich zou moeten oriënteren op de plenaire vergadering en wel of deze de delegatie wil laten gaan.
+Gelet op het decreet betreffende de Universiteiten in de Vlaamse Gemeenschap wordt ook dit vroegere onderscheid tussen universitaire diploma's van een wettelijke graad en universitaire diploma's van een wetenschappelijke graad afgeschaft, doch voor de Franse Gemeenschap geldt dit onderscheid voorlopig nog.
+Voor wat de beroepsopleiding van de bemanningen betreft herinner ik eraan dat de Lid-Staten van de Gemeenschap de Internationale Conventie hebben geratificeerd over de normen voor opleiding, bekwaam heid en wacht van de zeelui, conventie die in 1984 van kracht is geworden en die voor het eerst minimumnormen heeft voorgeschreven voor de opleiding en bekwaamheid van kapiteins, officieren en matrozen.
+De kans is dus groot dat Cancellara niet tot de finish in Madrid erbij zal zijn maar voorlopig kan hij in ieder geval genieten van de leiderstrui die hij vanavond aan mocht trekken.
+Na te hebben vastgesteld, dat het een definitieve beschikking betrof die vatbaar was voor beroep tot nietigverklaring krachtens artikel 173 EG-Verdrag, teneinde de rechterlijke bescherming van verzoeksters' uit verordening nr. 4064/89 voortvloeiende rechten te verzekeren, verklaarde het Gerecht, dat de Commissie niet onjuist had geoordeeld toen zij weigerde de aangemelde operatie als concentratie aan te merken.
+Aangezien de Europese Autoriteit voor voedselveiligheid (EFSA) in haar advies van 25 maart 2009 [2] heeft geconcludeerd dat de aanwezigheid van nitriet in dierlijke producten geen probleem vormt voor de menselijke gezondheid, moeten de betrokken producten voorlopig worden vrijgesteld van toepassing van het maximumgehalte van nitriet in voedermiddelen, terwijl verder onderzoek wordt gedaan naar de nitrietgehalten in die producten en geschikte analysemethoden.
+Dat wel te doen lijkt politiek wellicht sterk progressief, maar is in wezen contraproductief. Ik ben blij met de steun die deze visie bij de Europese Commissie heeft ondervonden.
+Het is immers niet uitgesloten dat de Lid-Staten, voor de op heffing van de verschillen die tussen de in de onderscheidene landen gevoerde politiek be staan, het instrumentarium waarover zij voor de tenuitvoerlegging van deze politiek beschikken anders zullen moeten hanteren.
+De werkelijke hereniging van de stad met een functionerend gezamenlijk bestuur en gezamenlijke politie, volledige bewegingsvrijheid en terugkeer voor de verdreven bewoners blijft voorlopig nog een onvervulde wensdroom.
+Nou, die raad is niet gekomen, die tijd wel, en op dit moment zitten wij dan ook met zeer grote problemen.
+Hierbij zou het om kleine en soepele structuren gaan waarvan de oprichting volledig af zou hangen van de financiële en de principiële beslissingen van de betrokken landen.
+Bovendien is er tot op heden geen heldere definitie van een hoog risico patiënt.
+Vanuit deze optiek zijn wij niet erg gelukkig met het verslag van de heer Topmann.
+113 van het EEG-Verdrag - de Gemeenschap vooralsnog uitsluitend binnen de grenzen van haar eigen wetgeving tot het instrument inzake de nationale behandeling van investeringen zou mogen toetreden en aldus naast de lidstaten moet komen te staan.
+Wanneer iemand zich onder onjuiste omstandigheden tot hartstocht laat verleiden en aan de vleiende, verhittende en listige uitnodiging en aandrang tot het bedrijven van immoraliteit toegeeft, beseft hij op dat ogenblik niet half voor welk verschrikkelijke gevaar hij bezwijkt.
+Tot die tijd is hij vrij te gaan om te leven in Sutala [zie 5.24: 18] de plaats opgezet door Vis'vakarmâ alwaar het voor de bewoners door Mijn bijzondere waakzaamheid onmogelijk is gemaakt dat men psychisch of fysiek gebukt gaat onder saaiheid, uitputting of verslagenheid. (Vedabase)
+Er is dus in eerste instantie behoefte aan openhartigheid, duidelijkheid en besluitvaardigheid, maar altijd met dat ene doel voor ogen: niet de handel stimuleren, maar de bescherming van de volksgezondheid garanderen.
+Waarde collega's, ik ben ervan overtuigd dat wij deze dag kunnen gebruiken om van hieruit de ministers, die in de Raad de eigenlijke verantwoordelijkheid moeten dragen, nogmaals duidelijk te zeggen hoe ontevreden wij zijn over hetgeen er tot nog toe is gebeurd en hoe weinig er tot op heden juist op vervoergebied is gedaan.
+de heer RODRÍGUEZ GARCÍA-CARO deelt mee dat hij de door hem ingediende wijzigingsvoorstellen even zal laten rusten, nu het advies zal worden geherstructureerd.
+Dit betekent dat zij aan de belangrijkste besluiten inzake financiële en monetaire politiek voorlopig niet kunnen deelnemen.
+„Onze Gemeenschap is niet alleen de vrucht van de geschiedenis en de noodzaak, maar ook van de wil.
+Daarom moet op dit gebied vooralsnog met eenparigheid van stemmen worden besloten.
+Ik kom nu tot het verslag-Dührkop Dührkop, waarin - als men de concrete prognoses buiten beschouwing laat - drie doorslaggevende institutionele twistpunten aan de orde komen, die in het kader van het volgende interinstitutionele akkoord opgelost moeten worden.
+ARD/ZDF hebben de contractontbinding voorlopig geweigerd en stellen voor dat T-Mobile het geld gebruikt voor gewone reclame op hun zenders als alternatief ... wordt vervolgd dus!Tijdens de Tour de France worden normaal gesproken de shirts van de verschillende teams aan het publiek verkocht.
+De Commissie is op dit moment medefinancier van een groot demonstratieproject voor 30 bussen met waterstofmotor in tien steden in Europa, dat moet helpen praktische ervaring op te doen met deze nieuwe technologie.
+Daartoe bent u niet bereid, sociaaldemocraten van links en sociaaldemocraten van rechts, voorlopig de gevestigde politieke orde in dit Europa.
+Dit voorstel wordt door de industrie als een strenge maar onvermijdelijke maatregel beschouwd om te zorgen voor gelijke spelregels voor alle betrokkenen, met name voor diegenen die momenteel (nog) niet bereid zijn vrijwillig soortgelijke maatregelen te nemen.
+Je bevindt je tussen alle mogelijke zielen, maar stel je voor hoe mooi het zal zijn wanneer je alleen met je eigen soort bent.
+Bovendien houdt de huidige Chileense regering weinig rekening met de minderheid die afstamt van de oorspronkelijke indiaanse bevolking en zal Chili de overeenkomst over het Internationaal Strafhof in Den Haag dankzij tegenwerking van de senaat voorlopig niet ratificeren.
+Dat is een van de grote beginselen van de politiek.
+Zolang praktische en theoretische opleiding niet zijn geïntegreerd - wat wij misschien nog zullen meemaken - vullen ze elkaar in elk geval aan.
+Overeenkomstig de voorlopig van kracht zijnde Verordening (EG) nr. 216/2008 van het Europees Parlement en de Raad en Verordening (EG) nr. 2042/2003 van de Commissie en behoudens de hierna gespecificeerde voorwaarde, certificeert de [BEVOEGDE AUTORITEIT VAN DE LIDSTAAT (*)] hierbij dat:
+Ondanks onze ambitie om de politieke rol van de Europese Unie in de regio te versterken, zijn wij ons ervan bewust dat de VS op dit moment een beslissende factor voor de bemiddelingspogingen in het vredesproces moeten blijven.
+Dit debat over het verlenen van kwijting heeft enkel betrekking op het deel dat door de Europese Commissie wordt beheerd, omdat het deel van de Europese Investeringsbank voorlopig niet aan kwijting onderworpen is. Op dit aspect zou ik later nog willen terugkomen.
+Bovendien zullen de cliënten uiteindelijk ook van deze lagere kosten profiteren , aangezien in een door concurrentie gekenmerkte markt de banken ertoe worden gebracht hun tarieven voor betalingssysteemdiensten te verlagen en de kostenbesparingen aan hun cliënten door te geven . Het Eurosysteem is van mening dat het GEBG-initiatief van de banken niet louter gericht dient te zijn op het ten opzichte van de
+Voorlopig is Jason stabiel.
+De fraudes moeten in ieder geval in alle sectoren aan de kaak worden gesteld.
+— B4-0269/95 van de heren Mamère en Dell'Alba, namens de Fractie Europese Radicale Alliantie, over het Mochovce-project; ce-project;
+Dan het laatste punt: wanneer we het over Oekraïne hebben, wanneer we het over Rusland hebben, is onze fractie op de middellange termijn zeer sceptisch.
+Onder deze omstandigheden is de enige haalbare maatregel voor dit moment een voorstel om de zwangerschapsverlofregelingen te wijzigen.
+maar je moet ze accepteren, want ik ben hier de volwassene.
+Deel B) van de tabel (geïnde bedragen) betreft uitgaven die voorlopig in het programma waren gehandhaafd in afwachting van het resultaat van de terugvorderingsprocedure en die na inning zijn afgetrokken.
+Maar de commissaris vervolgde - en ik citeer - "Er is voorlopig geen positieve lijst ... maar natuurlijk kan dit in de komende paar dagen veranderen”.
+Momenteel komt het ons wel uit om bepaalde beperkingen te laten bestaan, ze stellen ons in staat het werk te doen om jullie volledig uit hun controle te bevrijden.
+Het voorstel om slechts verplichte minimumtarieven vast te leggen en de aangegeven streeftarieven niet met een verplichting tot convergentie te verbinden, past volgens het Comité dan ook niet in het streven naar harmonisatie. Het herinnert daarbij aan zijn eerdere advies over hetzelfde onderwerp.
+Mijnheer Colombo, tijdens de laatste pre-institutionele conferentie heb ik de toehoorders verzocht om ons
+Overeenkomstig Verordening (EG) nr. 216/2008 van het Europees Parlement en de Raad en de van kracht zijnde Verordening (EG) nr. 1702/2003 van de Commissie en onder de hierna vermelde voorwaarden, verklaart de [BEVOEGDE AUTORITEIT VAN DE LIDSTAAT] hierbij:
+Er zijn momenteel geen initiatieven aan de gang om het gebruik van Hazchem-aanduidingen op Britse voertuigen die gevaarlijke goederen vervoeren te verbieden wanneer deze voertuigen bij uitsluitend binnenlands vervoer zijn betrokken, en vooralsnog is de Commissie niet in enigerlei besprekingen over dit onderwerp verwikkeld.
+Bovendien zijn de meeste EU-lidstaten ervan overtuigd dat voor een militair optreden het jawoord van de Veiligheidsraad van de Verenigde Naties nodig is. Dit is er in ieder geval op dit moment niet.
+In werkelijkheid hebben de Engelsen steeds maar weinig belangstelling voor dit vooruitzicht gehad en zij hebben in de afgelopen jaren, en in het bijzonder gedurende deze maanden van hun voorzitterschap, weinig of niets gedaan om de dingen te veranderen.
+Wij stemmen vóór het verslag-Spinelli en allen die opkomen voor een dynamische samenwerking, verzoeken wij hetzelfde te doen.
+Dit certificaat bevestigt dat de bovengenoemde persoon de hieronder genoemde theoretische elementen (**) en/of praktijkelementen (**) van de hieronder vermelde cursus voor een specifiek luchtvaartuigtype heeft afgerond en de betreffende examens met goed gevolg afgelegd in overeenstemming met de geldende Verordening (EG) nr. 216/2008 van het Europees Parlement en de Raad en Verordening (EG) nr. 2042/2003 van de Commissie.
+De heer Amaral (LDR), voorzitter van de Commissie vervoer en toerisme. — (FR) Mevrouw de Voorzitter, de Commissie vervoer en toerisme ziet er geen enkel bezwaar in het verzoek om urgentverklaring in te willigen. gen.
+Het blijft voorlopig nog wel even behelpen met Internet respons tijden, maar er zijn goede alternatieven.
+Zeg nooit nietwaar, hou ik mijzelf altijd voor, maar laat de gevolgen zien, dat houdt in ieder geval de gemoederen bezig, en daarmee is mijn burgerlijk geweten weer even gesust, want moet ik wakker liggen van de constatering dat er niet genoeg mensen naar mij luisteren om hen die hunkeren naar goede raad te doen besluiten dat het zo goed is of juist niet? Waarbij ik dan van harte hoop dat als nettowinst het inzicht overblijft dat het moeilijk, zo niet onmogelijk is om betrokkenheid objectief te meten, en ik kan het weten, want ik probeer al jaren het omgekeerde te bewijzen.
+De opstelling staat tijdelijk bij Plant One Rotterdam en zal uiteindelijk worden geplaatst op de Green Chemistry Campus in Bergen op Zoom.
+Als Parlement hebben we onze prioriteiten voorlopig gericht op ernstige inbreuken.
+De heer Harrison (PSE). - (EN) Mijnheer de Voorzitter, de heer Gollnisch heeft de term herriemaker gebruikt, en ik vind het altijd amusant om te zien dat de leden van de Technische Fractie Europees Rechts hier de grootste herrieschoppers zijn, en schelden en tekeer gaan zoals de heer Gollnisch zojuist heeft gedaan.
+De heer Hänsch. — (DE) Mijnheer de Voorzitter, zou men dan kunnen nagaan of de notulen in de ver schillende talen wel identiek zijn ?
+Ons compromis verzekert ons voorlopig ook van de nodige middelen om aan onze verplichtingen in Kosovo en Palestina te kunnen voldoen.
+Aan de orde is de resolutie in het verslag (doe 1537/80) van mevrouw Cresson, visserij voor de kust van het Franse departement Guyana.
+Aan het slot van de diepgaande besprekingen van de Raad heeft het voorzitterschap echter geconstateerd dat er in dit stadium geen gekwalificeerde meerderheid bestond voor de laatste versie van het compromis van het voorzitterschap.
+Gezien deze situatie en aangezien een diepgaande analyse van de juridische situatie in de lidstaten ontbreekt, moet er, althans op dit ogenblik, wellicht de voorkeur aan worden gegeven de beslissingen betreffende deze personen van het toepassingsgebied van eventuele regelgeving inzake de wederzijdse erkenning uit te sluiten.
+Zij hebben nu de in de politieke leiding van de contra's nieuwe, voorlopig laatste, „vrijheidsstrijder", de heer Bermudes, benoemd, die echter vanwege zijn strijd tegen de vrijheid van het Nicaraguaanse volk aan de zijde van Somoza zeer bekend is.
+Mijn fractie vindt dat op dit moment mobiele telefonie nog niet moet worden opgenomen in de universele dienstverlening vanwege de grote verschillen tussen de EU-landen, maar we moeten wel die deur openhouden want terecht is er sprake van convergentie.
+Voorlopig blijft ons acceptatiebeleid voor de chemische sector over het algemeen positief voor alle grote deelsectoren (basischemicaliën, petrochemicaliën, fijne en gespecialiseerd chemicaliën).Dit geldt ook voor de farmaceutische sector.
+Dat kan kloppen, want hij is nog niet gepleegd.
+Vooralsnog blijven de pijpen van Takashi voorbeelden van moderne pijpen in oude technieken als is dat geen garantie dat het om uniek en eenmalig werk gaat. Of het voorwerpen zijn die in de tijdslijn een schakel tussen de ene en de andere ontwikkeling zijn, dat zal de tijd moeten leren.
+De reparaties en het onderhoud van het materieel worden voorlopig nog in Groot-Ammers uitgevoerd.Maar de bouw van een moderne werkplaats en kantoor wordt meegenomen in de plannen voor permanente huisvesting op Schelluinen-West.
+[NAAM EN ADRES VAN DE ONDERNEMING]
+Zouden we een Bergman, Renoir, Fellini, Wenders en anderen hebben gehad zonder hun eerste films?
+Voor nu staat dit ter discussie als concept en wat het concept betreft, heeft ongeveer twee derde van de lidstaten hun steun uitgesproken en minder dan een derde heeft twijfel uitgesproken of is ertegen.
+Er bestaat inderdaad een studieproject met betrekking tot de wateraanvoer van de Rhône naar Catalonië. Maar dit project schept geen verplichtingen, althans niet in deze fase, voor de Franse autoriteiten, en overigens ook niet voor de Spaanse.
+Er woedt in Nederland een verhitte discussie rond die lijn omdat de aanleg voor de omwonenden ongetwijfeld betekent dat de kwaliteit van leven achteruit gaat, want de bedoeling is dat daar iedere vier minuten een goederentrein langs dendert.
+1.7 Momenteel is de Overeenkomst plurilateraal: er zou een multilaterale overeenkomst van moeten worden gemaakt waarbij nog meer landen zich zouden aansluiten en in het kader waarvan overgangsmaatregelen zouden worden genomen met betrekking tot compensaties, preferentiële prijzen en de invoering van organisaties of bedrijfstakken en van nieuwe drempels.
+In de eerste drie kwartalen van 1998 bleven de loonstijgingen beperkt tot ongeveer 1 % op jaarbasis , tegen 2,6% in 1997 , wat te maken heeft met de afwezigheid van opwaartse loondruk in de meeste landen van het eurogebied , hoewel in enkele landen recentelijk tekenen van versnelling zijn vastgesteld .
+Mevrouw Crawley (S). — (EN) Mijnheer de Voorzitter, volgens mij willen mevrouw Oomen-Ruijten en ik precies hetzelfde: een duidelijke verklaring van de Commissie en vervolgens een reactie daarop van dit Parlement.
+Het lijkt voorlopig erg moeilijk om over deze materie een uitspraak te doen.
+Er is hier echter sprake van een technisch knelpunt: wij beschikken momenteel nog niet over een erkende norm of methode voor de berekening van het gewicht van de vluchtige organische stoffen die in de deklaag achterblijven.
+In hotel Homan werden we voorlopig ondergebracht.
+Ze zeiden dat ik tijdelijk geen klanten meeneem naar de bankkluis.
+Hoe moeilijk het ook voor de Duitsers moge zijn dit te geloven, toch is het uit de grond van ons hart gesproken.
+Voorlopig is de achtergrond van evolutie... nog een onopgelost raadsel ”.
+Dat heeft de Commissie juridische zaken en rechten van de burger niet gesteund en dat zal ook de Fractie van de Europese Volkspartij niet steunen.
+In landen waar specifieke wetgeving zal worden aangenomen, maar ook in landen waar voorlopig de bestaande omroepregels op dit nieuwe dienstenplatform van toepassing zijn, dienen de hoofdkenmerken van het algemene regelgevingskader voor mobiele tv te zijn: duidelijkheid, transparantie en efficiëntie van de procedures.
+Bijgevolg is het verkieslijk om, net zoals voor de luchtvaartmaatschappijen, deze sector voorlopig terzijde te laten maar de zaak wel te blijven volgen.
+Na een bezoekje aan de fysiotherapeut luidt het vonnis dat ik een blessure aan mijn rechterenkel/achillespees heb opgelopen. Ik mag voorlopig niet hardlopen en moet ieder uur mijn kuiten strekken, wat me af en toe vreemde blikken oplevert.
+Agent Russell en Bunk Moreland van Moordzaken... bekijken bij ons de havendatabase... op zoek naar een patroon dat op smokkel kan duiden.
+Wij hebben hier te maken met twee onafhankelijke instellingen, die hun autonomie voor het moment willen bewaren.
+Jupiter staat voorlopig nog in Stier, en beheerst de Noordknoop (het bovenstaande was een beetje naar aanleiding van de Zuidknoop:-).
+Voorlopig is deze door de auteur/uitgever toebedeeld aan het ‘Save the Gouldian Fund’ in Australië, opgericht door Mike en Elisabeth Fidler. Zij doen, samen met een team enthousiastelingen, al het mogelijke om te voorkomen dat de Gouldamadines in hun habitat uitsterven.
+Hetgeen Jezus tijdelijk in handen van de Vader gaf, moet het geest-duplicaat zijn geweest van het vroege werk van de Richter bij de vergeestelijking van zijn sterfelijke bewustzijn, zodat de transcriptie van de menselijke ervaring naar de woningwerelden kon worden overgebracht.
+Dergelijke zaken zullen door jullie worden begrepen wanneer jullie volledig bewustzijn hebben bereikt maar op het moment is dit teveel gevraagd van jullie beperkte verstand.
+Omdat ik overmorgen al richting Dublin vertrek was vandaag in feite de voorlopig laatste gelegenheid om een vervanger voor mijn boot te vinden.
+Op dit moment hebben jullie echter nog steeds veel met tijd te maken, en wij zijn ons bewust dat het schijnbare uitstel in het starten van onze vele projecten jullie zorgen baart.
+In de acute reclamebehoefte kan voorlopig alleen door de openbare omroeporganisaties worden voorzien.
+Gezien voorgaande algemene overwegingen en bijzondere opmerkingen acht het Comité het voorlopig nog aanvaardbaar dat de speciale groepsvrijstelling voor de afzet van motorvoertuigen wordt gehandhaafd, als tenminste de garantie wordt geboden dat de in Verordening 1475/95 vastgelegde voorwaarden en maatregelen ook daadwerkelijk volledig worden toegepast.
+Omdat ik overmorgen al richting Dublin vertrek was vandaag in feite de voorlopig laatste gelegenheid om een vervanger voor mijn boot te vinden. Noel verwees me naar een bandenhandel, waar ik voor niks vier afgedankte tractorbinnenbanden uit een oude kar mocht zoeken. Bij de DIY, Engels voor DHZ, kocht ik een in China vervaardigd voetpompje voor weinig, en twee bandenlapsetjes.
+Tegen de achtergrond van een aanhou­dend hoge werkloosheid, de verder toe­nemende sociale uitsluiting in de EU en de toetreding van de nieuwe Lid­Staten had EUR­OP News een interview met de heer Pádraig Flynn, commissaris van Sociale Zaken en Werkgelegenheid, over de toekomstige opgaven van het Europees sociaal beleid.
+Ik bedoel, waarde collega's, dat wij onze beginselen trouw blijven als wij vasthouden aan het beginsel dat de Britse restitutie aan de uitgavenkant behoort te staan, doch tijdelijk aanvaarden dat zij gedurende twee jaar onder inkomsten wordt ingeschreven.
+Met uw toestemming wil ik Mr. Barrow vertellen dat hij kan blijven voorlopig althans.
+Deze beslissing, die oorspronkelijk door de rapporteur werd voorgesteld, hebben wij uitgesteld en wel na onder andere een gesprek met de Rekenkamer, omdat wij van mening waren dat wij principieel voor alle satellieten een regeling voor de rechtvaardiging van hun begroting dienen te vinden.
+Desalniettemin vindt de commissie het geen goede zaak dat er nu een afwijkende situatie ontstaat, waarbij sommige ASEAN-landen bilaterale overeenkomsten met ons hebben die voorwaarden inzake de mensenrechten omvat ten, terwijl de globale EU-ASEAN overeenkomst niet zulke voorwaarden omvat.
+Ja, er is een cd van TOTEM beschikbaar. Deze vindt u in onze onlineboetiek of in de geschenkenwinkel bij de show. De dvd is echter nog niet beschikbaar. Er is nog momenteel nog geen releasedatum vastgesteld.
+Met name over opleidings- en scholingskwesties lijkt veelal wel overeenstemming mogelijk.
+Het wordt echter onderkend dat er overgangsmaatregelen moeten komen voor de nieuwe lidstaten en dat er voor hen op dit moment nog geen gedetailleerde minimumaantallen dienen te worden aanbevolen voor de steekproefsgewijze controle op de aanwezigheid van dioxinen, furanen en dioxineachtige PCB’s in levensmiddelen,
+Redeneer niet te veel bij analogie met de manier waarop de nationale parlementen hun bevoegdheden hebben veroverd !
+Het is mogelijk dat de Gemeenschap op dit ogenblik niet meer kan doen dan wat reeds via een constructief re gionaal beleid wordt gedaan.
+Jammer genoeg konden wij het op het vlak van de marktkapitalisering, voorlopig althans, slechts eens worden over een bedrag van 350 miljoen euro.
+Daarom moeten wij ons eerst bezighouden met de rechten die in de huidige stand van zaken kunnen worden verleend.
+Voor het moment hebben we niet veel meer dan een tekening van een zekere J. Schouman die, wellicht ook getroffen door zo maar een mooi schip, zijn tekengerei ter hand nam en dit schip vereeuwigde.
+Ik heb Glenn geschorst tot dit is uitgezocht.
+Dank zij deze projecten zijn in 1988 naar schatting 44 554 arbeidsplaatsen geschapen of in stand gehouden.
+De interesttarieven van deze leningen zullen worden verlaagd middels een rentesubsidie van 3% voor de duur van 12 jaren ten laste van de begroting van de Gemeenschap.
+2007 begin: Politieke situatie in Sri Lanka is dusdanig dat de studenten van het Nova College niet afgereisd zijn.
+Er is niet de minste tegenstelling tus sen beide uitspraken. Ik spreek de wens uit dat men zal inzien dat ons onvermogen om significante cijfers aan te geven niet de mogelijkheid uitsluit dat wij ons een forse inspanning getroosten om het te kunnen doen.
+Voorlopig zijn de vooruitzichten voor een Europese defensieverantwoordelijkheid natuurlijk nog niet zo erg gunstig.
+Ook wilde ik een opmerking maken over de politieke samenwerkingen — alvorens hier later op terug te komen — allereerst zeggen hoezeer wij het betreuren dat de samenwerking de laatste tijd zo teleurstellend is geweest op een punt waarvan U zelf op het belang hebt gewezen, namelijk de onvoldoende bijdrage van de Lid-Staten van de Gemeenschap vergeleken met het streefcijfer van 0,7 % van het bruto nationaal pro dukt waarover tijdens de buitengewone vergadering van de Verenigde Naties zo uitvoerig is beraadslaagd.
+We kunnen nu elk jaar beschikken over een bedrag van 1 miljard euro.
+Het Verdrag ter instelling van de Europese Gemeenschap, met name artikel 6, verbiedt niet zo'n gedifferentieerd tarief, mits dit in verhouding staat tot de kosten, zoals de reeds genoemde richtlijn 97/67/EG voorschrijft.
+Uw werk mag zo goed zijn als de "Lentesneeuw" maar als het voorlopig alleen genoegen verschaft aan enkelingen en de massa's nog steeds "Het lied van de arme dorpelingen" zingen, dan bereikt u er niets mee door ze alleen te berispen in plaats van te proberen hun niveau te verbeteren.
+Ook al ben ik momenteel, in beginsel, vrij positief, toch wacht ik de uitslag van de stemmingen af alvorens een definitief standpunt in te nemen.
+Baron Crespo (PSE). - (ES) Mevrouw de Voorzitter, hoewel in de Spaanse vertaling van de woorden van de heer commissaris een onpersoonlijke se gebruikt werd, ben ik toch van mening dat hij mijn vraag beantwoord heeft.
+PLECHTIGE OPENINGSZITTING een wetenschappelijke, technische en economische ontwikkeling eigen te maken, waar door sommige bevolkingsgroepen in andere staten en gemeenschappen reeds tot grotere welvaart en macht zijn gekomen.
+In het oorspronkelijke ontwerpverslag had de rapporteur voorgesteld drie verschillende reserves te vormen; een reserve voor begeleidende maatregelen, wegens het ontbreken van een evaluatieverslag van de Commissie over de feitelijke doeltreffendheid, en een reserve voor de lijnen die nog geen rechtsgrondslag hebben, omdat de rapporteur van mening is dat als de Raad bij de uitvoering van nietverplichte uitgaven aandringt op het bestaan van een rechtsgrondslag, hij diezelfde stelregel zou moeten hanteren als het om de verplichte uitgaven gaat (ten aanzien waarvan de Raad zich blijkbaar niet om die regel bekommert).
+Verder wil ik net als de rapporteur benadrukken dat we thans nota dienen te nemen van de rekeningen over het begrotingsjaar 1996, zodat het onderzoek naar de rekeningen over latere jaren kan worden voortgezet.
+Vooralsnog is de enige beurs in de EU waar dit mogelijk is de Alternative Investment Market (AIM) in Londen, hoewel er nu ook een initiatief van Euronext is.
+Ten einde deze doelstellingen te bereiken steunt de Gemeenschap de inspanningen van de Lid-Staten op het gebied van de sociale zekerheid en sociale bescherming van de werknemers en vult zij deze aan.
+Wat kunnen we met dat overschot doen, hoe kunnen we die energie nuttig gebruiken?"Hoe het team die vraag uitwerkt, blijft vooralsnog geheim.
+Deze initiatieven zijn voortgekomen uit de overeenstemming die de Europese Raad in september 2008 in het kader van het Europees pact inzake immigratie en asiel heeft bereikt, namelijk dat de vestiging op het grondgebied van de Europese Unie van personen die onder bescherming zijn geplaatst van het Bureau van de Hoge Commissaris van de Verenigde Naties voor vluchtelingen voorlopig op vrijwillige basis kan doorgaan.
+Op dit gebied hanteert de ECB voorlopig een kortetermijnaanpak , dat wil zeggen dat statistieken worden gecompileerd met gebruikmaking van op nationaal niveau beschikbare informatie .
+Daarnaast zijn er nog verscheidene andere punten waarover de meningen verschil len, maar voor het ogenblik laat ik het bij deze twee kwesties, die immers het belangrijkst zijn.
+En dan zien we verder.' Hij beseft dat hij in de klauwen zit van een intrigant van de Geheime Politie die zijn portefeuille gaat plunderen, maar geeft zich nog niet gewonnen: 'Ik ken jullie soort mensen.
+Dat bestond, onder commando van majoor C.F.
+Een voorstel om voorlopig vanuit het oude reservoir te continueren is afgewezen.
+Inderdaad is, zoals mijn collega's en ikzelf reeds opmerkten, voor de onderhavige ontwerprichtlijn 95 à 98% van de door het Parlement ingediende amendementen overgenomen door de Commissie, hetgeen iets unieks is in de geschiedenis van ons Parlement, en 80% door de Raad, hetgeen eveneens een record is.
+In het licht van dit risico en het feit dat uit een ten behoeve van DG Concurrentie verrichte studie (Lademann) blijkt dat verbruikers niet erg worden aangetrokken door de gedachte een auto te kopen van een echte internetdistributeur lijkt het momenteel niet gepast de fabrikanten te dwingen internetbedrijven volledige en onvoorwaardelijke toegang tot distributienetwerken te verlenen.
+In de eerste plaats wordt een „Comité voor farmaceutische specialiteiten" opgericht dat tot taak heeft de samenwerking tussen de bevoegde overheden te verzekeren ten einde in de mate van het mogelijke afwijkende besluiten te voorkomen ten aanzien van de vergunningen voor het in de handel brengen, die momenteel op nationaal niveau blijven.
+ONDERSTREEPT dat het systeem van bilaterale overeenkomsten tussen lidstaten en derde landen voorlopig nog de belangrijkste basis voor de internationale betrekkingen in de luchtvaartsector blijft.
+En lazers, die hyperbacteriën, al die smerigheid, die, zolang als 't duurt, verstopt ligt in kluizen?
+overwegende, dat met de door artikel 54. lid 3. sub g) voorgeschreven coördinatie een aanvang is gemaakt door richtlijn 68/151/EEG (4) die de openbaarmaking, de rechtsgeldigheid van de door de organen aangegane verbintenissen alsmede de nietigheid regelt voor naamloze vennootschap pen, commanditaire vennootschappen op aan delen en vennootschappen met beperkte aansprakelijkheid ; overwegende dat met de door artikel 54, lid 3, sub g). voorgeschreven coördinatie een aanvang is gemaakt door richtlijn nr. 68/151/EEG van 9 maart 1969 die de openbaarmaking, de rechtsgeldigheid van de door de organen aangegane ver bintenissen alsmede de nietigheid regelt voor naamloze vennootschappen, commanditaire ven nootschappen op aandelen en vennootschappen met beperkte aansprakelijkheid ; overwegende dat de coördinatie van de nationale wetgevingen inzake deze kapitaalvennootschappen werd voortgezet door richtlijn 78/660/EEG van de Raad (5) betreffende de jaarrekening van overwegende dat de coördinatie van de nationale wetgevingen inzake deze kapitaalvennootschappen werd voortgezet door richtlijn nr. ... van ... (2) over de jaarrekening : dergelijke vennootschappen en richtlijn 83/349/ EEG (6) betreffende de geconsolideerde jaarre kening ;
+Vooralsnog zullen de meesten behoorlijk gecharmeerd zijn van wat de band op 'Slavior' laat horen.
+Door de mogelijke problemen die deze transactie in mededingingsopzicht zou kunnen opleveren op de verzekeringsmarkt in Duitsland, zijn Allianz en Schweizer Rück overeengekomen dat laatstgenoemde voorlopig haar deelneming in Vereinte zal aanhouden en een handelsbank de opdracht zal geven een koper te zoeken die de gevraagde
+Voorlopig doen wij het zonder.
+Voor ons is onder meer belangrijk dat de VS bereid zijn alle bilaterale kwesties via overleg en niet via WTO-geschillenbeslechting op te lossen. Voor ons Europeanen staat toch zeker op de voorgrond dat de geografische herkomstbenamingen ook in de Verenigde Staten de bescherming genieten die ze verdienen.
+Ondanks alle mooie woorden en de genomen beslissingen om de Stichting tot verbetering van de leef- en arbeidsomstandigheden beter te laten functioneren, blijf ik voorlopig mijn bedenkingen houden.
+Ook het sociaal beleid wordt in communautair verband verder uitgebouwd, weliswaar vooralsnog zonder Groot-Brittannië.
+Momenteel kunt u gebruik maken van de ZeroGS v0.97.1 plugin, dit is een nieuwe DirectX 9 graphics plugin en heeft een grafische kaart nodig die pixel shaders 2 ondersteund om te werken .
+Eigenlijk hopen wij dat het uiteindelijk ook in het dispositief zal worden opgenomen, maar voorlopig nemen wij er genoegen mee dat het in de overwegingen staat.
+Wegens de toestand van bepaalde delen van hun wegennet zijn deze twee landen tijdelijk niet gehouden
+nadat de mogelijkheden om ambtenaren op tijdelijke posten te benoemen binnen de instelling zijn onderzocht, bepaalde personen te vervangen die op dat ogenblik niet in staat zijn hun ambt te vervullen, namelijk:
+In het portfolio worden voorlopig de volgende documenten opgenomen: het Europees Curriculum Vitae – de ruggengraat van het portfolio –, het Diplomasupplement, de MobiliPass (een uitgebreider Europass-beroepsopleidingen), het Europees Taalportfolio, en het Certificaatsupplement.
+De inhoud zelf van de ontwerpverordening vereist de volgende opmerkingen : het toepassingsgebied van de verordening is beperkt, zoals uit paragraaf 4 van dere solutie blijkt.
+Bijgevolg lijkt het bij de huidige stand van zaken niet wenselijk de nieuwe communautaire aanbestedingsregeling op de lucht vaartmaatschappijen toe te passen.
+Het werkterrein van de nieuwe commissie bestaat voorshands uit de volgende 5 velden: managementproblematiek, de so ciale bedrijfsproblematiek, de technischeconomische bedrijfsproblematiek, de distributieproblematiek en de samenwerkingsproblematiek in sectoraal verband.
+Ten tweede spreken wij met betrekking tot defensie van een Europese defensie-identiteit. Voorlopig blijft het bij woorden, maar hopelijk komen er snel concrete daden.
+Ik ben zo eerlijk geweest de grote baas van Coca Cola in Atlanta, de hoofdsponsor, erop te wijzen dat hij er geen belang bij kan hebben dat achter elke grote milieuaantasting Coca Cola-reclameborden staan.
+Voorlopig is deze door de auteur/uitgever toebedeeld aan het 'Save the Gouldian Fund' in Australië, opgericht door Mike en Elisabeth Fidler.
+Verklaring van het voorzitterschap namens de Europese Unie over het onlangs door de LTTE bekendgemaakte voornemen voorlopig niet meer deel te nemen aan de vredesonderhandelingen in Sri Lanka
+(2) Overwegende dat volgens de conclusies van de Europese Raad de bijstand waarin deze verordening voorziet vooralsnog enkel wordt toegekend aan de tien kandidaat-lidstaten uit Midden- en Oost-Europa;
+Mijn fractie vindt dat op dit moment mobiele telefonie nog niet moet worden opgenomen in de universele dienstverlening vanwege de grote verschillen tussen de EU-landen, maar we moeten wel die deur openhouden want terecht is er sprake van convergentie.
+Gezien de beperkte begrotingsmiddelen die naar ver wachting voor acties in de komende jaren beschikbaar zullen zijn, heeft de Commissie het passend geacht de administratieve structuur zo eenvoudig mogelijk te houden.
+Ik ben van mening dat als amalgaamafval in tandheelkundige praktijken naar behoren wordt afgescheiden en op een verantwoordelijke, veilige manier kan worden opgeslagen, zoals in het verslag wordt voorgesteld, er voorlopig geen noodzaak is om amalgaam als vullingmateriaal in de ban te doen.
+De kredieten voor de administratieve uitgaven be lopen 4 904,294 miljoen euro, te weten 3,8 % meer dan in 2000, waardoor 400 nieuwe ambten voor de Commissie kunnen worden gefinancierd, alsook het externe personeel dat nodig is voor de voorlopige overname door de Commissie van de activiteiten van de bureaus voor technische bijstand, die op termijn zullen worden gesloten.
+Nee, nog even niet.
+Voor dit moment verwacht ik weinig ruimte om verandering te brengen in het onderscheid tussen verplichte en niet-verplichte uitgaven.
+Dit Parlement heeft voortdurend de centrale of zelfs prioritaire positie van het regionale ontwikkelingsbeleid bevestigd.
+Naast dit project be studeren we de mogelijkheden van een efficiënte verspreiding van informatie die onontbeerlijk is bij het beter op elkaar af stemmen van het aanbod van en de behoefte aan beroepsopleidingen in het MKB.
+Uiterlijk op […] zal NLB ook haar deelneming in […] volledig afstoten.
+Voorlopig hebben wij kunnen zien dat het werkte.
+Dat laten we voorlopig zo. De andere verwondingen zijn dringender.
+Het speciale karakter van de Gemeenschap en de wijze waarop de bevoegdheden tussen haar en de Lid-Staten zijn verdeeld kunnen problemen opleveren voor haarzelf en haar partners.
+Dat betekent dat voor nu mijn piranha-avontuur voorbij is, maar ik ben er absoluut zeker van dat in de toekomst er weer een of meer piranha's in een van mijn aquaria zullen rondzwemmen! terug top
+Aan­ gezien de uitspoeling van fosfaat in het doorwortelde profiel weinig of geen samenhang vertoont met de bemesting, is het zoeken naar een criterium voor de belasting van het oppervlaktewater langs deze weg voorlopig niet relevant.
+Dat is ons inziens een aspect waar geen twijfel over mag bestaan, de erkenning dat het hier alleen de eigen bevolking aangaat, als deze eenmaal de democratische vrijheden verworven heeft.
+De nadelen zijn alsnog groter dan de voordelen.
+Een half uur lang proberen de twee telkens nieuwe variaties voor een maar 5 seconden durende passage voor een nummer dat voorlopig "BBB" heet.
+Dus daarom houden wij voorlopig ons kruit droog op dit punt en zullen wij in dit stadium nog niet voor dit amendement stemmen.
+De thermische sokken kunnen voorlopig in de kast blijven.
+Overwegende dat thans kleine hoeveelheden specifieke niet-ionische oppervlakte-actieve stoffen met een geringe mate van biologische afbreekbaarheid voor bepaalde doeleinden moeten worden aangewend wegens technische problemen en ter voorkoming van andere ongewenste gevolgen voor de hygiëne en voor het milieu ; dat evenwel de mogelijkheid moet bestaan om het gebruik van deze in geringe mate afbreekbare oppervlakte-actieve stoffen te herzien op grond van de vooruitgang van de techniek ;
+Aan de duikbotenplaag is voorlopig een einde gekomen.
+Politieke stabiliteit op de Balkan, mevrouw de Voorzitter, blijft vooralsnog een precair goed!
+Vooralsnog heeft Century Media met deze opnames de eerste slag gewonnen, dus deze DVD is verplichte kost voor de Iced Earth fans.
+Volgens de adepten van deze „school" wordt in de wet het recht op een bepaald tijdstip slechts voor lopig tot uitdrukking gebracht; eenmaal gepubliceerd, zou zij zich volledig aan de wil van de wetgever onttrekken.
+Vertrouw op het moment je intuïtieve krachten en volg je ingevingen.
+de resul4 « Asset prices and banking stability » , ECB , april 2000 . De tenuitvoerlegging van preventieve maatregelen op het nationale niveau wordt niet alleen bevorderd door het verzamelen van informatie over marktontwikkelingen en over de risico 's ten aanzien van het bankwezen en de financiële stabiliteit maar ook door samenwerking en informatie-uitwisseling op het terrein van toezichtprocedures .
+De politieke richting die de Commissie sociale zaken heeft aangegeven is in ieder geval duidelijk gebleven en zal dat ook blijven tijdens de stemming in tweede lezing.
+Voorlopig kan je mij beschouwen als je mama.
+Bovendien is in het TEP-document momenteel geen enkele termijn aangegeven waarmee de gedachten van degenen die over sectorvraagstukken onderhandelen in een bepaalde richting zouden kunnen worden geholpen.
+Korporaal, en dat ben je nu nog, ik wil je ergens op wijzen.
+Na afloop kwam een ondernemer bij mij met de melding dat hij bij nader inzien zijn zaak toch niet zal verkopen en misschien zal opteren om in een tussenfase met een investeerder in zee te gaan om het bedrijf verder te professionaliseren."
+Onverminderd de in punt 12 van deze bijlage bedoelde goedgekeurde regelingen moet een vaartuig dat tijdelijk wordt ingezet voor de visserij op tonijn of tonijnachtigen in het verdragsgebied buiten de onder nationale jurisdictie vallende wateren, halt houden wanneer het passende sein uit het internationale seinboek is gegeven door een vaartuig dat een inspecteur aan boord heeft, tenzij het daadwerkelijk visserijactiviteiten beoefent, in welk geval het moet halt houden zodra deze activiteiten beëindigd zijn.
+Wij achten het van essentieel belang te beklemtonen dat op grond van de tijdelijke machtiging die vanaf 3 oktober aan de Commissie wordt verleend, slechts maatregelen mogen worden genomen die binnen de in het kader van de overgangsmaatregelen van de Commis sie aangegeven grenzen blijven, hoe graag wij ook een compromis zouden sluiten, maatregelen die te zijner tijd door de bevoegde instanties aan een grondig onderzoek zullen worden onderworpen en waarover het Europese Parlement een standpuntzal innemen.
+Enerzijds groeit de markt snel, anderzijds kunnen de nieuwe lidstaten een lichte schok veroorzaken op de EU-houtmarkt en in de arbeidsintensieve, mechanische houtverwerkende sector omdat de houtprijzen en arbeidskosten in de MOE-landen vooralsnog laag zullen blijven.
+In het dorp van Dong Van u kunt genieten van een prachtige en kleurrijke markt op zondag, op dit moment heel inheemse, Hoewel weer in mijn magische bal een daling van authenticiteit en een toename van de winkels van toeristische sieraden in een paar jaar, het tempo van de bouw in het dorp is waanzinnig, vooral rond de markt. La burbuja inmobiliaria ha llegado Vietnam.
+In dit verband moet met betrekking tot paragraaf 1 en 2 van de ontwerpresolutie worden gezegd dat uit de bekende schattingen van de zadelrobbenpopulatie in het noordwestelijk gedeelte van de Atlantische Oceaan niet — tenminste niet nu — mag worden geconcludeerd dat deze soort in de gebruikelijke zin van het woord bedreigd is, dat dat wil zeggen op het punt staat uit te sterven.
+De heer Delors zal komen zeggen dat men de Verenigde Staten niets kan weigeren, ook niet de afbraak van het gemeenschappelijk landbouwbeleid.
+Ik denk dat dat de juiste keuze is, want zo'n controversieel besluit zal vooralsnog zo dicht mogelijk bij de burger, en dus door lidstaten of door regio's, moeten worden genomen.
+De overeenkomst uit 1989 is echter nog steeds van toepassing op de betrekkingen tussen Wit-Rusland en de Gemeenschap.
+Mijnheer de Voorzitter, terwijl de heer Schwartzenberg meent dat de zwaarte van de straf in zekere zin moet worden afgewogen aan de ernst van het misdrijf, ben ik ervan overtuigd dat dit er niets mee te maken heeft.
+Op het moment is er geen startpagina dus als u toegang wilt tot de eindeloze mogelijkheden dat het biedt, dan moet u eerst lid worden.
+Het zal geen vooraanstaande universiteit worden maar we hebben open universiteiten en ander vervolgonderwijs.
+Maar op dit moment moeten jullie je lichaam nog onderhouden en je energie uit jullie traditionele voeding halen, al kunnen jullie proberen veranderingen in te voeren die jullie meer bij het natuurlijke en zuivere voedsel brengen.
+Dan ook zou het liedje dat wij telkens tijdens de kwijtingsprocedure moeten zingen, over de onvoldoende uitvoering van de begroting, een heel andere klank krijgen.
+Wij zijn Sue zeer dankbaar voor wat ze allemaal voor de kinderen en ons heeft gedaan. Haar collega Nilar, die verantwoordelijk is voor het jongensweeshuis, neemt voorlopig haar taken waar tot er een opvolger is gevonden.
+Mijnheer de Voorzitter, het is mijn inziens uitstekend dat zowel de Europese Commissie als de Raad, en nu ook ons Parlement, zich met deze materie bezighouden en graag wens ik mevrouw Wieczorek-Zeul geluk met haar uitvoerig gedocumenteerd verslag, dat mijn instemming heeft.
+Uitzonderingen op de algemene regel: de in artikel 16, lid 1, van de terugkeerrichtlijn vastgestelde afwijking die de lidstaten toestaat om in bewaring gestelde personen voorafgaand aan hun verwijdering in uitzonderlijke gevallen onder te brengen in normale gevangenissen, moet restrictief worden geïnterpreteerd.
+Voorlopig lijkt de bedrijfsarts gegronde redenen te hebben om te twijfelen aan het puur bedrijfsgezondheidskundig-zijn van de adviezen die de werkgevers en werknemers hem geven.
+Voorlopig beschikken we alleen nog maar over de hoofdlijnen van de overeenkomst.
+In eerste instantie geïmporteerde olie- en eiwithoudende producten waarvan we niet weten of het om genetisch gemanipuleerde soorten gaat of niet.
+De Europese burgers nemen een centrale plaats in deze op handen zijnde verandering in; zij zijn het die deze over­gang, die uniek is in de wereldgeschiedenis, op de rails moeten zetten.
+Op dezelfde datum heeft hij de richtsnoeren voor de economische politiek van de Helleense Republiek voor 1982 (5) vastgesteld en aldus zijn besluit van 14 december 1981 (4) aangevuld.
+Sinds begin 1993 moeten ook de werknemers bijdragen betalen aan de verzekering.
+Dit beleid van de Commissie tijdens het verkoopseizoen 2001-2002, waarbij zij alles op zijn beloop liet en de genoemde invoer toestond, heeft een permanent karakter gekregen in de - vooralsnog afgezwakte - vorm van tariefcontingenten voor graansoorten waarvan wij een productieoverschot hebben.
+Voor het eerst treffen wij dus een regeling waardoor de Gemeenschap bewust een ongelijke fiscale behandeling van de burgers aanvaardt.
+Ofwel bereiken wij een akkoord over transit en dan is de hele sector erbij, ofwel is dat niet het geval en dan verdedig ik namens de Commissie dat de hele transportsector er tot nader orde dient uit te blijven totdat wij die hindernis gezamenlijk hebben kunnen nemen.
+nog geen aanvraag voor volledig lidmaatschap van de AICESIS, gelet op het feit dat het Comité geen nationaal maar een regionaal orgaan is en dat moeilijk aan de benodigde extra middelen is te komen;
+Voorlopig ziet het Eurosysteem geen noodzaak deze categorie in Ierland gebruikte activa uit te breiden naar alle landen van het eurogebied, aangezien leningen met woninghypotheken als onderpand reeds in veel landen in geëffectiseerde vorm als onderpand beleenbaar zijn, hetzij als effecten met woninghypotheken als onderpand of in de vorm van instrumenten van het Pfandbrief-type.
+Vooralsnog zijn er vanuit de overheid geen generieke voorlichtingscampagnes of andere vormen van communicatie over SEPA voorzien .
+Gezien de huidige stand van zaken vindt de Commissie het juist dat de Gemeenschap er, althans voorlopig, van afziet de octrooibescherming die voor in computers geïmplementeerde uitvindingen beschikbaar is, uit te breiden, bijvoorbeeld door de vereiste technische bijdrage te laten vallen.
+Kan ik er vooralsnog van uitgaan dat er niet onderhandeld gaat worden met Kroatië zolang de stabilisatie- en associatieovereenkomst niet is geratificeerd?
+Op grond van haar bevindingen beveelt de Commissie aan slechts vijf van bovengenoemde besluiten in te trekken; de overige moeten gehandhaafd blijven, ofwel op tijdelijke basis (7), ofwel onder voorbehoud van een motiveringsverslag van de Commissie (6).
+gevallen veel duurdere — luxeprodukten, is de verleiding voor producenten en verdelers groot om het onderscheid tussen het ersatz en het vervangen produkt in het vage te laten.
+— Eerste beginsel: de kredieten worden opgenomen in de begrotingslijn indien het voorstel van de Commissie inzake nieuwe maatregelen met financiële gevolgen reeds is aanvaard of indien het voorstel van de Commissie voor de vijftiende juni werd gedaan en gerede kans heeft voor 31 december te worden aanvaard, gezien hetgeen bekend is van de voor afgaande besprekingen binnen de Europese instanties.
+Met behulp van een gemeenschappelijk visumbeleid willen de EG-Lid-Staten greep krijgen op de toenemende immigratie van personen uit derde tanden.
+Vooral wanneer de hoeveelheid handel zoals wij wensen zowel in de richting Zuid-Zuid als in de richting Noord-Zuid zou toenemen, zijn deze verliezen van douanerechten vooralsnog niet aangetoond.
+Uit de discussies kon worden afgeleid dat voorlopig geen steun is te verwachten voor een eventueel EG-voorstel op dit terrein.
+Dat deed er echter weinig toe; de ‘Gelijkheid’, de ‘Broederschap’ en de ‘Rechtvaardigheid’ hielpen voorlopig elke theoretische moeilijkheid te boven komen.
+De Commissie is van oordeel dat de bestaande wettelijke voorschriften (of die welke thans in voorbereiding zijn, zoals de MiFID-maatregelen van niveau 2) momenteel volstaan, alsook dat de lidstaten in een betere positie verkeren en dat zelfregulering door de marktdeelnemers beter geschikt is om tot de meest aangewezen reactie op de marktontwikkelingen te komen.
+Gezien het aantal en de verscheidenheid van dergelijke nieuwe elektronische media, wordt in het verslag terecht naar voren gebracht dat een van bovenaf opgelegde EU-verordening niet werkbaar zou zijn, vooralsnog ten minste.
+Op 1 januari 1992 voerde de Gasunie een nieuw tariefstelsel door waarin het F-tarief is verdwenen. De Commissie had in een eerder stadium reeds te kennen ge geven geen bezwaar te hebben tegen deze tarifering, maar heeft desondanks besloten zich opnieuw te buigen over een wijzigingsclausule die in het tariefstelsel is vervat.
+In sommige landen moeten de tekorten worden verlaagd en in andere, waar de structurele tekorten grotendeels zijn weggewerkt, zou vooralsnog een conjunctureel neutrale koers passend zijn, veeleer dan een restrictieve.
+Gino was zo lief om een ruimte te maken waarin ik hem voorlopig kon zetten zodat hij warm en droog zat.
+„Wij zijn bereid die te bevestigen dat drie van de mensen naar de vier grenzen van China worden gestuurd niet de sterren konden gezien hebben, die op het ogenblik de equinoctiale en solstitial punten bezetten, die op de genoemde seizoenen culmineren. B.V. kon het eerste deel van Weegschaal (naast Wolfszweer naast Scorpius) niet het gezien culmineren bij het vallen van de avond, wanneer de zon in het eerste punt van Kanker is, voor het moet bij 6PM culmineren, waar aangezien de zon in geen deel van China veel vóór 7PM zou plaatsen (de zomer) en de sterren niet voor een half uur na zonsondergang zichtbaar zouden zijn.
+Bilaterale en regionale overeenkomsten zijn dan ook geen alternatief voor multilaterale onderhandelingen, maar veeleer een aanvulling om niet alleen de tarifaire en non-tarifaire belemmeringen effectiever te kunnen afbreken, maar om ook voor structuren te zorgen op gebieden waarop de WTO-leden besloten hebben om - althans voorlopig - niet binnen het multilaterale stelsel collectief te onderhandelen. Ik denk daarbij aan de mededingingsregels, aan overheidsaanbestedingen en aan de arbeidsdimensie.
+H-363/80 mededelen tot welk niveau de stijging van de invoer van „tufted" tapijten boven de 300 % toename uit de VS nog kan voortgaan, voor zij in voercontingenten voor deze produkten zal vaststellen ?
+De groeiende invloed van de EEG zorgde omgekeerd ervoor dat ook buitenlandse bedrijven steeds makkelijker de Nederlandse markt op konden komen. Maar de fietsenfabrikanten slaagden er vooralsnog in circa driekwart van de rijwielverkoop in handen te houden.
+Is de gekozene niet Baron Crespo voor wie ik stem, dan weet ik toch wel, Sir Henry, dat u stellig een voorzitter zult zijn die het Parlement tot eer zal strekken, en ik ben u daarvoor erkentelijk.
+Voorlopig zijn er echter weinig aanwijzingen dat de turbulentie op de financiële markten sinds begin augustus van sterke invloed is geweest op de dynamiek van de ruime monetaire en kredietverleningsaggregaten , hoewel specifieke posten op de balansen , zoals de aangehouden aandelen / participaties in geldmarktfondsen , beïnvloed zouden kunnen zijn .
+Grijsgetinte cellen : reeksen die in de toekomst wellicht gerapporteerd zullen worden , maar voorlopig niet van belang zijn .
+Aan wat ik reeds heb gezegd, wil ik toevoegen dat de Commissie het voorlopig niet juist acht met soortgelijke wetgeving als in Californië te komen.
+Dat heeft voorlopig nog geen consequenties.
+Beide lidstaten maakten gebruik van deze zogeheten “opt-out clause” (“uitzonderingsclausule”) door de EU-Raad te laten weten dat zij vooralsnog niet van plan waren over te gaan tot de derde fase,d.w.z.dat zij vooralsnog geen deel willen uitmaken van het eurogebied.
+(1398.2) 127:2.10 De crisis was voorlopig voorbij, maar dit voorval werd in Nazaret nooit vergeten.
+Er zijn wijzigingen nodig, met name voor de oprichting van een onafhankelijke autoriteit die toeziet op de toepassing van de wet.
+Het BTW-tarief van de lidstaat van registratie is van toepassing op al zijn transacties, waar dan ook in de EU verricht, en hij doet aangifte van zijn uit deze transacties voortvloeiende belastingschuld bij de belastingdienst en in de munt van die lidstaat.
+Die lopen af, en daar boffen wij financieel mee, omdat die nu dus even geen geld kosten.
+In dit verband wil ik u erop wijzen dat een restitutieverhoging, in het bijzonder voor de export naar Rusland, geen zin heeft zolang de Russische markt compleet gesloten is en we daar geen partners hebben met wie we exportcontracten kunnen sluiten; en voor de andere derdelandenmarkten zijn hogere exportrestituties op dit moment niet nodig.
+Praktisch brengt deze vrijstelling met zich mee dat vooralsnog alleen voorstellen voor verordeningen in het kader van de medebeslissingsprocedure en bepaalde daarmee samenhangende documenten, evenals directe correspondentie met het publiek, naar of uit het Iers worden vertaald.
+De heer Ephremidis (CG). — (GR) Mijnheer de Voorzitter, er is een volk, de Koerden, waarvan er al tientallen jaren lang 12 miljoen in Turkije wonen, een paar miljoen in Syrië en een paar miljoen in Irak.
+Ik zit voorlopig prima waar ik zit. Bovendien had ik het idee dat tegen de tijd dat ik weer eens zou willen verhuizen, de krapte op de woningmarkt best wel zou meevallen.
+Dan laat ik het voorlopig aan u over.
+Wij zorgen uiteraard voor de technische en logistieke steun, maar voorlopig dient het voorstel van de Commissie als uitgangspunt voor de debatten.
+Tracht voorlopig het probleem uit uw hoofd te zetten en kweek een intense belangstelling aan voor wat u leest.
+Het gaat hier, zoals mevrouw Jepsen al onder de aandacht heeft gebracht, vooral om de bevoegdheden van het Europees Parlement en ik ben van oordeel dat artikel 2 van protocol 36 thans gewijzigd zou moeten worden, dat er opnieuw over onderhandeld zou moeten worden en dat er rekening met de wensen van het Europees Parlement gehouden zou moeten worden.
+Wat betreft statistieken op het gebied van rentes en emissies van effecten , zal vooralsnog uitgebreider gebruik worden gemaakt van bestaande informatiebronnen .
+Dat is de reden waarom wij voor dit moment gedwongen zijn de situatie te accepteren zoals die nu in de lidstaten is, waarbij wij uitgaan van een principieel standpunt, namelijk het respect van fundamentele ethische waarden.
+Er zij evenwel op gewezen dat Vietnam vooralsnog geen vluchten binnen de Europese Unie uitvoert of gaat uitvoeren.
+De heer Andrews (RDE). — (EN) Mijnheer de Voorzitter, het gaat over naar bladzijde 19 van de Notulen van het Bureau in uitgebreide samenstelling van 19 mei 1993, waarin het heet dat het Bureau heeft besloten voorshands geen delegatie ad-hoc te sturen naar Kameroen, Soedan, Ethiopië en Oost-Timor.
+( 1 ) Voorlopig worden gegevens over de uitgifte van elektronisch geld door niet-MFI 's aan de ECB gerapporteerd op een Excel-werkblad .
+Wanneer de Raad aan het eind van deze maand bijeenkomt om over Birma te discussiëren, is het van belang dat de sancties voorlopig gehandhaafd blijven en dat men de druk op de ketel houdt, zodat de dialoog wordt voortgezet, zodat er werkelijk stappen in democratische richting worden gezet, zodat de mensenrechten worden geëerbiedigd en niet in de laatste plaats zodat Aung San Suu Kyi wordt vrijgelaten en haar plaats als gekozen leidster van het Birmese volk kan innemen.
+Wat de verdeling betreft, kan worden gezegd dat de tabakfabrikanten in de andere Lid-Staten voor het moment de verdeling van hun produkten in Italië nog steeds aan de AAMS overlaten.
+Het is de bedoeling de bemonsteringsvoorschriften te zijner tijd aan te passen aan recente ontwikkelingen in de wijze waarop diervoeders geproduceerd, opgeslagen, vervoerd en in de handel gebracht worden, maar vooralsnog moeten de huidige bemonsteringsvoorschriften van kracht blijven.
+In de eerste fase van deze studie zal gekeken worden naar de medische en sanitaire behoeften van de tehuizen die vooral geestelijk en/of lichamelijk gehandicapte kinderen verplegen.
+Ontwikkelingslanden hebben vooralsnog geen mogelijkheden om uit fusie-energie een commercieel te exploiteren energiebron te ontwikkelen, zodat het werk in de industrielanden gedaan moet worden.
+Maar al zijn plannen vallen weldra in duigen; zo schrijft hij ook: «Bijna alles wat ik momenteel als ware apostel van Jezus Christus doe, is gewijd aan het doorstaan van een verschrikkelijke plaag».
+Maar gezien het relatief geringe risico dat het met tussenpozen sabbelen en kauwen met zich meebrengt, zouden de voorgestelde maatregelen voorlopig alleen betrekking moeten hebben op speelgoed dat duidelijk bedoeld is om op gekauwd of gesabbeld te worden.
+De leden van deze missie hebben uitstekend werk verricht en zijn eigenlijk de enigen die tot nu toe de aanwezigheid van de Europese Unie zichtbaar hebben kunnen maken. De heer Schwaiger zei al dat deze aanwezigheid niet bepaald nadrukkelijk was.
+Naast aanpassingen die het communautaire karakter van de eigen middelen beter tot uitdrukking brengen bevatten deze voorstellen ook duidelijk een verbetering van de inningsen vaststellinggsmodaliteiten, met name voor zover de nationale wetgevingen tot dusver een alibi vormden om voorlopig de rechten niet vast te stellen en niet ter beschikking van de Gemeenschap te stellen.
+Overwegende dat de Verordeningen (EEG) nr. 3975/87(6) en (EEG) nr. 3976/87(7) , Richtlijn 87/601/EEG(8) en Beschikking 87/602/EEG(9) ertoe strekken meer concurrentie tot stand te brengen tussen de diensten die luchtvervoerdiensten aan het publiek aanbieden en dat deze diensten bijgevolg thans niet behoeven te worden opgenomen in deze richtlijn, met dien verstande dat de situatie later opnieuw moet worden onderzocht in het licht van de vooruitgang die is geboekt op het gebied van de concurrentie;
+De voornaamste discussiepunten van deze conferentie waren de problematiek van de interne markt en de finan­ciering van de innovatie alsmede een beleid van
+Naar onze mening moeten de marktprijzen de voornaamste determinant blijven van het landbouwinkomen, met dien verstande dat zij het inkomen moeten aanvullen, maar niet vervangen, met gemoduleerde en van plafonds voorziene steunmaatregelen, om aldus concurrentievervalsing en oneerlijkheden te voorkomen.
+Gezien de manier waarop een onderhandelde prijs tot stand komt, is die op dit ogenblik lager dan de marktprijs zou zijn geweest (de overeengekomen prijs van het vorige jaar wordt als uitgangspunt genomen voor het bepalen van de onderhandelde prijs; daarna wordt de prijs aangepast rekening houdend met veranderingen in het kostenniveau en de inhoud en de kwaliteit van de dienst).
+In dit verband verklaren wij andermaal dat wij vast overtuigd zijn van de noodzaak van een snelle, algemene en rechtvaardige oplossing van dit probleem via onderhandelingen, overeenkomstig de beginselen die worden opgesomd in de conclusies van de Europese Raad van Rodos van 2 en 3 december 1988.
+Ik kan het ver slag van mevrouw Aglietta steunen maar ik wil er toch op wijzen dat men de nodige zin voor diplomatie en goede betrekkingen aan de dag moet leggen tegenover een volk dat een daadwerkelijke inspanning levert als uitdrukking van zijn liefde voor de vrijheid en van de ondernemingszin die het altijd al heeft betoond.
+Gedroogde druiven vormen voor personen die daarvan veel consumeren, met name kinderen, een belangrijke voedingsbron van ochratoxine A. Er zou derhalve voorlopig een technisch haalbaar maximumgehalte vastgesteld moeten worden, maar het is absoluut noodzakelijk om de methoden ter vermindering van de verontreiniging te verbeteren.
+Wij juichen de recentste overeenkomsten tussen UNPROFOR en de NAVO toe, die in het belang van de burgerbevolking en de UNPROFOR-troepen een efficiënte uitvoering van de besluiten van de VN-Veiligheidsraad mogelijk moeten maken.
+Met hardheid is niets aan te vangen... Het is uiterlijk moeielijk voorshands een plan te maken, (dat van Vincent is, onuitvoerbaar; dunkt me) maar ik hoop dat je hiervan doordrongen bent dat je haar verkeerd hebt aangepakt; de verhouding van het laatste jaar heeft tot niets geleid dan haar geheel van de wijs te helpen.
+Wat betreft Eurydice, het communautaire informatienet voor onderwijszaken, dat in het verslag van mevrouw Viehoff wordt genoemd, moet ik het Parlement meedelen dat de Commissie voor jeugd, cultuur, onderwijs, voorlichting en sport pas zeer onlangs heeft besloten voorlopig geen nieuwe the ma's aan de huidige vier prioritaire onderwerpen van het Eurydice informatienet toe te voegen.
+Afgezien daarvan, hoe zijn we hier weer beland?
+Wij zijn er ook niet voor de wet getrouwd, dat hebben we in NL gedaan.
+Bij de huidige desbetreffende prijsniveaux, behoudt ingevoerde steenkool ondanks de waardering van de dollar op de buitenlandse wisselmarkt, niettemin een belangrijk kostenvoordeel boven de in de Gemeenschap geproduceerde kolen.
+Overeenkomstig artikel 19, lid 3, van Verordening nr. 17 van de Raad heeft de Commissie een mededeling7gepubliceerd waarin belanghebbende derden werden verzocht hun opmerkingen kenbaar te maken.
+Het summum van inconsequentie geeft de Raad ten slotte ten beste doordat hij een paar amendementen afwijst die absoluut geen doorwerking hebben op het uitgavenpatroon, amendementen die betrekking hebben op het hergebruik van een paar administratieve begro tingslijnen die in de begroting van de Raad precies hetzelfde lijken.
+Finland heeft de druk van Rusland ervaren in de vorm van belastingen op hout, maar de Finse regering heeft tenminste vooralsnog deze kwestie niet verbonden met het gaspijpleidingproject.
+Wat is overigens in bovengenoemde landen ondernomen om de burger op deze mogelijkheid attent te maken ?
+De heer Goebbels. — (FR) Ik ben het eens met de geachte afgevaardigde dat er een probleem is, en dat de Raad daarover zal moeten beraadslagen, maar voor het ogenblik is er in deze zaak bij het Hof een beroep aanhangig gemaakt tegen het Koninkrijk België.
+Europees Parlement zou kunnen worden afgeschaft, zon der dat wij daar zelf iets aan zouden kunnen doen.
+Vandaag gaat het erom dat het rechtstreeks gekozen Europese Parlement een moedige stap voorwaarts waagt en bij wijze van spreken de deur naar meer democratie voor de Europese burgers openduwt.
+Op 17 maart 2011 is de Commissie van deze in Japan geldende actiedrempels in kennis gesteld; er werd echter aangegeven dat het hierbij om voorlopige waarden voor de regelgeving ging.
+In de huidige redactie bepaalt artikel 24, sub b) van de genoemde richtlijn thans reeds dat wanneer voor effecten in een ander Lid-Staat een volgens de voor schriften opgestelde en goedgekeurde prospectus werd ingediend en wanneer binnen drie maanden na goed keuring van dit prospectus in een Lid-Staat tegelijkertijd een aanvraag tot toelating van deze effecten tot de officiële notering aan de effectenbeurzen van elke an der Lid-Staat werd gedaan, dit prospectus reeds vol gens het vigerende recht als een passende prospectus in die Lid-Staat en elke ander Lid-Staat waarin om toelating wordt verzocht, wordt erkend.
+Als het aan de filosofie ligt worden wij inderdaad zombie’s met een tollende harde schijf bovenin en vooralsnog zijn we daar hard heen op weg.
+Daarom is een vastberaden optreden van de Europese Unie onontbeerlijk. De Europese Unie heeft reeds elke vorm van ontwikkelingshulp geschorst, behalve de spoedhulp en de hulp aan de armste bevolkingsgroepen.
+Deze lijst van eigenschappen kan eindeloos worden uitgebreid, maar in ons geval wordt alleen rekening houden met de drie bovengenoemde kwaliteiten en voorlopig zal slechts een verdere sub-segment af te leiden.
+Zij oefent in eer­ste instantie de bevoegdheden uit die krachtens de Verdragen en de besluiten ten uitvoering van deze Verdragen aan het Hof zijn toevertrouwd met betrekking tot de geschillen tussen de Ge­meenschappen en hun personeelsleden, de be­roepen die door natuurlijke of rechtspersonen tegen een van de instellingen van de Gemeen­schappen worden ingesteld in verband met de tenuitvoerlegging van de voor de ondernemingen geldende mededingingsregelingen, alsmede de beroepen in verband met het EGKS­Verdrag die door ondernemingen of verenigingen van onder­nemingen tegen de Commissie worden inge­steld.
+En als door zijn wond Gregor had nu blijkbaar voorgoed verloren zijn vermogen om bewegen en voor het moment nodig is vele, vele minuten te kruipen in zijn kamer, net als een jaar ongeldig - voor zover kruipen omhoog was bezorgd, dat was onvoorstelbaar - toch voor deze verslechtering van zijn toestand, naar zijn mening, kreeg hij volledig bevredigende compensatie, want elke dag tegen de avond de deur naar de woonkamer, die hij was in de gewoonte van het houden van een scherp oog op nog een of twee uur van tevoren, werd geopend, zodat hij, liggend in de duisternis van zijn kamer, onzichtbaar vanuit de woonkamer, kon zien het hele gezin in de verlichte tafel en luisteren naar hun gesprek, om een in zekere mate met hun gezamenlijke toestemming, een situatie heel anders van wat er eerder gebeurd.
+Tegelijkertijd moet er sprake zijn van flexibiliteit, zodat wij kunnen aanvaarden dat een lidstaat toestemming krijgt in het eigen land voorlopig een bepaalde traditionele benaming te gebruiken, of zodat de kwestie op een andere manier kan worden opgelost.
+In dit deel betekent een „in de lijst opgenomen evenement” een sport- of ander evenement van nationaal belang dat momenteel op een lijst staat die de minister voor dit deel heeft opgesteld.
+Ik heb u heel duidelijk aangegeven waar het staat, en ik kan me voorstellen dat u zorgen heeft over de bepaalde aspecten van mogelijke uitkomsten, maar ik wilde u toch verzoeken om genoegen te nemen met mijn antwoord op dit moment ten aanzien van de procedure.
+Zij bleken destijds slechte omgang voor Jehovah’s uitverkoren volk Israël te zijn.
+Voorlopig is het echter weinig waarschijnlijk dat de Chinese regering marktkrachten een rol zal geven die groot genoeg zijn om innovatie te stimuleren.
+De autobusmarkt kan op dit ogenblik eerder als een na tionale dan als een communautaire markt worden aan gemerkt.
+Ik, WONG LIN KEN, de minister die voorshands met de verantwoordelijkheid voor de uitzetting is belast, verorden hierbij in overeenstemming met de voorzieningen van artikel 8 van de uitzettingswet dat NORMAN DAVID BELLOTTI, op 13 oktober 1919 in AUSTRALIË geboren, SINGAPORE vóór het verstrijken van een periode van veertien dagen na betekening van een exemplaar van dit bevel verlaat en hier niet meer terugkeert.
+Ten eerste stel ik voor in te stemmen met de uitbreiding van het PHARE-programma tot Slovenië om verdere vertraging in de steunverlening te voorkomen.
+Ondertussen doet het Ministerie van Cultuur zijn best het enthousiasme over de vondst binnen de perken te houden. Openstelling van de Grot van Vilhonneur voor het publiek is vooralsnog in ieder geval niet te verwachten.
+De Commissie heeft besloten, de situatie en de gedraging van Deutsche Post AG, die volgens [uw] klacht in strijd zouden zijn met verscheidene regels van het EG-Verdrag, in het licht van artikel 86 te onderzoeken en — althans voorlopig — geen procedure op grond van artikel 93 in te leiden.
+lid van de Commissie. - (EN) Mijnheer de Voorzitter, op het moment biedt de quotaregeling een zekere stabiliteit op de Europese markt en staat niets de volledige tenuitvoerlegging van de hervorming van 2003 in de weg.
+De verslechtering van de betalingsbalans moet voorlopig worden aanvaard in verband met de bijzondere positie van een aantal Lid­Staten en als erkenning van de onbetwistbare prioriteit die moet worden gegeven aan de versterking van het energiebeleid ter vermindering van de afhankelijkheid van ingevoerde olie."
+Er dient toezicht te worden gehouden op de tenuitvoerlegging van bestaande instrumenten voor corruptiebestrijding en deze moeten voorlopig worden versterkt door toetreding van de Europese Gemeenschap tot een van de of tot beide Verdragen inzake de bestrijding van corruptie van de Raad van Europa, en door deelname aan het controlemechanisme (GRECO).
+Ja, we hebben net nieuwe Nike schoenen binnen gekregen.
+Ten eerste, de Commissie verwerpt de amendementen betreffende de inlichtingen die op de etiketten moeten worden vermeld, omdat geopteerd wordt voor een vrijwillig en niet voor een verplicht etiketteringsstelsel voor rundvlees en rundvleesproducten.
+En ten slotte, mijnheer de Voorzitter, nog een enkel woord met betrekking tot de prioriteiten.
+Ondanks die mooie perspectieven moet hier - althans vandaag - echter worden vastgesteld dat er ook donkere wolken aan de horizon zijn.
+Voorlopig speelde hij de rol van een leraar, onbarmhartig streng en onrechtvaardig.
+Omdat het door de Commissie gepresenteerde werkprogramma zo uitgebreid is, is het volgens Comité ondoenlijk om elk facet ervan nu in detail te behandelen; in het navolgende advies worden daarom vooralsnog dan ook alleen die aspecten nader bekeken die het Comité op dit moment essentieel acht.
+De resolutie vraagt daarom dat de Gemeenschap en de Lid­Staten meer zou­den doen om de situatie van de vrouwen te ver­beteren, met name door middel van nieuwe communautaire instrumenten en door studies en acties op specifieke gebieden.
+Poggiolini (PPE). — (IT) Mijnheer de Voorzitter, anders dan voor de grote epidemieën van het verleden, bestaat er voor AIDS geen enkele echte, doelmatige therapie en zijn er nog geen entstoffen waarmee deze ziekte voorkomen kan worden.
+Voor het ogenblik zijn de geldmiddelen van het documentatiecentrum uitsluitend voor het personeel van het secretariaat-generaal bestemd. Te zijner tijd, wanneer
+Bepaalde delen van het leger treden op alsof ze de tegenpartij aan de onderhandelingstafel willen verzwakken maar in een deel van het platteland maken ze geen kans meer op een militaire overwinning.
+Hoewel de Commissie voorlopig geaccepteerd had dat TV2 Danmark A/S een onderneming in moeilijkheden was als bedoeld in de richtsnoeren, heeft zij belanghebbenden om opmerkingen verzocht aangezien concurrenten van TV2 erop gewezen hadden dat de cashflowproblemen door TV2 zelf veroorzaakt waren, eenvoudig opgelost konden worden en geen invloed hadden op de fundamentele levensvatbaarheid van de onderneming.
+Zijn eerste doel is om een etappe te winnen in een Grote Ronde en te laten zien dat hij goed presteert in bergetappes, maar op de langere termijn wil hij gaan voor een goed eindklassement.
+Het toekomstplaatje ziet er op dit moment zo uit dat de parlementaire marge met betrekking tot de uitgaven nog steeds weinig om het lijf zal hebben.
+Deze cijfers zouden kunnen veranderen, maar op dit ogenblik lijken de adverteerders zich hierop te baseren.
+Dit heeft een aan tal successen opgeleverd, zoals de verordening betreffende de bescherming van de financiële belangen en de verordening inzake steekproeven, maar wij moeten de vakmensen ongetwijfeld nog meer van het nut van onze werkzaamheden overtuigen door kwesties aan te pakken die de burger na aan het hart liggen.
+Bovendien kan het voorlopig toestaan aan de Oekraïne van bepaalde handelsvoordelen aan naburige staten, een stimulans zijn voor de regionale samenwerking met de andere voormalige Sovjet-republieken.
+Om die reden ben ik van mening dat we beide extremen moeten afwijzen en gaan moeten voor de optie die - ik ben de laatste om dat te ontkennen - verre van perfect is, maar vooralsnog wel de beste.
+Ik citeer in deze graag mijn psychiater: ‘Laten we voorlopig een dag per dag afwerken, mijnheer Ploeg’. Ik kan niet anders dan me geboeid bij voornoemde zielkundige aansluiten.
+In beide landen is de n.v.-vorm toelaatbaar, doch hij wordt vooralsnog door de vrije makelaars in Duitslands niet aangewend.
+Specifieke regionale vraagstukken: de Westelijke Balkan, het Midden-Oosten en Afrika (met name de Grote Meren, de Hoorn van Afrika en West-Afrika) zullen voorlopig als eerste in aanmerking komen voor een versterkte samenwerking tussen de EU en de VN.
+Daarom heb ik mede namens de landbouwcommissie een voorstel aan de plenaire voorgelegd om deze plattelandsontwikkelingsplannen niet als prealabele conditie te stellen, maar voorshands een dergelijk planmatig kader te vervangen door een pragmatische aanpak die de financiering mogelijk maakt van een aantal maatregelen waarvan iedereen het nut inziet.
+En zoals de Commissie terecht heeft betoogd, waar verzoekster niet zou kunnen opkomen tegen een brief van de Commissie waarbij zij in kennis werd gesteld van een beschikking inzake overheidssteun, kan zij dat zeker niet tegen een brief waarbij zij ervan in kennis is gesteld, dat er voor het moment geen beslissing is genomen.
+Er wordt niet echt veel druk op mij gelegd aangezien ik geen precieze doelen heb, voor mij werkt het per periode: Paris-Nice dan de Dauphiné, het Frans kampioenschap en de Tour de France. Ik wil nu een goede start maken in het nieuwe seizoen: de Tour is zeker dé wedstrijd, maar ik ga niet naar de Tour voor het podium dus om te beginnen richt ik mij volledig op de andere wedstrijden.
+Het Comité gaat voorlopig akkoord met de besluiten van het JECFA en het IARC.
+Aangezien het om een louter intergouvernementeel project gaat, dat - misschien morgen al - zich tot een Europees project zal ontwikkelen, financiert de Commissie op dit moment het modelproject; de Lid-Staten hebben de uiteindelijke verant woordelijkheid inzake basisonderwijs.
+Voorlopig zijn er veel meer mensen het slachtoffer van een aan racisme grenzend vluchtelingen- en illegalenbeleid dan van de politieke invloed van extreem-rechts.
+Bij het beslissen over de geldigheid van landbouwkartels in de zin van de artikelen 1 en 2 van Verordening nr. 26 dienen de rechterlijke instanties van de lidstaten rekening te houden met de exclusieve bevoegdheid van de Commissie (artikel 2, lid 2) om de voor bepaalde mededingingsbeperkende afspraken met betrekking tot de vervaardiging van landbouwproducten en de handel in deze producten voorziene wettelijke uitzonderingen toe te passen (artikel 2, lid I).
+Dit heeft ertoe geleid dat wij wat betreft het onderwerp 'opslag van informatie' als compromis hebben aanvaard dat er op nationaal niveau wettelijke standaardbepalingen mogen bestaan die afwijken van de algemene Europese regelgeving, en dat dit dus niet van geval tot geval hoeft te worden beoordeeld.
+Dit laatste is dus geen instelling zoals de andere vier, maar het zou van slechte wil getuigen als puristen ons zouden verwijten dat we de rol van het Comité ook in dit verband behandelen.
+Alles zal uiteindelijk goed komen maar op dit moment, zou je kunnen zeggen, zijn onze handen deels gebonden.
+Ook die landen kunnen meer doen, en de overige landen doen er goed aan zich voorshands vooral te concentreren op een betere convergentie.
+Op het ogenblik zijn er geen Zwitserse tegenmaatregelen ten aanzien van vrachtwagens uit de Gemeenschap.
+Maar ook dat is te herleiden tot het feit dat dit nu eenmaal de kleinste gemene noemer was waar we een stemmig achter konden staan.
+De Commissie is voornemens zich voorlopig aan deze werkwijze te houden en te bezien wat er verder mogelijk is om het Europees Parlement in staat te stellen in dit proces een opbouwende rol te spelen.
+Ik wil niet op de zaken vooruitlopen, maar ik geloof dat we voorlopig aan de code willen vasthouden.
+Voordat ik in de uitbetaling problemen zelf, en waarom je uit de buurt van moet sturen Lock Poker voorlopig wil ik ingaan op een aantal van de discussie en waarom het is niet echt behulpzaam in termen van de grotere afbeelding.
+Tot iemand met een betere benaming komt — en dat is een uitdaging! — zullen we het dus maar houden op 'neo-kapitalisme'.
+Vooralsnog zijn we er nog altijd niet in geslaagd Schengen volledig in de eerste pijler op te nemen, een probleem waar ik in deze vergaderzaal altijd met grote nadruk op heb gewezen.
+Ik zal in de tussentijd ieder bericht dat ik als vanuit de hogere trillingen komend beschouw, aan jullie doorgeven en hoop dat ik behoorlijk snel terug zal zijn met via mij doorgegeven boodschappen uit de Geestenwereld.
+Momenteel is er geen enkele aanwijzing dat de president voornemens is de Amerikaanse schoenenmarkt voor import te sluiten.
+De EU neemt met bezorgdheid nota van het onlangs door de LTTE bekendgemaakte voornemen voorlopig niet meer deel te nemen aan de vredesonderhandelingen in Sri Lanka.
+Hoe staat de Raad tegenover de ongerustheid die in veel kandidaatlanden bestaat over de uit het lidmaatschap van de EU voortvloeiende plicht tot het invoeren van nieuwe barrières aan de grenzen met oude buren, die in elk geval voorlopig geen deel zullen uitmaken van de EU?
+In de toelichting van dit verslag lijkt de rapporteur eigenlijk iedereen tevreden te willen stellen: de Commissie, die de deregulering invoert; de lidstaten, die - vooralsnog - verantwoordelijk blijven voor de veiligheid; de grote luchtvaartmaatschappijen, die men al te dwingende en vooral al te kostbare regelingen wil besparen; de low budget-maatschappijen, die weliswaar enkele minimumnormen opgelegd krijgen maar zonder dat dat gevolgen heeft voor de winst, enz.
+EASA-formulier 148, Uitgave 2
+Nu bijna een jaar geleden wijdde dit Parlement een belangrijk debat aan het vraagstuk van de werkgelegenheid.
+Het onmiddellijk gevolg van die beslissing (bekendgemaakt in september 1988) was dat de positie van de Amerikaanse televisiemaatschappijen werd versterkt, doordat het Japanse systeem voorlopig in de VS werd geblokkeerd.
+Misschien doet de strategie op dit moment nog te veel denken aan een opsomming van waardevolle doelstellingen. De Commissie wil de strategie echter aanpassen en omzetten in een routekaart voor de weg naar welvaart, met duidelijke doelen en een strikt tijdschema.
+Met betrekking tot de comitologie blijft de Commissie bij het besluit van 1987.
+In principe is de 33,6-urige werkweek er in opgenomen, hoewel er voorlopig nog 38 uur per week wordt gewerkt. Dit model blijkt ook in de practijk levensvatbaarheid te hebben.
+Overigens vraag ik mij af of de indieners van bepaalde amendementen wel hebben nagedacht over de gevolgen ervan, bij voorbeeld voor het gemeenschappelijk landbouwbeleid.
+Cognitieve verbeteringsdrugs vereisen relatief weinig inspanning, zijn invasief en vooralsnog niet eerlijk verdeeld.”
+(14) Hoewel de maximumgehalten uit toxicologisch oogpunt voor zowel dioxinen, furanen als dioxineachtige PCB's zouden moeten gelden, zijn ze voorlopig alleen van toepassing op dioxinen en furanen en niet op dioxineachtige PCB's, omdat er nog te weinig bekend is over de prevalentie van dioxineachtige PCB's.
+- Mijnheer de Voorzitter, de voor juli aangekondigde presidentsverkiezingen gelden - althans voorlopig - niet als voorwaarde voor het consolideren van het veiligheidsbeleid en voor de democratisering van het land.
+PHARE-programma (voortzetting) inbegrip van het aantal afgevaardigden.
+De Apollo blijft voorlopig in de buurt, voor als je hulp nodig hebt.
+Ten slotte lijkt het ons onmisbaar gekwantificeerde doelstellingen op termijn te definiëren en mechanismen voor permanente controle op de mate van economische en sociale samenhang in werking te stellen.

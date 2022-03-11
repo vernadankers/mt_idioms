@@ -1,3 +1,1 @@
-Gooi je een wiebel ?	-0.5936917662620544
-Natuurlijk ga ik niet wiebelen .	-0.45990753173828125
-Ik gooide geen wiebel omdat mijn pas geblokkeerd was .	-0.5041155219078064
+Ik gooide geen wiebel omdat mijn pas geblokkeerd was.

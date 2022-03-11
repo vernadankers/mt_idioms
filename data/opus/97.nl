@@ -1,500 +1,459 @@
-Mevrouw, dit is niet 'Vogue: achter de tralies'.
-Ik zit achter de tralies.
-Liefde achter de tralies.
-Vincent achter de tralies.
-Vogels in gevangenschap
-Niet één achter prikkeldraad.
-Achtergrond: Misstanden achter de tralies
-Jackson achter de tralies gezet vandaag.
-Achter de tralies?
-Een heel leven achter de tralies.
-Desnoods van achter de tralies.
-Hij zet hackers achter de tralies.
-Je gaat achter de tralies.
-Ja, die beesten behoren achter tralies.
-- Ze willen je opsluiten.
-Hij hoort achter tralies !
-Mensen willen hem achter de tralies.
-Laten we hem achter de tralies steken.
-Die man hoort achter de tralies.
-Hij moet niet achter tralies.
-vier zitten nog steeds achter de tralies.
-Maar dan... achter de tralies.
-En ze allemaal achter tralies zetten.
-Wat belachelijk is is dat jij een duidelijk onschuldig man achter tralies wil krijgen.
-Je wil hem terug de cel in?
-Ik neem mijn kansen achter de tralies.
-Ik zou achter de tralies, Scotty.
-Interraciale, lesbische liefde achter de tralies.
-Ze wil jou achter de tralies.
-Hasaan zal voor altijd achter tralies zitten.
-Zet die corrupte flikken achter de tralies.
-- Een gevangene.
-Die pakken ze zo.
-En een verrader loopt nog steeds buiten.
-Hij heeft ervoor gezorgd dat Falconi in de nor zit.
-De slechte jongens achter de tralies zetten.
-Dan zitten we maar beide achter de tralies.
-We zijn opgesloten, Inês... achter tralies!
-- Hij stopt in elk station. Ben je gestoord of zo?
-Ik sluit slechteriken op.
-Eerst gooi je Sonja in de cel. En nu Patton?
-Vrouwen maken vrienden in de bak.
-- Nee, ik zag hem daar.
-Hij zou achter de tralies moeten.
-Sandra kan weer in de bajes belanden.
-Omdat we het niet kunnen bewijzen.
-– je zit alleen achter de tralies –
-Je hebt veel doorstaan achter de tralies.
-Een van ons dood of achter de tralies.
-Je hoort ook alles.
-Heb je niets geleerd van die drie jaar achter de tralies?
-Eindigt Lily Humphrey achter de tralies?
-Nog eens 6 maanden achter de tralies.
-Luke Hobbs achter de tralies.
-Hallie was het niet. Die zit in de gevangenis.
-Toen we Jacob Scott achter de tralies plaatsten.
-We zien Stephen Rowe achter tralies.
-Waarom zit Mr Stacey niet achter de tralies?
-U hoort in de gevangenis thuis.
-Inclusief een onschuldige man achter de tralies zetten.
-Ik dans wel, maar ik voel me opgesloten.
-Ik kan vanuit de cel in beroep gaan.
-Je kan je rehab afmaken achter de tralies.
-Een onschuldige man is opgesloten.
-Hopelijk blijft hij even uit onze buurt.
-Het verliezen van de boerderij, mij achter de tralies zien... brak mijn vrouw het hart.
-Ga maar 'n tijdje harp spelen op de tralies.
-Hij zal trouwens wel ergens vastzitten.
-Dat gaat niet als je in de bak zit.
-Ze is pas veilig als hij gevangen zit.
-In een cel, als een slechte meid.
-Ik denk dat jij graag achter tralies zit.
-Hopelijk, zit hij dan al lang achter tralies.
-Dat ik hem veilig achter de tralies mag zien.
-Mensen willen we meestal binnen houden.
-Het is niet voorbij tot hij achter de tralies zit.
-En ik wil dat ze achter de tralies verdwijnt.
-Hebt u de Stripwurger achter tralies?
-Hem de oorlog achter de tralies uit laten zitten?
-Het belangrijkste is, we hielden ze achter de tralies.
-Zeker achter de tralies gezeten.
-Door mij zijn ze gevangen genomen.
-Als je vastzit, zijn we verdeeld.
-We kunnen geen Matança Zumbido opsluiten.
-Of we belanden achter de tralies, of dood.
-Lex moet achter de tralies, Lana.
-Ik ben gewoon blij dat hij nu vastzit.
+En Amos Pembroke gaat voor een hele lange tijd de gevangenis in.
+- Als de Hobbins veilig achter tralies in Kingston Penitentiary zijn...
 Maar hij zit al 1 4 jaar opgesloten.
-Ze getuigde en hielp hem achter de tralies.
-Hij is gek genoeg, maar zit achter de tralies.
-Ik wil de bak niet in.
-Dat monster zou moeten worden gesloten.
-Vrouwen Behind Bars zal een groot succes te zijn.
-Nu ze achter de tralies zitten...
-Ik denk dat misschien een beetje tijd achter de tralies... je een beter mens zal maken.
-13 van de laatste 25 jaar achter de tralies.
-Samuel Mundy zit achter de tralies voor haar moord.
-Je moet die kleine hufters achter de tralies gooien.
-Ik zal het niet kunnen, niet achter tralies.
-Ik zorg dat je nooit meer uit de gevangenis komt.
-Eigenlijk is het een probleem dat hij achter de tralies zit.
-Jou achter de tralies zien is altijd ontspannend.
-De echte schuldigen zitten binnenkort achter de tralies.'
-Emily, de persoon die dit heeft gedaan zit achter de tralies.
-Ik wil niet dat de moeder van mijn zoon achter de tralies zit.
-Ik probeer een manier te vinden om over de reden...
-- Het zal nog moeilijker worden achter tralies.
-Hij zal de rest van zijn leven achter de tralies doorbrengen.
-Proficiat. je hebt een gevaarlijke misdadiger achter de tralies gezet.
-Een wraakpoging, beraamd tijdens zijn jaren in de gevangenis. Krijg de klere!
-Betaal m'n gage even voordat je achter de tralies verdwijnt.
-En het is goed voor 20 jaar achter de tralies.
-Je kan het hier zeggen of achter de tralies zeggen.
-Hij vrij en ik levenslang achter de tralies.
-Hij zat niet achter de tralies.
-Dat zouden meer Amerikanen eens moeten doen.
-Ja, hij heeft dat geregeld vanuit de gevangenis.
-De agent die je zoon neerschoot zit opgesloten.
-Je krijgt levenslang.
-Dempsey's Forensic Services heeft, drie voortvluchtigen al achter de tralies gezet.
-Hoe kon ik mijn zoon vergiftigen van achter de tralies?
-Jij wil een bendelid zijn, je moet wennen om tijd door te brengen achter tralies.
-Als zij getuigt, belandt Michael misschien in de cel.
-Ik zal ervoor zorgen dat je vader rot achter de tralies.
-Ik zou achter de tralies meer vrijheid gehad hebben.
-- Je kende hem alleen in de cel.
-Dus ik gooi je zonder problemen achter de tralies.
-Hem achter de tralies zetten zal niet helpen.
-En de mensen achter dat plan zitten achter de tralies.
-Nu zit Mitchell voor de rest van zijn leven achter tralies.
-Al is het lastig, met hem in de cel.
-Alles om die vent achter de tralies te krijgen.
-Ik doe alles om de moordenaar van Lance achter de tralies te krijgen.
-Ik zou ml] beter voelen als Taza achter tralies zat.
-Van sommigen waren vingerafdrukken en foto’s gemaakt, waarna ze als misdadigers achter de tralies waren gezet.
-- Hij zit wel achter de tralies.
-Ik zal wetten aan die vandalen achter de tralies te zetten.
-Hanna beging die fout, en nu zit ze achter tralies.
-- Nee, Mike, nog niet. Want wat ik nog nodig heb is dat William Sutter achter de tralies zit.
-Hij was een onschuldig persoon die Cameron achter de tralies zetten.
-Hem achter de tralies te zetten kwam ten goede aan de maatschappij.
-Maar de dader zit dan wel achter de tralies.
-De priester was vastbesloten deze Getuige achter de tralies te krijgen.
-Ik moet het schilderij hebben en Finch achter de tralies.
-Je blijft hier tot Wesley weer vastzit.
-Ik doe mijn werk en ik zet die dieren achter de tralies.
-Zo gauw ik snap het A-Team achter de tralies.
-Het is geen geheim wat ze met agenten achter tralies doen.
-Ik ga pas weg als Penticoff achter slot en grendel zit.
-Zonder jou zat ik nu onschuldig achter de tralies.
-- Hij zit nu wel vast.
-Manson heeft meer macht achter de tralies dan toen hij vrij was.
-Ik hoop dat je hier gelukkig bent, waar je thuishoort.
-Maar degenen die dat niet doen belanden gewoonlijk achter de tralies.
-Een politieagent is geen hondenvanger, die misdadigers simpelweg opsluit.
-We werden weer gearresteerd en weer achter tralies gesloten.
-Een kleurrijk figuur als Fats, zal zijn kleur achter de tralies wel verliezen.
-Terug achter de tralies, een week na een andere overval.
-Hij kan Capone aanwijzen, en dan is hij erbij.
-Twee kwaliteiten die hem geen goed deden achter de tralies.
-Ik verdwijn voor lange tijd achter de tralies, daar kun je zeker van zijn.
-Dus als ik een kidnapper achter tralies krijg, wordt ik neergeschoten?
-Rattigan, ik zie je nog steeds achter de tralies.
-En het ging vanachter de tralies naar achter het glas.
-Hier vindt u geen dieren in kooien, achter tralies.
-Hé meiden, zij heeft me achter de tralies gezet.
-Zorg jij nou maar voor je wenkbrauwen in de cel.
-Horatio probeert hem al een jaar lang achter de tralies te krijgen.
-Illidge werd in januari vorig jaar gearresteerd en zat tien dagen vast.
-Aangenomen dat Seth achter de tralies is, weet ik vrij zeker dat hij het niet was.
-Hoezo? Omdat je vorige maand twee van mijn partners achter de tralies hebt geplaatst?
-In de periode dat ik in de nor zat, ben ik veel gaan tuinieren.
-Ik heb mijn beste vakanties achter de tralies gehad.
-Jij hoort achter de tralies voor wat er gebeurd is in de mijn, vriend.
-De politie helpen om deze criminelen achter de tralies te krijgen, waar ze thuis horen.
-De reactie van het publiek
-De enkele keren dat ik mijn vader zag, zag ik hem door tralies.
-Iets waarmee ze voor de krijgsraad twintig jaar krijgen.
-Jouw bewijs kan iemand in de cel laten belanden.
-Richardson zal nog lang brommen.
-En, mocht u het overleven, brengt u de rest van uw leven in een rolstoel door, achter de tralies welteverstaan.
-Ze zullen niet rusten voor ze je hebben.
-Achter tralies... mag jij de gekwetste vrouw spelen deze keer.
-Maar helpt het me om hem achter de tralies te krijgen, toch?
-Jij zit in je proeftijd en kunt een lange straf krijgen.
-In zijn van achter de tralies geschreven gedicht is Samir minder zwijgzaam.
-Batson, zo sterk tegen misdaad, ze zet onschuldigen achter de tralies.
-Het grootste deel van zijn leven bracht hij achter de tralies door: voor zijn landgenoten en voor de wereld was hij als leider van het ANC (African National Congress) het symbool van het verzet van de zwarte bevolking tegen het mensonterende apartheidsregime.
-Maar dit gaat er niet om om Miguel achter slot en grendel te houden.
-En jij zit in de cel voor je daden.
-Wil je echt dat ze hun moeder achter tralies zien?
-Ik kan niet garanderen dat Dana niet hoeft te zitten, Mr. Connors.
-Als hij wist dat hij een onschuldig iemand opsloot...
-Drie jaar cel voor RUG-fraudeur - Erasmus Magazine
-Hij moet jaren opgesloten blijven voordat het tot hem doordringt.
-Misschien hoort ze achter de tralies.
-Ik spoor Malachi op en zorg dat hij achter de tralies komt.
-Je zou denken dat men 'n echte moordenaar graag achter de tralies ziet.
-Maar nu heb ik je nodig... om NicoIov te vinden en hem op te sluiten.
-Dus jij bent de enige Reagan, die nooit tijd heeft doorgebracht achter de tralies?
-Kom niet te laat. Anders word je de komende vijf jaar gewekt door de cipiers.
-Maar ik wilde ze graag achter slot en grendel zien.
-Weller grijpt elke kans om een democraat te laten opsluiten.
-Het is een beetje moeilijk om dit te organiseren van achter de tralies.
-En ik vraag me af wat hij nog meer achter de tralies doet.
-Als hoge prijzen crimineel zijn dan zou de hele wereld in de cel zitten.
-Dissidenten verdwijnen vaak voor een belachelijk lange periode achter slot en grendel.
-Zolang als het duurt om al je vijanden op te sluiten.
-Maar Misa's getuigenis was onvoldoende om zijn schuld te bewijzen en de dader, Yôichi Tamura, kwam weer op vrije voeten.
-Niet als je getuigenis ieder van hen achter de tralies zet.
-Bovendien zal Gabe niet met iemand gaan eten en drinken wanneer hij achter de tralies is.
-En de samenzwering. Ze zetten een onschuldige man achter de tralies.
-hij zal de eerste zijn die hem ontvangt vanachter tralies.
-Terwijl jij achter de tralies zat, zijn de valsemunters gewoon doorgegaan.
-En nu, Dave, ga jij de rest van je leven achter de tralies doorbrengen.
-- En dan ? Komt 't jong ook in 'n kooi ?
-Bijna stereotiep voor een man die zijn hele leven achter de tralies zat.
-Wil je de rest van je miserabele leven achter tralies zitten?
-Je nam aan, dat de flat leeg zou zijn.
-De eerste avond eindigde al In de cel.
-Wilton Knight zal niet rusten totdat hij achter de tralies zit.
-Het is maar dat u het weet, Claudia houdt er niet van om opgesloten te zitten.
-De jet is vernietigd. lk laat je opsluiten.
-Ik vind het vreselijk dat Sandra's kind achter tralies geboren wordt.
-Het enige wat mij een beter gevoel gaf was wetende dat hij achter de tralies zat.
-Ja, maar door jouw getuigenis ging Dante achter de tralies.
-Ze kan overal zijn, en achter de tralies kan ik niet veel uitrichten.
-Ik wil ze achter de tralies zien.
-Weten wat we weten over hoe Walt bezighoudt met ratten achter de tralies?
-Als ik Miss Marks niet kan opsluiten, sluit ik jou op.
-Wilma, welk tuig dit ook deed, geen agent zal rusten tot hij achter de tralies zit.
-Zodat je misschien niet de rest van je leven in de cel zit.
-Het enige leven voor ons is achter tralies.
-Ze lijkt wel enger achter tralies?
-Ze moeten hem opsluiten.
-Zelfs als we Bart niet kunnen berechten, we zullen altijd samen zijn.
-U gaat de rest van uw leven achter de tralies, Mr. Grimm.
-Ressler zat al jaren achter Reddington aan om hem achter tralies te krijgen.
-Je weet dat de aanklager alles zal doen wat mogelijk is om Wairight achter de tralies te houden.
-We moesten redenen vinden om Ricardo Pena achter de tralies te krijgen.
-Ik wilde geen zelfmoord plegen, of m'n laatste dagen in de cel doorbrengen.
-Mr Endecott, we doen er alles aan om dat monster op te sluiten.
-Ik probeerde alleen om Emily weer in de gevangenis te krijgen, waar ze thuishoort.
-Dus er is een kans, dat de rotzak achter de tralies kan blijven?
-Waarvan de inhoud jullie bevriende wethouder de cel kon doen indraaien.
-Ik zet jullie beide achter tralies in de staatsgevangenis.
-Hoe lang houd je dit vol van achter de tralies?
-In feite, hij wil diegenen in het Witte Huis achter tralies plaatsen!
-Het is moeilijk om een goede vader te zijn vanachter de tralies of als je dood bent.
-Denk je dat hij je niet kan pakken van achter de tralies... iemand zoals hem?
-Al moet je je moeder opsluiten!
-Opgesloten door m'n eigen kleinzoon.
-Als hij achter de tralies zit kan hij nooit iemand vermoord hebben.
-Zwaar misdrijf door computer hacking, gegevens te vervalsen, en dat gezicht... De vriendschappen die hij zal sluiten in de gevangenis.
-Dat is te ver om met een wapen te lopen Dat kan haar levenslang kosten.
-Daar staat in de oorspronkelijke tekst een reden om iemand niet op te sluiten, namelijk overbevolking.
-Aan de andere kant, nog een aantekening en je zit ook achter de tralies.
-Bolan zal minimaal 25 jaar achter de tralies doorbrengen in Blackwater Staatsgevangenis.
-Daardoor verliezen de arrestanten iedere wettelijke bescherming en blijven voor onbepaalde tijd achter de tralies.
--Hij kwam in de cel door mijn getuigenis.
-Ik geef het niet op tot je voorgoed achter tralies zit.
-Wat mij betreft, is de veiligste plek voor Nasim Malek achter de tarlies.
-Dat weet ik. Hij blijft zijn hele leven achter te tralies, dankzij jou.
-Van de 38 jaar van Serhi’s * leven heeft hij er 20 achter de tralies doorgebracht.
-Ze zullen in de gevangenis sterven, maak je geen zorgen.
-Het lijkte leuk in het begin... maar al snel belande ik in de gevangenis.
-Misschien zal een tijdje achter de tralies je helpen te groeien, zoals dat bij je vader het geval was.
-2 jaar gevangen gezeten kwaad over hoe ik genaaid was.
-Een van de meestgezochte mannen ter wereld zit weer vast.
-Zonder u, hadden we Eva Pearce nooit in de gevangenis gekregen.
-Jack Strawhorn, de beruchtste crimineel van Texas... zit achter de tralies.
-Hij was bijna z'n hele leven opgesloten, waarvan 43 jaar in de isoleercel.
-Hij heeft haar man niet opgesloten.
-Nu hij achter de tralies zit, is hij bang dat Arturo zijn klanten overneemt.
-Want ook de Amerikaanse autoriteiten hebben toegegeven dat er een aantal onschuldigen vastzit.
-John Gotti zal de rest van zijn ellendig leven achter de tralies doorbrengen.
-Als u doorgaat met u in dit onderzoek te mengen, u zult achter tralies terechtkomen.
-Maar de van der Woodsens zorgen niet dat er nog meer van haar familie vast komt te zitten.
-Je mist wel een hoop roddels als je achter de tralies zit, niet?
-Hij heeft vele drugs dealers achter tralies gekregen en er een aantal vermoord, oké.
-Raak aan m'n kruiswoordpuzzel, en ik stop je zo terug achter de tralies.
-Dat is jammer, want als je dat niet doet belanden jullie beiden achter de tralies.
-Het is net mijn levensmissie geworden jullie allemaal achter de tralies te krijgen.
-Zo'n aanklacht kan je carrière vernietigen. Je kunt in de cel komen.
-En m'n naam zuiveren en senator Roark gaat achter de tralies.
-Ik keek er naar uit om je einde te zien of dat je in de gevangenis zou komen.
-Wat er ook gebeurt, u komt niet achter de tralies.
-Ik heb de laatste tien jaar 16 jongens achter tralies gezet.
-Wilt u daarom iedereen opsluiten ?
-Ik begrijp dat Mags een oude schuld ingelost wilde zien..en dat Jed daarom zijn tijd achter de tralies verspilt en niet haar Dickie.
-Hij verkocht van achter tralies sterke drank. Terwijl op de achtergrond ranzige Hongaarse porno werd afgespeeld.
-En nog langer dat jij bewust een onschuldige man achter de tralies hebt gezet.
-Als iemand weet hoe het is zwanger te zijn achter de tralies, ben ik het wel.
-Dan krijg ik je wel achter de tralies.
-Vraag je je niet af waarom je niet achter de tralies zit... terwijl wij de afgelopen twee jaar al achter je aan zitten?
-We hebben Chu opgesloten, maar het was een dure operatie.
-Maar al na enkele zinnen wordt hij opgepakt en verdwijnt voor tien jaar achter de tralies.
-Ik zal bewijzen dat Martin Sugar zonder enige twijfel... Achter de tralies thuis hoort.
-Daarna hebben we geprobeerd hem te redden en zijn we in de gevangenis beland.
-Maar ik breng je naar daar, alleen. Geef me niet dat "alleen" onzin, of ik zet achter de tralies voor obstructie van de rechtsgang.
-Ik moet er niet aan denken als je de rest van je leven de gevangenis in moet.
-Tenzij zijn weldoener iemand is die het erop wil laten lijken dat hij achter de tralies zit.
-Twee minuten, anders zit je achter de tralies.
-- Ik stop pas als deze man achter de tralies zit.
-Het enige wat ik wil is... Vic Mackey achter de tralies krijgen.
-Nu verdwijn je de rest van je leven achter tralies met die twee idioten.
-Dus als Al Capone achter de tralies hoort te zitten, hoe krijgen we hem dan daar?
-- Hij moet 'n trap onder z'n reet hebben.
-- Pap... Ik kan de politie het bewijs leveren wat ze nodig hebben om Amal en kornuiten achter de tralies te kunnen opsluiten.
-U ontkent niet eens dat u bekend was met John Wilkes Booth en de andere opgeslotenen?
-Flynn's briljante politiewerk hielp om deze engerd vast te zetten voor twee van die moorden.
-Leg hem in een ledikantje. Jongens horen thuis achter tralies.
-Als ze mijn borgtocht intrekken, zullen ze me tot het proces achter de tralies zetten met zelfmoordbewaking.
-Nu Isaak in de cel zit, kunnen we misschien dat gesprek hebben dat hij zo graag wilde.
-Op zaterdag wordt er een dancefestival gehouden genaamd 12 inchCity Behind Bars.
-De FBI zal de vrouw in ieder geval vinden en opsluiten.
-Ik heb mijn hele leven geprobeerd om slechte mensen in de gevangenis te houden.
-Door Max opgesloten te houden, voorkomen we meer gewonden.
-Ik liep de kans de rest van mijn leven achter de tralies door te moeten brengen.
-Nu weet je waarom mijn vader achter slot en grendel zit, doe wat vereist is om hem te bevrijden.
-Laten we hem eren door z'n moordenaar achter tralies te zetten.
-Ik zet niet graag een domper op de zaak... maar zit Katherine Corven niet stevig achter tralies?
-Carson Lazarus blijkt een prima medewerkster te zijn door haar kookervaring in de gevangenis.
-Iedereen die oppositie voert tegen de regering kan zonder proces achter de tralies verdwijnen of onder administratief toezicht worden geplaatst.
-Freda groeide op in Brownsville, waar een torenhoog aantal mensen in de gevangenis terechtkomt.
-D'Andre zal de natuur zien van achter de tralies voor het aanvallen van een gerechtsdienaar.
-Wanneer ze lekken, vliegt niet alleen hij, maar ook ik achter de tralies.
-Ik dacht dat jij dat wel wilde weten omdat jij hem hebt opgesloten.
-Ik wil iedereen achter de tralies zien... voor het einde van de dag.
-En houden deze veranderingen beesten... als Theodore Bagwell achter slot en grendel?
-Later werd deze veroordeling vernietigd — maar pas nadat de mannen zestien jaar achter de tralies hadden doorgebracht!
-Hij kan zich maar beter overgeven, anders zit hij voor de rest van leven vast.
-Dat is volgens het Bureau voor Juridische Statistiek de gemiddelde tijd die veroordeelde moordenaars achter de tralies doorbrengen. ”
-Hoewel Leggio enige invloed uitoefende van achter de tralies, werd Riina nu het effectieve hoofd van de Corleonesi.
-Je zit niet vast omdat je vrouw de borgsom kon betalen.
-Geen gepraat meer over Bly of... een soort van deal waardoor je achter de tralies komt, oké?
-Denk je dat mij opsluiten iets verandert op straat?
-En het systeem kennende... zou je niet eens een nacht de cel ingaan.
-Hij had een heleboel tijd om te oefenen achter de tralies; misschien zou hij nu even zijn mond kunnen houden ...
-Als ik iedereen opsloot die me wou slaan, zat de halve provincie vast.
-De hele inhoud van zijn verslag en alles wat hij hier zopas heeft meegedeeld, kan ik alleen maar volledig beamen.
-Van al die klootzakken die ik weggestuurd heb... zit er niet één meer achter tralies.
-Je zit meer uren per dag in een kleine, donkere kamer dan dat je mensen achter de tralies zet.
-Angelique hoopte dat haar dood haar dochter's moordenaar achter de tralies zou brengen en hier is mijn voorspelling, het zal zo zijn.
-"Belastingontduiking, handel met voorkennis, verkeerd oversteken" maakt niet uit, hij gaat de bak in.'
-Vergeet niet dat wij Travis Verta hebben opgesloten. Dat telt toch mee.
-Als je deze fout niet herstelt herinnert Harrison zich alleen maar dat z'n vader in de cel zat.
-Als Kobold erbij betrokken is, waarom is hij dan zelf niet ontsnapt?
-Na de veroordeling tot levenslang van de serieverkrachter in Bergerane, kan deze overwinning uw carrière beïnvloeden?
-De vraag is of jij ze toestaat om die identiteit de komende tien jaar achter tralies op te sluiten.
-En nu Wo Fat opgesloten zit, kunnen we discussiëren wat je s' nachts wakker houdt.
-Je kunt me nu helpen of je vraagt straks om hulp achter de tralies.
-Mannen zouden oma-broekjes geil vinden als ze wisten dat ze door wijven achter tralies werden gemaakt.
-Niemand op deze planeet wil deze man... liever achter de tralies dan ik.
-Zijn twee zonen, Giovanni en Giuseppe, volgden hun vader in zijn voetsporen.
-Als seks met een hoer een misdaad is, dan zijn veel zeelieden schuldig.
-Je weet dat m'n loopbaan gewijd is... mijn hele leven, om mensen als jij gevangen te houden.
-Ze zetten deze lieve, prachtige, vieze man achter tralies zonder echtelijke bezoeken.
-Marceau kon z'n schuld niet bewijzen, dus kwam Lemoine na drie jaar weer vrij.
-Dus na een nieuwe rechtszaak wist het Openbaar Ministerie eind oktober Juanra weer achter de tralies in Vught te krijgen.
-Zonder verder getreuzel... is hier de man die jonge mensen achter tralies stopt... waar ze thuis horen.
-'Als privédetective Juha Korppi een klus aanneemt belanden criminelen in de cel en vrouwen in z'n slaapkamer.'
-De klim naar de top zou zeker gemakkelijker zijn voor meneer Savino met al zijn concurrenten achter de tralies.
-We financieren er het gevangenissysteem mee... zodat de boeven opgesloten blijven.
-Stuurde de rechter mij daarom naar jou?
-Onverwachte, veelzeggende fotografie van 11 fotografes over het leven achter tralies, met een focus op de VS.
-Juanra maakt in Spanje geen enkele kans op een eerlijk proces en dreigt voor lange tijd achter de tralies te verdwijnen.
-de reden dat ik elke ochtend opsta.
-- Een vriend van de getuige... die gaat zorgen dat je de bak in draait.
-Tijdens onze opleiding oefenden we gratis op de proefkonijnen die achter tralies zaten.
-Ik denk dat de sheriff gewoon snel resultaat wilde en een verdachte achter de tralies.
-In detectives wordt de moordenaar ontmaskerd en achter tralies gebracht. Of hij wordt aan z'n beul overgeleverd.
-Meer dan 90% van de 5.300 gevangenen in de Louisiana State Penitentiary in Angola (VS) zullen achter de tralies sterven.
-Het is dus eerlijk als jullie bijdragen aan de juridische en beveiligingskosten als Gustavo en ik achter tralies zitten.
-Het gevolg is dat niet-gouvernementele organisaties niet vrij kunnen functioneren en dat mensen die zich kritisch opstellen in de gevangenis terechtkomen.
-En wat Marty betreft... misschien wil je al je kinderen in de bak hebben... net als je broer Joey.
-Roemeense demonstranten willen de voor corruptie veroordeelde voorzitter van de sociaaldemocraten, Liviu Dragnea, echt achter tralies zien.
-Jullie zijn beide koppig, en jullie zijn alle twee dom... en jij weet niet wanneer je moet stoppen.
-Of een crimineel... die levens van kinderen in gevaar bracht en achter de tralies hoort?
-Nu geven we de werkende klasse hun banen terug, alleen nu achter de tralies, voor twee cent per dollar.
+Ze maken haar wijs dat ze haar hele leven achter de tralies kon zitten wegens medeplichtigheid.
+Die gekleurde gast had hoe dan ook in de gevangenis gekomen.
+Je mag een onschuldige niet vasthouden.
 Omdat de DOJ je zeven jaar achter de tralies wilde zetten, en ik dat verminderd heb naar elf maanden.
-Dat zei je ook over Liberty Rail en in plaats van geld verdienen... eindigde Donna bijna achter de tralies.
-Ik ben psychiater en ik doe onderzoek naar gevangenen... en hoe ze in de gevangenis zijn gekomen.
-Beschouw de gestrande misdadigers en personen die aan verdovende middelen zijn verslaafd, door wie de maatschappij wordt aangetast, en beschouw hen die door de maatschappij achter tralies worden gehouden.
-We kregen de mogelijkheid om op een makkelijke manier, zonder bureaucratie een aantal zeer gevaarlijk personen achter de tralies te krijgen.
-En jij hebt ook wel 's wat gedaan.
-De bewoners van Maryland kunnen rustig slapen vanavond... wetende dat de moordenaars die de omgeving... van Washington, D.C terroriseerden, nu achter de tralies zitten.
-- Hou jezelf voor wat je wilt... maar ik ga er alles aan doen om die klootzak achter de tralies te houden.
-Alhoewel de moorden stopten, verdween de angst niet... en dat verdwijnt pas als de Silver Bells-moordenaar achter de tralies zit.
-De enige manier waarop ik me veilig ga voelen is als Ben en Rebecca achter tralies zitten.
-Daarbij werd met name uitgebreide aandacht besteed aan de situatie van de vrouwelijke gevangenen : de relatie met hun familie, het moederschap, de levensomstandigheden, de reïntegratie in het sociale en het beroepsleven.
-Als je liever je pro-Deoadvocaat hebt, krijg je twee keer levenslang.
-Het enige wat voor mij telt, is dat Carmine's moordenaar in de cel belandt.
-Maar als ik jullie weer betrap in die kostuums, gooi ik jullie zo snel achter de tralies, dat jullie... jullie capes wapperen.
-Uw dochter heeft geluk dat ze nog leeft, maar ze zal niet veilig zijn totdat degen die dit gedaan heeft achter tralies zit.
-Verbijsterd gaat Benedict op zoek naar de geheimzinnige Cristiani, en hoort al snel dat die inmiddels achter slot en grendel zit wegens oplichting.
-Zoals jullie allemaal weten... staat de atletiek afdeling in een kwaad daglicht... met een top quarterback achter de tralies.
-De moordenaars en opdrachtgevers werden gelukkig vorig jaar hiervoor veroordeeld. Ze zitten nu achter slot en grendel.
-Terwijl Nguyen Van Ly en andere katholieke dissidenten wegkwijnen achter de tralies, neemt spontaan en onverwacht een volkskerk hun voortrekkersrol over.
-Mike is vanavond... of welke avond dan ook niet meer veilig, omdat Gallo toch achter hem aankomt.
-Hij beheerst geen oosterse vechtkunst en als hij achter de tralies zit om zijn broer te redden, is hij 24 uur per dag in gevaar.
-Ik stop pas als deze corrupte lieden zijn waar ze thuishoren: Achter de tralies.
-Je hebt net onopgeloste moorden opgelost en een huurmoordenaar... die zichzelf voordeed als held, laten opsluiten.
-wel bijna. Ik wil niet dat mijn zoon in de cel opgroeit. Of vluchtend sterft.
-Van de 75 activisten die zes jaar geleden achter de tralies belandden en wier zaak door een groot aantal organisaties, waaronder de EU, werd gesteund, zijn er 54 nog steeds niet op vrije voeten.
-Met twee van de machtigste gangsters van de Luciano misdaad familie achter de tralies, staat het lot van de operatie op het spel.
-En jou zetten ze in de cel.
-Eén voorbeeld dicht bij Europa, namelijk Turkije, waar Syrische christenen nog altijd gevangen worden gezet wanneer zij actief hun godsdienst belijden.
-Aurelia had vanaf het begin van haar loopbaan bij de regering een geheime missie: de hele Montana-clan achter de tralies zetten.
-Dus uit je bedreigingen, in de hoop dat je schaduw over de stad blijft hangen, ook al zit je achter de tralies.
-Toen Bunky achter de tralies zat, ging ik de beest uithangen. - Ik begon te drinken en te roken.
-De verantwoordelijke luitenant, William Calley, krijgt wegens massamoord twintig jaar cel, maar zit maar drie dagen achter de tralies.
-Officier van justitie Kelley hield toezicht op de vrijlating van een man... die 14 jaar in de cel zat voor een misdaad die hij niet...
-Rezian zal schreeuwend en stampend terugkomen... dus moeten we een manier vinden om hem lang achter de tralies te houden.
-Als hij Peter vertelt dat er beeldmateriaal van mij is waarop ik de munten steel, zet dat een kettingreactie in gang die ons allemaal achter de tralies zal doen belanden.
-De wet laat je vandaag in de steek, maar weet dat ik niet zal rusten, tot Peter Manuel achter de tralies zit.
-Laat me alsjeblieft één nacht plezier maken... als ik de rest van mijn jeugd achter tralies moet doorbrengen.
-Er zijn verzoeken om uitlevering van een aantal van deze mensen ingediend door een buurland dat weldra lid zal zijn van de Gemeenschap.
-„ In plaats van zijn schuld aan de gemeenschap terug te betalen door achter de tralies te blijven, is Ray nu terug in de gemeenschap om door middel van werk zijn slachtoffers terug te betalen.
-...aller tijden, en geven we de schuld aan die Muppets die de rest van hun zielige leven achter de tralies slijten.
-Hoe politiek aantrekkelijk het idee ook is om frauderende bankiers achter slot en grendel te zetten, het zal in de praktijk een hele kluif blijken om dat ook werkelijk voor elkaar te krijgen.
-En we weten niet wie ze zijn tot ze weer aan de slag gaan... wat betekent dat ze moeten denken dat Alex achter de tralies zit.
-Ik ging naar beneden om naar haar te kijken in haar box, en ik kon het niet aanzien dat het arme ding opgesloten zat achter tralies.
-Dit geldt voor een landgenote van doctor Rugova, Adem Demaçi; het geldt ook voor Wei Jingsheng; het geldt voor Anatoli Marchenko, die overleed in de gevangenis.
-Met Cruel and Unusual presenteert de Noorderlicht Fotogalerie van 18 februari tot en met 1 april onverwachte en veelzeggende fotografie over het leven achter tralies.
-Ofwel laat u de mensen vrij, genoemd in dat gerechtelijk bevel of u vindt u zelf terug achter de tralies maar dan zonder sleutel.
-Als je aan de gevangenis denkt, denk je aan... al die ouwe films en rijen mensen achter tralies.
-We gaan niet rusten tot ze achter tralies zitten. Of zelfs beter, tot we ze in een lijkzak steken.
-Misstanden achter de tralies 8 april 2006 – De bewaarders van de Havenstraat doen hun best, maar het gevangeniswezen staat steeds meer onder druk.
-Enkele grote misdadigers - ’ bonzen ’ werden voor zover ze nog niet achter de tralies zaten, gedurende de periode van de conferentie in verzekerde bewaring gehouden.
-‘Maar geschrapt na de première en die vijf jaar achter de tralies heeft doorgebracht omdat de vioolsolo’s niet de geest van het Socialistisch Realisme ademen.’
-De wet laat je vandaag in de steek, maar weet dat ik niet zal rusten tot Peter Manuel achter de tralies zit.
-Aanhang AURELIA Verhaallijn Aurelia had vanaf het begin van haar loopbaan bij de regering een geheime missie: de hele Montana-clan achter de tralies zetten.
-Sadin heeft fotografische projecten gemaakt over kinderen achter de tralies, huiselijk geweld in Frankrijk, vrouwenhandel, sekstoerisme, tienermoeders, vroege huwelijken, illegale immigratie en zwaarlijvigheid onder tieners.
-En ik heb tien maanden vastgezeten... toen een agent me ervan beschuldigde dat ik een wapen op hem had gericht... bij de bezetting van de vuurtoren van Makapu'u.
-Onmiddellijk werden alle elementen, die gearresteerd moesten worden er achtergezet, en daarna pas ongeveer 2 uur werd het bericht aan het publiek vrijgegeven.
-Mevrouw Florrick, meneer Gardner, als de verweerder een tweet had geschreven volhoudend dat Rainey liegt, zou ik even boos zijn en hij achter de tralies.
-Had je me dat gisteren gevraagd dan had ik gezegd dat er niets ergers was dan in de bak te zitten met een leven achter tralies voor ogen of de elektrische stoel.'
-- Voorzichtig, deze twee leuke dames kunnen je voor de rest van je leven laten opsluiten.
-En als je de regels opnieuw breekt, jongeman, zal je borgtocht worden ingetrokken, en zal je de rest van tijd tot je proces achter de tralies doorbrengen.
-Hoe kon u 's nachts slapen, wetende dat een man die zielsveel van u hield twintig jaar in de nor zat door uw schuld?
-Hier denkt men dat Steven Avery zijn verdiende loon heeft gekregen en dat hij zit waar hij hoort: voor de rest van zijn leven achter de tralies.
-- Wetend wat ze zei, waarom zou die Zegan jongen akkoord gaan met een deal die zijn cliënt achter de tralies zet zonder zelfs een gevecht aan te gaan?
-De ondertekenaars belanden achter de tralies, de dagbladen van de oppositie krijgen een publicatieverbod en tal van journalisten, studenten en intellectuelen worden beschuldigd van banden met de communisten.
-Vraagje: waarom wil je Masovich zo graag uitschakelen?
-En dat de vrouw die mijn identiteit heeft gestolen in de gevangenis komt, zodat jij de voogdij kunt krijgen over je kinderen, zodra ze geboren zijn.
-Hij bracht achttien maanden in de gevangenis door, maar zelfs achter de tralies zette hij zijn politieke activiteiten voort door aan hongerstakingen mee te doen en bij één gelegenheid zijn polsen door te snijden.
-Maar haar moeder is des duivels en waarschuwt Benjamin dat hij weg moet blijven van haar dochter.
-Als Havanna nog even doorzet, lukt het ze ook lid van de Lomé-Conferentie te worden zonder dat die 500 gevangenen vrij zijn.
-Bekijk project > > 2012 Cruel and Unusual Onverwachte, veelzeggende fotografie van 11 fotografes over het leven achter tralies, met een focus op de VS.
-Gebruik wat je hebt en zorg dat het niet weer gebeurt... of je zit de rest van je leven achter tralies.
-Een betrekkelijk nieuw inzicht is dat 'repressie' (opsporen en achter de tralies zetten) belangrijk blijft, maar dat ook toegepaste wetenschap kan helpen om criminaliteit te bestrijden.
-Op onze enige vondst van een reclame met kat én vogel (zie12), zit de vogel veilig achter tralies. Het is daarenboven niet een bijna-echte afbeelding, maar een echt exemplaar.
-De cel waaruit ze heeft kunnen ontsnappen, wordt onderzocht... en de bewaking wordt verdrievoudigd als deze moordenares... weer achter de tralies zit.
-- Door zaken tegen hun geliefden aan te spannen, hen achter de tralies te stoppen, zodat onze mensen veilig zijn.
-De Franse regering gaat het opsluiten van vakbondsleden nog niet ver genoeg. Zij is van plan wetten in te voeren die het mogelijk maken bedelaars, daklozen, zigeuners en prostituees op te pakken.
-Want waar ik ook ben, al zit ik in de bajes als je ook maar iets probeert kom ik erachter, zoek ik je op en doe ik je pijn.
-Het is aan de kinderen om Luiz te ontmaskeren en zijn mythes over luizen te doorprikken.Zo kunnen ze hem als echte sheriffs achter de tralies krijgen.
-De heren achter dit label verdwenen in 1985 echter achter de tralies als gevolg van de nodige frauduleuze praktijken en dit leek de nekslag te zijn voor deze talentvolle band.
-In China zitten nu 48 cyberdissidenten achter de tralies, enkel en alleen omdat deze van het officiële internetpad afwijken.
-Ik ruik wat vrije dagen, zeg het me maar als ik het fout heb, maar het wordt een makkelijke week als we iemand moeten pakken die al vastzit.
-Of misschien moet ik het hoofd van de politie vragen wat hij van zijn rechercheur vindt... die met een vrouw omgaat die achter de tralies hoort.
-Voor ons is dat een essentiële waarborg, want personen die om internationale bescherming vragen zijn geen criminelen en er is dan ook geen enkele reden om hen achter de tralies te zetten.
-Waarom heeft de Raad de voorgestelde richtlijn niet goedgekeurd betreffende een verblijfstitel met een korte geldigheidsduur voor slachtoffers van mensenhandel die met het openbaar ministerie samenwerken om de misdadigersbendes achter de tralies te krijgen?
-Ik zou een arbeider, omdat die een keer door grove nalatigheid een kraan niet heeft afgesloten, niet achter de tralies willen brengen en in zijn bestaan bedreigen.
-Bij een onderzoek naar een concentratie wordt, in tegenstelling tot kartelovertredingen, niet uitgegaan van de onrechtmatigheid van de bedoelingen van de fuserende partijen.
-wat ik heb gedaan is Darryl Crowe Jr. in leven gehouden, waardoor wordt gewaarborgd dat een 15-jarige jongen niet de rest van zijn leven achter tralies moet zitten voor een misdrijf dat zijn oom heeft gepleegd.
-Een van de verdachten onthulde dat ze zich vooral zorgen maakte over of de politie met het 'bewijsmateriaal' zou knoeien en haar achter de tralies zou zetten niet voor wat ze had gedaan, maar juist voor wat ze niet had gedaan.
-Layla M.Mijke de Jong98 min. / Fictie Hommagevertoning voor de Tibetaanse filmmaker Dhondup Wangchen die tijdens het festival precies twee jaar vastzit.... »
-Er volgt vandaag vrijheid na tien jaar cel, voor Carson Lazarus voormalig topagent van misdaadorganisatie HAVOC en een van ons land's beruchtste criminelen.
-De gebroeders Dankert worden geconfronteerd met een cliënt die wordt verdacht van het doden van oudere patiënten in een ziekenhuis.Het OM probeert Beatrice om een geldende reden achter de tralies te krijgen.
-Wij moedigen de samenwer­king tussen de landen en de bestaande internationale en niet-gouvernementele organisaties aan om projecten op te zetten die van de informatietechnologieën gebruik maken.
-Naar het kamp Nam Ha Eind de jaren 1980 komt een aantal toplui van de voormalige Zuid-Vietnamese administratie en het leger vrij.Maar veel belangrijke figuren zitten nog altijd achter de tralies.
-- Oké. Toby, ik weet dat je graag de held uithangt enzo, dus waarom vertel je Kim niet alvast dat we misschien het bendelid hebben die haar broer heeft vermoord.
-Voordat de dag voorbij is... help je me door de waarheid te zeggen... of je belandt achter de tralies.
-Hoe dan ook moeten ze naar de cel en na al dat winkelen... heb ik geen geld meer voor de borg.
-Zijn dood leidde tot woede onder de Egyptenaren, maar niemand had toen ooit kunnen denken dat president Mubarak, de minister van Binnenlandse Zaken en andere steunpilaren van de politiestaat een jaar later achter tralies zouden zitten.
-Erger, de voorbije weken werden opnieuw een aantal prominente oppositiefiguren opgepakt en zonder enige vorm van beschuldiging opgesloten.
-Wat als ik je zeg dat als jij zegt dat het waar is, Francis Sullivan voor lange tijd achter de tralies gaat?
-Als dat zo is, zal Hauser tegen strafrechtelijke vervolging aankijken, die hem voor de rest van zijn leven achter de tralies zou kunnen brengen, terwijl honderden investeerders gaan beseffen dat hun spaargeld verdwenen is.
-Hé, ik ben niet degene die de hele dag weg was... om met iemand te praten die al 15 jaar vast zit... en absoluut niks kan weten... over wat dan ook van het hier en nu.
+Ik heb Claw achter de tralies voor je kunt zeggen
+Hij dacht dat ik wel wilde weten dat Bill Masters nu achter de tralies zit.
+In V.S. dagelijks gemiddeld 400.000 achter de tralies
+Hij heeft iets met vastgoed gedaan en nu zit hij tot hij zijn lesje heeft geleerd.
+Met hulp van Green Arrow en z'n team is de Werpstermoordenaar gevangen... en zijn onze straten iets veiliger.
+Een man die Victor Hally heet, die, trouwens, de afgelopen tien jaar vast zat voor wapensmokkel.
+Iets waarmee ze voor de krijgsraad twintig jaar krijgen.
+Je hebt vandaag geholpen bij het opsluiten van gevaarlijke mensen.
+M driving 34 min.De Wicklow Gaol Achter de tralies In het verleden boezemde de enorme Wicklow Gaol angst in bij de bezoekers.
+Ik zie haar liever achter de tralies, dan dat ze mijn graf bezoekt.
+U bent de zoveelste die onschuldig werd opgesloten.
+Ik zit in de cel en jullie in het restaurant.
+Bewijs dat hem levenslang had gegeven. Op 18 mei 1964...
+De maniakale Mac Gargan zat de afgelopen jaren veilig achter de tralies in de Raft. Nu hij bevrijd is kan zijn rivaliteit met Spider-Man weer oplaaien.
+Maar ik wil dat je me belooft dat er een dag komt dat Garza achter de tralies zit en mijn vrouw kan gaan joggen zonder bang te zijn.
+De liefde van je leven achter tralies voor iets wat ze niet gedaan heeft.
+Eigenlijk is het een probleem dat hij achter de tralies zit.
+Newett Energy vergiftigt ons water, mijn broer vermoord... en je stopt ons achter tralies, terwijl hij als VIP behandeld wordt.
+En ook deze gewelddaden zijn terug te voeren op z'n achtergestelde jeugd. En de incidenten in deze gevangenis waren zelfverdediging tegen... de Arische Broederschap.
+Jij hoort achter de tralies voor wat er gebeurd is in de mijn, vriend.
+En u zet Pinchot achter de tralies, gewoon 'n uitnodiging Holman hen te komen halen en de stad te vernietigen!
 Nieuwe Kerk tentoonstelling, meer over Domela Nieuwenhuis, veroordeling wegens majesteitsschennis, AT5 over zero tolerance, Spunk achter de tralies (met video van arrestatie), OM over het niet vervolgen van Spunkjournalisten Nieuws uit Amsterdam ontvangen?
-Integendeel, de Aziatische regio sluit de rijen en omarmen Birma in de ASEAN-groep.
-Al zou de doodstraf worden afgeschaft zal Aaron hier zitten totdat hij een natuurlijke dood sterft. Hij omarmt het leven zowel als de dood. Hij is in een voortdurende vorm van acceptatie en meditatie.
-We gaan ons excuseren tegen een drugsdealer omdat we hem niet kunnen opsluiten de dag nadat we uit onze wagen zijn buiten gesloten, allemaal omdat... dat meen je niet.
+Of vrijgekomen gevangenen geresocialiseerd zijn of alleen maar zijn verhard door hun verblijf achter de tralies, is tenslotte rechtstreeks van invloed op uw gemoedsrust en misschien zelfs uw veiligheid.
+Hij beheerst geen oosterse vechtkunst en als hij achter de tralies zit om zijn broer te redden, is hij 24 uur per dag in gevaar.
+Ik heb de laatste tien jaar 16 jongens achter tralies gezet.
+Ik wil deze gast achter de tralies kom op verspreiden.
+Rezian zal schreeuwend en stampend terugkomen... dus moeten we een manier vinden om hem lang achter de tralies te houden.
+Tijdens de zogenaamde ‘loden jaren' belandde hij twee jaar achter de tralies: zes van zijn gedichten waren zogezegd "schadelijk voor de heilige waarden".
+Mijn kantoor zal niet rusten tot zijn hele netwerk van moordenaars, drugs dealers, uitbuiters en pooiers voor goed achter de tralies zitten
+De slechteriken achter tralies en de goeierds gaan vrijuit.
+Een aantal jaren achter de tralies was genoeg voor mij.
+De meeste van hen zitten achter de tralies of zijn dood, maar niet allemaal.
+Ik merk dat je je mond kan houden... want anders had ik al achter de tralies gezeten.
+Nu zit je hier voor de rest van je leven.
+Rattigan, ik zie je nog steeds achter de tralies.
+Tot 3 juni is de expositie te zien in De Melkweg in Amsterdam. Daarna gaat de expositie van gastcuratoren Hester Keijser en Pete Brook naar Photoville in New York.
+Een van de belangrijkste drugshandelaren is achter slot en grendel geplaatst.
+Ik ga achter de tralies, als er nog iets met Devon gebeurt. Want ik vermoord de verantwoordelijke persoon.
+Hij zei ook dat jij hem had verraden en de winst voor jezelf had gehouden.
+Sandra kan weer in de bajes belanden.
+En een verrader loopt nog steeds buiten.
+Hoe kan ze haar mond blijven houden, terwijl ik een onschuldige man achter de tralies, gebaseerd op haar verklaring?
+Drie jaar cel voor RUG-fraudeur - Erasmus Magazine
+05-11-2013: Achter de tralies De pups worden groter en actiever.
+Ik wil niet dat de kinderen je op Moederdag in de gevangenis moeten opzoeken.
 Na de toekenning van de Hellman-Hammett Grant van Human Right Watch belandt schrijfster Tran Khai Thanh Thuy achter de tralies "wegens het versturen van een verkeerd beeld van de sociale, politieke en economische situatie naar overzeese reactionaire verenigingen."
+Zonder mij zat ze vast, of was ze dood.
+Samuel Mundy zit achter de tralies voor haar moord.
 Het artikel sprak van „een rechtsstelsel dat er het afgelopen jaar getuige van is geweest hoe een rechter van de hoogste rechtbank in het land achter de tralies gezet moest worden en dat bijna dagelijks op zijn grondvesten wankelt doordat er steeds opnieuw verbluffende bewijzen aan het licht komen dat politiemensen zich hebben laten omkopen ”.
-Ook al ontkom je misschien vandaag... ik verzeker je dat ik je zal weten te vinden. En als ik jou achter de tralies heb, zal ik het tot m'n missie maken... om degene die jij beschermde op te sporen.
-De Wicklow Gaol Het leven achter de tralies Je bent nu in Wicklow, dat ook wel de tuin van Ierland wordt genoemd, maar waar de verschrikkingen van de 18e-eeuwse gevangenispraktijken nog steeds voelbaar zijn wanneer je door de Wicklow Gaol loopt.
-Afbeelding: Standbeeld van Domela Nieuwenhuis bij het Westerpark, foto Ruud Zwart / Wikipedia. Nieuwe Kerk tentoonstelling, meer over Domela Nieuwenhuis, veroordeling wegens majesteitsschennis, AT5 over zero tolerance, Spunk achter de tralies (met video van arrestatie), OM over het niet vervolgen van Spunkjournalisten
+En ik heb tien maanden vastgezeten... toen een agent me ervan beschuldigde dat ik een wapen op hem had gericht... bij de bezetting van de vuurtoren van Makapu'u.
+Ahmet Altan zit vast in de Silivri-gevangenis, even buiten Istanboel.
+"Hij verklaarde eveneens zijn voornemen namelijk Gaétan Zampa achter de tralies zetten de man achter deze drugtrafiek die zich verspreidt over de hele wereld".
+Ik wil je hier hebben, maar als je blijft, dit plan zal niet eindigen... totdat Victoria en Conrad vanavond achter de tralies zitten.
+We gaan ons excuseren tegen een drugsdealer omdat we hem niet kunnen opsluiten de dag nadat we uit onze wagen zijn buiten gesloten, allemaal omdat... dat meen je niet.
+Met uw betrouwbare informatie en een roestig stencilapparaat maken zij een krant met het èchte nieuws: De Waan... meer infokrant [beschikbaar]JukebusJukebusIn een elektrische driewieler zit de Piep Knor Jodel Band achter tralies, verbonden met een eenarmige bandiet.Spelen is winnen!
+En daarom zit hij nu vast.
+Iedere hedgefundmanager achter tralies zal zichzelf zeker hetzelfde voorliegen.
+Fidel ziet in de schaduw van Irak zijn kans nu schoon om meer dan 75 dissidenten en onafhankelijke journalisten voor een schofterig lange tijd achter de tralies te zetten.
+Als 't donker en stil is, lijkt 't net alsof je niet meer achter tralies zit.
+Rechter Herman stopte mensen achter tralies, maar... maar er was niets dat ons beiden zorg baarde.
+De buren hebben namelijk een enorme broodboom en zelf zijn ze de komende 13 jaar niet in staat om ze te oogsten want ze zitten achter tralies in Miami wegens drugssmokkel.
+Er zijn verzoeken om uitlevering van een aantal van deze mensen ingediend door een buurland dat weldra lid zal zijn van de Gemeenschap.
+Als Evans dit heeft gedaan, wil ik die man achter tralies en uit het leger.
+- Zal wel. Als alle criminelen zijn opgepakt en er geen ongelukken meer zijn.
+Als ze 50 jaar de bak ingaat, kan ze weinig kwaad.
+Al zou de doodstraf worden afgeschaft zal Aaron hier zitten totdat hij een natuurlijke dood sterft. Hij omarmt het leven zowel als de dood. Hij is in een voortdurende vorm van acceptatie en meditatie.
+Ik hoop dat je hier gelukkig bent, waar je thuishoort.
+Terry Manttan zat opgesloten op de dag dat Carrie werd vermoord.
+Je zag wat hij deed. Hij gaat zorgen voor een deal met in plaats van vier jaar... misschien een paar maanden cel.
+Niet voor mij. lk zit niet meer gevangen.
+Omdat het net mijn levensmissie is om jullie allemaal achter de tralies te krijgen.
+De kinderen van ouders die achter de tralies zitten lijden meestal door niets anders dan dat hun ouders egoïstisch zijn.
+hebben we eindelijk genoeg om Garcia achter tralies te krijgen voor smokkel.
+Overdrijf niet met dat gedoe over het leven achter tralies.
+- En hoe eerder ik het genoegen heb, dat Hamilton vastzit en niet ik.
+Een cultuur van haat, zoals te zien in deze fotomontage van de premier achter de tralies bij een demonstratie voor de persvrijheid op een plein, die in het teken stond van rode vlaggen en de grofste beledigingen.
+Alles wat ik vraag is dat je de moordenaar van mijn man vat ... .. want ik wil hem achter de tralies zien voor een lange tijd.
+(Marvel Comics) Aan het eind van de uitgave wordt Steve naar The Raft gebracht waar hij zijn nieuwe leven zal gaan leiden achter slot en grendel met veel van zijn grootste vijanden.
+En mijn moeder zal achter tralies zitten gedurende de ganse rechtszaak.
+Deze man zit achter de tralies.
+Vrouwen Behind Bars zal een groot succes te zijn.
+Ik liet dit jaar 30 mannen opsluiten, twaalf ervan zijn al terug vrij.
+Ik hoop dat wij met Ethiopië nu eindelijk een nieuwe bladzijde kunnen omslaan, en dat Ethiopië bereid zal zijn - en ik vind dat wij daarop moeten aandringen, mijnheer de Commissaris - om de personen die momenteel in de gevangenis opgesloten zijn omdat zij mensenrechtenactivisten zijn, namelijk de heren Woldemariam, Nega en Lidetu Ayalew, vrij te laten, om de studenten in volle vrijheid naar hun campussen te laten terugkeren en om de fundamentele vrijheden te respecteren.
+Een Duke achter de tralies, is het leukste wat ik kan bedenken.
+Niemand op deze planeet wil deze man... liever achter de tralies dan ik.
+Een van de verdachten onthulde dat ze zich vooral zorgen maakte over of de politie met het 'bewijsmateriaal' zou knoeien en haar achter de tralies zou zetten niet voor wat ze had gedaan, maar juist voor wat ze niet had gedaan.
+wat ik heb gedaan is Darryl Crowe Jr. in leven gehouden, waardoor wordt gewaarborgd dat een 15-jarige jongen niet de rest van zijn leven achter tralies moet zitten voor een misdrijf dat zijn oom heeft gepleegd.
+Ik zorg dat je nooit meer uit de gevangenis komt.
+Ik zou een arbeider, omdat die een keer door grove nalatigheid een kraan niet heeft afgesloten, niet achter de tralies willen brengen en in zijn bestaan bedreigen.
+Dat is hoeveel criminelen ik achter de tralies heb gezet sinds ik deze baan kreeg, velen zouden een uitstekende reden hebben mij aan te vallen.
+Ik weet het nog niet - tot nog toe zijn telkens mijn slechtste vermoedens over de man uitgekomen - ik denk nog steeds dat een farang achter tralies brengen zijn status zal verhogen.
+Ze moeten hem opsluiten.
+Bovendien is nooit aangetoond dat de doodstraf een beter afschrikmiddel is dan de wetenschap dat je voor lange tijd achter de tralies gaat.
+Om Phillip Allen en hij is bereid om hem achter de tralies te zetten, waar hij ook hoort.
+In een elektrische driewieler zit de Piep Knor Jodel Band achter tralies, verbonden met een eenarmige bandiet.
+Maar kijk onder het vernisje en u zult ontdekken dat de gevangenissen tegenwoordig met ernstige problemen te kampen hebben, zoals de omhoogschietende kosten om wetsovertreders achter de tralies te houden en de steeds breder wordende kloof tussen wat men met opsluiting tracht te bereiken en de werkelijke resultaten.
+Maar mensen achter huizenhoog prikkeldraad plaatsen – kortom in een vreselijke gevangenis – waar zelfs de hulpverleners zich massaal terugtrekken, is een aanfluiting voor ons MENS-zijn en voedt onnodig de frustratie.
+José zegt dat het wegens zijn vroegere gedrag zeer wel mogelijk is dat hij de rest van zijn leven in dit samenstel van dingen achter de tralies moet doorbrengen.
+En ik denk... wat belangrijk is voor John Coogan... En zijn andere slachtoffers en hun families... is dat Zoran Brasha nu achter de tralies zit, waar hij en zijn organisatie niet langer op rooftocht gaan... op iedereen.
+Enkele grote misdadigers - ’ bonzen ’ werden voor zover ze nog niet achter de tralies zaten, gedurende de periode van de conferentie in verzekerde bewaring gehouden.
+Het is aan de kinderen om Luiz te ontmaskeren en zijn mythes over luizen te doorprikken.Zo kunnen ze hem als echte sheriffs achter de tralies krijgen.
+Wil je ze achter de tralies? Dan kun je mij beter helpen, oké?
+Nu we overtuigend hebben aangetoond dat er geen vluchtgevaar bestaat is het dan ook volstrekt zinloos en schandalig dat Juanra de komende maanden achter tralies moet blijven.
+Hij had er niks mee gedaan, maar hij moest wel een tijdje zitten.
+Mijn zoon had nooit opgesloten mogen worden.
+Op onze enige vondst van een reclame met kat én vogel (zie12), zit de vogel veilig achter tralies. Het is daarenboven niet een bijna-echte afbeelding, maar een echt exemplaar.
+Behind BarsBij het knusse Behind Bars drinkt u de lekkerste cocktails van Utrecht.
+Van achter een bureau pak je Big Boy niet.
+Kenule Saro-Wiwa zal nu een ongenadig proces te verwerken krijgen.
+Als we hem pakken... kunnen we hem achter de tralies krijgen.
+Ik verdwijn voor lange tijd achter de tralies, daar kun je zeker van zijn.
+- Twee jaar achter de tralies achter mij laten?
+Ze overlaadde deze gewetensvolle Bijbelonderzoekers met vervolgingen, beperkende verbodsbepalingen en gevangenzettingen, en in de vroege zomer van 1918 had ze het klaargespeeld dat de president van de Vereniging van Internationale Bijbelonderzoekers en nog zeven andere leden van het Wachttorengenootschap zich in de federale strafgevangenis in Atlanta, in de Amerikaanse staat Georgia, achter tralies bevonden, terwijl hun borgtocht en hoger beroep werden ontzegd.
+Een team dat me achter de tralies zou krijgen zou heerlijker geweest zijn.
+De tijd achter de tralies veranderd niet altijd het beste in een man.
+Beschouw de gestrande misdadigers en personen die aan verdovende middelen zijn verslaafd, door wie de maatschappij wordt aangetast, en beschouw hen die door de maatschappij achter tralies worden gehouden.
+Alles om die vent achter de tralies te krijgen.
+En het ging vanachter de tralies naar achter het glas.
+Saillant detail hierbij is dat Nödtveidts gitaar- en zangpartijen in de Hall Prison gevangenis zijn opgenomen in 2003.
+Ik begrijp dat Mags een oude schuld ingelost wilde zien..en dat Jed daarom zijn tijd achter de tralies verspilt en niet haar Dickie.
+- Door zaken tegen hun geliefden aan te spannen, hen achter de tralies te stoppen, zodat onze mensen veilig zijn.
+Hoe kon u 's nachts slapen, wetende dat een man die zielsveel van u hield twintig jaar in de nor zat door uw schuld?
+Layla M.Mijke de Jong98 min. / Fictie Hommagevertoning voor de Tibetaanse filmmaker Dhondup Wangchen die tijdens het festival precies twee jaar vastzit.... »
+Dan kunnen we hem daarna voorgoed opsluiten.
+Terwijl jij achter de tralies zat, zijn de valsemunters gewoon doorgegaan.
+Waarvan de inhoud jullie bevriende wethouder de cel kon doen indraaien.
+Het punt is, dat ik genoeg dingen heb in mijn privé archief in relatie tot privé huizen wegen contracten, en haven projecten genoeg om U, de OVJ, mijzelf en een tweederde meerderheid achter de tralies te krijgen voor de komende 20 jaar.
+Dandy-leugenaar krijgt levenslang
+Er volgt vandaag vrijheid na tien jaar cel, voor Carson Lazarus voormalig topagent van misdaadorganisatie HAVOC en een van ons land's beruchtste criminelen.
+Het kopstuk van Cole's kerstreclames achter de tralies zit-- ...er wordt vervanging ondernomen voor Mr.
+We gaan niet rusten tot ze achter tralies zitten. Of zelfs beter, tot we ze in een lijkzak steken.
+Flynn's briljante politiewerk hielp om deze engerd vast te zetten voor twee van die moorden.
+Hoe politiek aantrekkelijk het idee ook is om frauderende bankiers achter slot en grendel te zetten, het zal in de praktijk een hele kluif blijken om dat ook werkelijk voor elkaar te krijgen.
+Laten we deze man zo snel mogelijk weer achter de tralies krijgen.
+Het gaat dan niet alleen om mensen die beschuldigd worden van terrorisme, maar mensen die omwille van hun politieke mening in de gevangenis zitten.
+De voldoening van Frank Trimble achter de tralies zetten niet.
+Smokkelaar van allerhande koopwaar wordt Jason bij de grens met Poldachie-Golgovine gearresteerd met een vracht behoorlijk verdachte snoepjes die van het landhuis van de Nightmare komen en die een hele tijd buiten het zicht moeten worden opgeborgen.
+- Wetend wat ze zei, waarom zou die Zegan jongen akkoord gaan met een deal die zijn cliënt achter de tralies zet zonder zelfs een gevecht aan te gaan?
+Je zit binnen een week toch vast.
+Het hele dorp is uitgenodigd.
+De politie helpen om deze criminelen achter de tralies te krijgen, waar ze thuis horen.
+De vraag is of jij ze toestaat om die identiteit de komende tien jaar achter tralies op te sluiten.
+Dan Vasser zat weken in de gevangenis... omdat hij een bron niet wilde prijsgeven aan een Grand Jury.
+Tot drie keer toe namen wij afscheid van Juanra, die na uitlevering aan Spanje zeer waarschijnlijk voor jaren achter de tralies verdwijnt.
+Die zitten in de cel.
+Als je in de bak zit, merk je dat veel niet klopt.
+Of misschien moet ik het hoofd van de politie vragen wat hij van zijn rechercheur vindt... die met een vrouw omgaat die achter de tralies hoort.
+In mijn land zit 60 % van de gevangenen vast wegens delicten die verband houden met drugsverslaving, en van die 60 % is 40 % besmet met het AIDS-virus.
+En jij zit in de cel voor je daden.
+Agenten die gefrustreerd waren door de toenemende misdaad... en een rechtssysteem dat gearresteerden moest laten gaan... namen het recht in eigen hand.
+Hij moet jaren opgesloten blijven voordat het tot hem doordringt.
+Mike is vanavond... of welke avond dan ook niet meer veilig, omdat Gallo toch achter hem aankomt.
+Horatio probeert hem al een jaar lang achter de tralies te krijgen.
+Dit blijkt ook uit enkele recente belangrijke gebeurtenissen: generaal Ante Gotovina zit achter de tralies in Den Haag en de schrijver Orhan Pamuk kan vrij zijn mening verkondigen.
+Maar de moordenaar zit toch achter slot en grendel?
+Waarom doet Lasky dit? Omdat Reaser allang achter slot en grendel had moeten zitten.
+Mag je niet missen Toen de schattige beer achter de tralies belandde in Paddington 2, werd Kilmainham Gaol gebruikt als opnamelocatie voor het grimmige gevangenisinterieur.
+Als de prijs om Milos in de gevangenis te krijgen en je broer netjes te begraven, leven met dat mysterie is, is het dat dan niet waard... om weer levend te kunnen zijn?
+Achter tralies zitten tot gewoonte en ouderdom daaraan gewend zijn.
+Op het ogen­blik zijn de veroordeelde mensen in vrijheid en hebben zij beroep aangetekend tegen het eerste oordeel. Maar zij lopen het risico in de komende maanden achter de tralies te gaan.
+- Sluit zwarte mannen niet op... maar laat ze behandelen voor hun drugsgebruik. Dat is goedkoper en productiever.
+De cel ingaan voor een misdaad die je niet beging?
+Jacksonville mann achter staven voor pastatt levering meth, gereguleerde stoffen.
+Achter de tralies zitten
+de reden dat ik elke ochtend opsta.
+En binnen zes maanden sta jij voor een rechter, voor misdaden die ernstig genoeg zijn om je levenslang op te sluiten.
+In de paar dagen dat hij achter slot en grendel zat - want er werd uiteindelijk een regeling getroffen tussen de Nederlandse rechter en de Poolse rechter - in die paar dagen werden door de bewaking daar zijn medicijnen voor zijn hartkwaal gestolen.
+DE SAMENZWERING Er is een grote samenzwering binnen de regering... om mijn broer achter de tralies te krijgen.
+Deze keer zat hij veel langer achter de tralies.
+"maar hij zal zijn leven achter tralies doorbrengen
+Vraagje: waarom wil je Masovich zo graag uitschakelen?
+Bijna iedere veroordeelde achter de tralies zou beweren dat hij/zij niet weet wat zijn/haar misdaad was, of waarom hij/zij opgesloten was.
+Ze zitten al 66 jaar vast en nu zullen ze nooit vrij meer komen.
+De volgende zaterdag werden wij opgepakt en twee dagen lang achter tralies gesloten totdat er regelingen waren getroffen voor een borgtocht.
+En Nguyen Binh Thanh, tevens een medewerker aan het magazine Tu do Ngon luan – Vrijspraak, belandt vijf jaar achter de tralies.
+Er zitten nog 41 Palestijnse parlementsleden in de gevangenis en van de terugkeer van vluchtelingen wordt helemaal niet meer gesproken.
+Als haar ex in de cel zit, is ze tenminste veilig.
+De regering moet de politieke gevangenen die nog vastzitten weer op vrije voeten stellen en zij moet garanties bieden voor de eerbiediging van de mensenrechten en de vrijheid van meningsuiting, met name door de Nepalese veiligheidstroepen en soldaten.
+Zodra de getuige getuigt tegen Gabe, komt hij achter de tralies en zal hij mij met rust laten en kan Agent Knox die vrijpleiting er doordrukken.
+Bekeken 536 Toegevoegd 5 jaar geleden 05:00 Achter bars Bekeken 112 Toegevoegd 5 jaar geleden 07:59 Van de film ogen breed shut ritual scène.
+Achtergrond: Misstanden achter de tralies
+Maar ik wilde ze graag achter slot en grendel zien.
+Maar ik realiseerde me dan ook meteen dat er niets achter slot en grendel zat en dat goed opbergen toch in het vervolg beter zou zijn, hoewel je mag verwachten van een dergelijk hotel dat de medewerkers van je spullen afblijven.
+Ik word geen burgemeester als ik gevangen zit.
+Een journalist beschreef de ijver om misdadigers achter de tralies te zetten als de „sluit - ze - op - manie ”.
+Haar dochter zit in de bak en zij heeft het lef te zeggen dat ik een slechte ouder ben?
+In de isoleercel valt het niet mee om aan drugs te komen.
+Iets dat me achter de tralies kon brengen of zelfs het graf.
+Jackson achter de tralies gezet vandaag.
+In de tussentijd vullen de cellen zich met verkrachters, boeven en moordenaars, op koste van de belastingbetaler.
+De burgemeester ziet graag dat we de schutter hebben voordat haar vader landt op O'Hare.
+Ik zet jullie beide achter tralies in de staatsgevangenis.
+- Niets dat een nacht in de cel niet kan herstellen.
+Ik denk niet dat hij zal kunnen bogen op een gunsttarief. Dus in de praktijk denk ik dat de kans groot is dat hij voor minstens zes jaar binnengaat.
+De gebroeders Dankert worden geconfronteerd met een cliënt die wordt verdacht van het doden van oudere patiënten in een ziekenhuis.Het OM probeert Beatrice om een geldende reden achter de tralies te krijgen.
+Juanito Luksetić (39) en de heuvels aan Matulja werd gisteren veroordeeld tot twee jaar in de gevangenis, terwijl zijn stadsgenoot, 45-godišnjem Goranu Zakrajšeku, veroordeeld tot tien maanden in de gevangenis, terwijl achter de tralies belandde wegens illegale productie en bezit van marihuana voor verkoop, piše Novi list.
+Daar ben je alweer, Soleri.
+Veronica Day bedankt dezelfde mensen die haar 10 jaar geleden achter de tralies plaatsten.
+Al in 2005 schreef ik in een serie over de Amerikaanse martelpraktijken hoe tegen hoge beloningen onschuldige mensen achter de tralies verdwenen.
+Een misdadiger achter de tralies zetten kost de staats - en federale gevangenissen in de Verenigde Staten gemiddeld tussen de $12.000 en $24.000 per jaar.
+Een leven achter de tralies betekent dat hij nooit meer iemand anders zal kunnen kwetsen.
+Maar toen hij weigerde in militaire dienst te gaan, werd hij veroordeeld tot een gevangenisstraf van anderhalf jaar, die hij in negen verschillende gevangenissen heeft uitgezeten.
+En hen allebei levenslang op te sluiten.
+Gelukkig is een herhaling van dit scenario niet realistisch voor een man die voor de rest van zijn leven achter de tralies zit.
+Ze zetten deze lieve, prachtige, vieze man achter tralies zonder echtelijke bezoeken.
+Als ik de agent niet had gedood... had je nu vast gezeten.
+Als je dat wapen steelt, zit je de rest van je leven achter de tralies.
+Verbijsterd gaat Benedict op zoek naar de geheimzinnige Cristiani, en hoort al snel dat die inmiddels achter slot en grendel zit wegens oplichting.
+Het is natuurlijk uitgemaakte zaak dat een persoon is ploft op elk spel buiten de wet hij kan krijgen door voor maanden of zelfs jaren maar uiteindelijk gaat tot ontbinding van achter de tralies dat is zeker maar ze zijn niet veel criminelen die zal toegeven dat dit slechts vijftig procent van de maatschappij koks inname bron voor transport en hotelrekeningen hij voortdurend in beweging te houden en uh ... de gebruikelijke rondes van de nacht clubs en partijen politieke quiz vormt een big shot toon mij een man die een leven lang buiten de wet dat ik zal je laten zien een man die stierf als een armlastige Ik ben niet moraliseren in het maken van deze verklaring is het een feit een verhaal dat je zal je vanavond zeker laat zien dat misdaad niet loont in het hotel in het centrum van multi-mode een man of vrouw dansen waren zeer goed danser haar reis Ik heb al ze zijn niet zo stapt uit wonen in het centrum van niet alleen hoeveel mensen er niet veel ze um ... verstelwerk in vele op dit moment wat heb je nodig
 Hoewel de Venezolaanse autoriteiten hebben gemeld dat zij gescheiden wordt gehouden van de algemene gevangenispopulatie, zit zij, zoals hier al gememoreerd is, nog steeds achter de tralies in de INOF-vrouwengevangenis, mogelijk met gedetineerden die zij veroordeeld heeft.
-Het gevaar bestaat dat onze scheppingen ons opsluiten... en ons doen dansen, net zoals wij beren doen dansen.
+Een echte Superman, levenslang in de gevangenis.
+Misstanden achter de tralies 8 april 2006 – De bewaarders van de Havenstraat doen hun best, maar het gevangeniswezen staat steeds meer onder druk.
+Het plan was eenvoudig. We zouden hem achter de tralies zetten... uit de buurt van Williams.
+Ik zal je weer zien achter de trailies, of dood...
+Een psychopate die Grissom en ik achter de tralies hebben gezet.
+Ik wil Mack voor heel lang achter de tralies stoppen.
+Eén dader zit nog vast.
+Dus, al je zelfs maar een joint opsteekt, ga je achter de tralies voor drie jaar, en dan daarna, de volgende stap is de rest van je leven doorbrengen in een kooi.
+Hier denkt men dat Steven Avery zijn verdiende loon heeft gekregen en dat hij zit waar hij hoort: voor de rest van zijn leven achter de tralies.
+Edelachtbare, Freda Gathers zit achter de tralies door mijn familie
+2 jaar gevangen gezeten kwaad over hoe ik genaaid was.
+- Voorzichtig, deze twee leuke dames kunnen je voor de rest van je leven laten opsluiten.
+Afbeelding: Standbeeld van Domela Nieuwenhuis bij het Westerpark, foto Ruud Zwart / Wikipedia. Nieuwe Kerk tentoonstelling, meer over Domela Nieuwenhuis, veroordeling wegens majesteitsschennis, AT5 over zero tolerance, Spunk achter de tralies (met video van arrestatie), OM over het niet vervolgen van Spunkjournalisten
+Vijf kopstukken zitten achter de tralies terwijl andere leden voortdurend worden gepest.
+In de bak leer je geen moer.
+De rest van hun leven achter tralies verder leven!
+Maar als ik jullie weer betrap in die kostuums, gooi ik jullie zo snel achter de tralies, dat jullie... jullie capes wapperen.
+Miguel Ángel zit gevangen omdat hij te veel macht had.
+Ze waren een slag in het gezicht van de vele sukkelaars in de Cubaanse gevangenissen.
+Dat is de reden waarom onze soort het over de hele wereld zo goed doet terwijl de rest van de dieren in dierentuinen een kwijnend bestaan achter de tralies leiden.
+Met Mr. Hines opgesloten, voor 'n lange tijd,
+We moeten het zo doen dat Mack voor een lange tijd de bak ingaat.
+Als ze mijn borgtocht intrekken, zullen ze me tot het proces achter de tralies zetten met zelfmoordbewaking.
+Door Max opgesloten te houden, voorkomen we meer gewonden.
+Jullie hebben Boynton al in de bak zitten. Als hij eraan was gegaan door wat Tim dacht, wiens schuld was dat geweest?
+Wat als, de hele tijd, de echte Boston wurger achter de tralies zit, en hij nu buiten is?
+Hij gaat jaren de cel in. Had hij maar de waarheid verteld.
+Ik ga pas weg als Penticoff achter slot en grendel zit.
+Hij zal trouwens wel ergens vastzitten.
+SEKSUEEL MISBRUIK: In het artikel „Verkrachtingen achter tralies groot probleem ” zegt The New York Times dat er in de Verenigde Staten volgens een voorzichtige schatting„ jaarlijks ruim 290.000 mannen achter de tralies seksueel misbruikt worden ”.
+Dus na een nieuwe rechtszaak wist het Openbaar Ministerie eind oktober Juanra weer achter de tralies in Vught te krijgen.
+Wat overblijft is een schil die ofwel weg rot achter de tralies... of wordt geëxecuteerd.
+Ik wed dat Sheriff Connally, James chanteerde... om hem de locatie van het geld te geven... en hem toen in de gevangenis liet vermoorden. Toen liet een brief achter, om me in de val te laten lopen.
+Natuurlijk is een fundamenteel probleem hierbij dat een eventuele verandering van karakter die achter de tralies wordt teweeggebracht, soms weer verdwijnt als de gevangene eenmaal vrij is.
+- Denk erover na waar dit eindigt... het halve kamp achter de tralies, terwijl de andere helft verhongert.
+Ik liep de kans de rest van mijn leven achter de tralies door te moeten brengen.
+Dus als ik een kidnapper achter tralies krijg, wordt ik neergeschoten?
+Ze hebben er 25 jaar over gedaan om acht personen te veroordelen en maar liefst twee jaar in de gevangenis te gooien.
+Maar het houdt hem wel een tijdje achter de tralies.
+Of we belanden achter de tralies, of dood.
+Goderie Birgit Van Mol Producent San Fu Maltha Jeroen Beker Frans van Gestel Co-producer BNN Co-producer VTM Co-producer Michael Obel Ass.Producer Jean-Claude Van Rijckeghem Executive Producer Jos van der Linden Executive Producer Suzanne Corbeek Scenario Jan Verheyen Wijo Koek Jean-Claude van Rijckeghem Oorspronkelijk script Thomas Jensen Vet Hard - Too Fast Too Furious Na een mislukte juwelenroof verdwijnt snackbarhouder Bennie ruim vijf jaar achter de tralies.Als hij weer vrijkomt wacht hem een onaangename verrassing.
+Officier van justitie Kelley hield toezicht op de vrijlating van een man... die 14 jaar in de cel zat voor een misdaad die hij niet...
+Ik ben blij te kunnen verkondigen dat Gaétan Zampa achter de tralies zit.
+Ze laat je in de cel belanden voor wat je gisteravond deed.
+Als je me pijn doet, zit je weer vast voordat deze pizza koud is.
+Met name Syrische burgers die behoren tot religieuze minderheden alsook Assyrische christenen die terugkeren naar Syrië worden vrijwel zonder uitzondering gevangengezet.
+Binnenkort zal de duivel die u achter de tralies heeft gezet worden geketend... zijn corruptie en leugens zullen worden blootgesteld.
+Ik denk dat je genoeg mensen achter de tralies kent die je kan sturen om zich voor te stellen.
+Maar ik breng je naar daar, alleen. Geef me niet dat "alleen" onzin, of ik zet achter de tralies voor obstructie van de rechtsgang.
+Erger, de voorbije weken werden opnieuw een aantal prominente oppositiefiguren opgepakt en zonder enige vorm van beschuldiging opgesloten.
+Dit is een zware slag voor Juanra. Juanra zit sinds 26 oktober 2002 in de cel te wachten op enige voortgang in zijn zaak.
+Wat als ik je zeg dat als jij zegt dat het waar is, Francis Sullivan voor lange tijd achter de tralies gaat?
+Dat zouden meer Amerikanen eens moeten doen.
+Daarbij werd met name uitgebreide aandacht besteed aan de situatie van de vrouwelijke gevangenen : de relatie met hun familie, het moederschap, de levensomstandigheden, de reïntegratie in het sociale en het beroepsleven.
+En m'n naam zuiveren en senator Roark gaat achter de tralies.
+Wel als we Rayna opsluiten en de bom weer terug hebben.
+De adjunct-commissaris heeft daar genoeg om Robert Pardillo voor ongeveer duizend jaar achter de tralies te zetten.
+Dit is m'n laatste dag en... -Ik weet het.
+Ik ben psychiater en ik doe onderzoek naar gevangenen... en hoe ze in de gevangenis zijn gekomen.
+Hem achter de tralies te zetten kwam ten goede aan de maatschappij.
+Waarop hij tot antwoord kreeg: “Het is niet onmogelijk dat de bewakers ooit, samen met jou, achter tralies verdwijnen wegens het onwettig aanzetten van mensen tot dwangarbeid.
+Hem achter de tralies zetten zal niet helpen.
+Het arresteren van homoseksuelen op basis van hun seksuele geaardheid is een schending van de mensenrechten en geen kwestie van goed of fout, of natuurlijk of onnatuurlijk, aldus Gige Nyaga:
+Maar zit hij niet al sinds zijn arrestatie vast?
+‘Maar geschrapt na de première en die vijf jaar achter de tralies heeft doorgebracht omdat de vioolsolo’s niet de geest van het Socialistisch Realisme ademen.’
+Hem achter de tralies zetten lijkt me echt op elk vlak verkeerd.
+En ik wil niets liever dan dat jij van je troon wordt gestoten...
+Dank zij u, de klokken koning zit tenslotte achter de tralies.
+Nu zit dat kind vannacht opgesloten.
+We moeten ook het monitoren van de wetgeving van het land waarin wij leven, want anders we achter de tralies als eindigen kunnen de man die is veroordeeld tot twee jaar in de gevangenis doordat twee pistolen met hun 3D-printer.
+Al deze in gevangenschap levende vogels missen echter een eigenschap die alleen Severino heeft — hij weet in het wild te overleven.
+Seksualiteit werd door de Compuserve fanaten weer als vies en vunzig achter de elektronische tralies gestopt.
+Voor iemand die wordt beschuldigd van een misdaad kan degelijk bewijs het verschil maken tussen vrijheid en tijd achter de tralies - en een rechtvaardige uitspraak hangt vaak af van de veldwerkers en analisten die het bewijsmateriaal verzamelen.
+D'Andre zal de natuur zien van achter de tralies voor het aanvallen van een gerechtsdienaar.
 Te weinig daders eindigen echter de tralies, terwijl slachtoffers de grootste moeite hebben de draad weer op te pakken en opnieuw een plaats in de samenleving te vinden: op grond van recente gegevens kan voorlopig worden geconcludeerd dat het aantal veroordelingen wegens mensenhandel is afgenomen van ongeveer 1 500 in 2008 tot zo’n 1 250 in 2010.
-Bekijk grotere afbeelding Juanito Luksetić (39) en de heuvels aan Matulja werd gisteren veroordeeld tot twee jaar in de gevangenis, terwijl zijn stadsgenoot, 45-jaar- Goran Zakrajšeku, veroordeeld tot tien maanden in de gevangenis, terwijl achter de tralies belandde wegens illegale productie en bezit van marihuana voor verkoop, schrijft Novi lijst.
+-Misschien... is er iemand vrij die in de bak zat?
+een lokale mann is achter de tralies na zijn arrestatie gisteren in verschillende opzichten van pastatt levering van meth en gereguleerde stoffen.
+Met hulp van Green Arrow en zijn team is de Werpstermoordenaar gevangen... en zijn onze straten iets veiliger.
+Iedereen die oppositie voert tegen de regering kan zonder proces achter de tralies verdwijnen of onder administratief toezicht worden geplaatst.
+Je maakt winst door cellen te vullen, dus overheidsbeleid dat meer mensen achter de tralies zet, is goed, en preventie en rehabilitatie is slecht.
+Onze kans om die aanstellerige Canadese trut achter tralies te krijgen.
+Rose had informatie die deze man in de gevangenis kon brengen en zij belde Londen na twee jaar in een nieuw leven, een nieuwe identiteit.
+Poetin liet ze voor drie jaar opsluiten vanwege een illegaal optreden in de Christus Verlosserkathedraal in Moskou.SynopsisNadia, Masha and Katia werden in de winter van 2012 opgepakt door de Russische politie nadat ze in een 40 seconden durend optreden het nummer Punk Prayer te horen hadden gebracht in een van Rusland's belangrijkste kathedralen: de Christus Verlosserkathedraal in Moskou.
+Elk lid van ons gezin bevond zich nu hetzij achter de tralies of was ontvoerd.
+Ik wil Hector in de bak hebben.
+Die zit achter de tralies.
+Als je hier blijft, kun je haar 20 jaar lang van achter de tralies bekijken.
+Nederland en de Thaise regering hebben nu wel net een uitleveringsverdrag ondertekend voor de uitwisseling van Nederlandse gevangenen die langdurig in Thailand vastzitten.
+Ik wil die man net zo graag achter de tralies zien als u.
+Jouw bewijs kan iemand in de cel laten belanden.
+Maar ik wil u nu verzekeren Dat Robin en ik niet zullen rusten totdat hij veilig achter de tralies is.
+Er was geen gebrek aan ironie in het feit dat de New York Times reizen naar Iran organiseerde, terwijl Iraanse verslaggevers, waaronder Jason Rezaian van de Washington Post, in datzelfde land achter de tralies bleven zitten.
+En ik heb de middelen om hem voor de rest van z'n leven op te sluiten.
+Hoezo? Omdat je vorige maand twee van mijn partners achter de tralies hebt geplaatst?
+Als dat zo is, zal Hauser tegen strafrechtelijke vervolging aankijken, die hem voor de rest van zijn leven achter de tralies zou kunnen brengen, terwijl honderden investeerders gaan beseffen dat hun spaargeld verdwenen is.
+Onze hoofdverdachte zit al vijf jaar in de bak.
+Voormalig burgemeester Bellwether gaat achter de tralies schuldig aan de gewelddadige aanvallen in Zootropolis.
+Last Train Home Lixin Fan85 min. / Documentaire Tijden & Tickets Hommagevertoning voor de Tibetaanse filmmaker Dhondup Wangchen die tijdens het festival precies twee jaar vastzit.... »
+Zonder echte aanklacht
+Kindness, A Letter from Tibet Clémentine Ederveen62 min. / Documentaire Tijden & Tickets Hommagevertoning voor de Tibetaanse filmmaker Dhondup Wangchen die tijdens het festival precies twee jaar vastzit.... »
+Geen twijfel dat we onze man terug achter de tralies krijgen.
+Ik zat weken achter de tralies.
+Tariq zit de hele tijd achter de tralies.
+En wat Marty betreft... misschien wil je al je kinderen in de bak hebben... net als je broer Joey.
+Een van de meestgezochte mannen ter wereld zit weer vast.
+Hij liet zaad naar buiten smokkelen.
+De man had al lange tijd achter de tralies moeten zitten.
+Als je me aangeeft, zit je één jaar achter de tralies en je komt hier arm buiten.
+Het was de druppel die de emmer deed overlopen.Onmiddellijk daarop werd in Pando de noodtoestand afgekondigd, gouverneur Fernández belandde achter de tralies en VS-ambassadeur Philip Goldberg werd de laan uitgestuurd.
+Nu verdwijn je de rest van je leven achter tralies met die twee idioten.
+Denk je dat mij opsluiten iets verandert op straat?
+We werden weer gearresteerd en weer achter tralies gesloten.
+In detectives wordt de moordenaar ontmaskerd en achter tralies gebracht. Of hij wordt aan z'n beul overgeleverd.
+Hij had sinds zijn laatste overval in de cel moeten zitten.
+Wij moedigen de samenwer­king tussen de landen en de bestaande internationale en niet-gouvernementele organisaties aan om projecten op te zetten die van de informatietechnologieën gebruik maken.
+Vogels in gevangenschap
 Voorzitter, een aantal weken geleden is een gerechtelijke actie van de junta in Birma, om tientallen, minstens honderd leden van de oppositie, zoals de komiek Zarganar en de monnik Ashin Gambira, na schimmige processen achter de tralies te krijgen, afgerond.
-Deze voorbeelden van meer intensieve samenwerking tussen de lidstaten op het gebied van gevangenisomstandigheden vormen een belangrijke voorwaarde voor vrij heid, veiligheid en rechtvaardigheid, zaken waar wij alle maal - het Parlement, de Commissie en de Raad - aan zullen moeten werken.
-We moeten wel degelijk te berde brengen dat zigeunercriminaliteit in Hongarije en heel Europa een halt moet worden toegeroepen en moet worden uitgeroeid, en het zou goed zijn als de Hongaarse regering zich minstens even goed zou kunnen concentreren op haar taak in eigen land door gevolg te geven aan de wil van miljoenen Hongaarse kiezers en de vorige Hongaarse dictator, Ferenc Gyurcsány, eindelijk achter de tralies te krijgen.
+Misschien zal een tijdje achter de tralies je helpen te groeien, zoals dat bij je vader het geval was.
+Hé, ik ben niet degene die de hele dag weg was... om met iemand te praten die al 15 jaar vast zit... en absoluut niks kan weten... over wat dan ook van het hier en nu.
 De gevangenissen van Clint City zitten vol onbetrouwbare individuen, waarvan Hugo een echte legende is. Deze absolute recordhouder wat opsluitingen en ontsnappingen betreft, zit meer achter de tralies dan dat hij vrij is. Telkens als hij weer door de straten van de stad dwaalt, zijn er tientallen kandidaten die hem uitdagen om naam te maken.
-Toen ik woensdag 8 Mei vroeg of ik met het weekend naar Bandoeng mocht, zei de A.R. dat gezien de toestand in Europa hij het denkelijk niet kon toestaan. Vrijdag 10 Mei om zowat 11 uur kregen we het bericht van den inval in Holland. Onmiddellijk werden alle elementen, die gearresteerd moesten worden er achtergezet, en daarna pas ongeveer 2 uur werd het bericht aan het publiek vrijgegeven.
-Evenmin heeft het zin om een hele reeks activiteiten in de criminele sfeer te trekken - van critici, verslaggevers, intellectuelen of professoren, die vanwege een enkel citaat achter de tralies kunnen belanden - noch die van onschuldige gebruikers van de media waartoe wij nu toegang hebben dankzij de internettechnologie, en waardoor we door op een bepaald moment een bepaalde toets in te drukken, het risico lopen een strafrechtelijke overtreding te begaan.
+Daardoor verliezen de arrestanten iedere wettelijke bescherming en blijven voor onbepaalde tijd achter de tralies.
+Als er ook maar een hint van dit in de pers verschijnt, dan zullen u en de dokter een lange tijd achter de tralies verdwijnen.
+Een kijkje achter de tralies
+- Hij stopt in elk station. Ben je gestoord of zo?
+Ik heb niet voor niks zo lang vastgezeten.
+Ik ben blij dat hij achter slot en grendel zit.
+Hij vertelde me dat de gekke hoedenmaker je niet meer lastig zal vallen, hij en zijn bende zijn veilig achter de tralies en de rechter moet hem een stevige uitspraak geven.
+Voormalig minister van Ontwikkeling, Akis Tsoxatzopoulos, die het contract van de concessie ook ondertekende, werd gearresteerd voor witwaspraktijken en op 7 oktober 2013 vloog hij achter de tralies, voor 20 jaar.
+„ Tien jaar geleden werden misdadigers achter tralies opgesloten en zochten de mensen hun geluk op straat.
+Het is moeilijk om een goede vader te zijn vanachter de tralies of als je dood bent.
+Als iemand mij een jaar vastzet, Zou het mijn levenswerk zijn 'm te pakken en kijken hoe hij doodbloedt door een gat in zijn gezicht.
+Ik wil die klootzak achter de tralies voor zonsopgang... of mijn tante is mijn oom.
+Hij heeft vele drugs dealers achter tralies gekregen en er een aantal vermoord, oké.
+Als je gepakt wordt kun je de rest van je leven achter de tralies doorbrengen of erger.
+Alleen, achter de tralies leer je een stad niet echt kennen.
+Bekeken 5 Toegevoegd 4 jaar geleden 02:08 Corpulent superstar cotton candi has got laid in haar goed bips hole tunnel Bekeken 451 Toegevoegd 5 jaar geleden 05:00 Achter bars Bekeken 112 Toegevoegd 5 jaar geleden 05:00 Ashley en lilian are de heetste teenager females onto onze plaats.
+Vanavond kammen we iedere straat uit totdat we die gemaskerde freak vinden... en stoppen hem achter de tralies waar hij thuishoort.
+Als je alles optelt... dan heb ik mijn halve leven al achter de tralies gezeten.
+Aan de andere kant, nog een aantekening en je zit ook achter de tralies.
+– je zit alleen achter de tralies –
+Hij heeft 50 jaar geen vrouw gehad.
+Hasaan zal voor altijd achter tralies zitten.
+Maar als het leven niet wil zijn achter de tralies wegens een terroristische daad, de presidenten van games perfect diffuse de situatie en passies.
+De verantwoordelijke luitenant, William Calley, krijgt wegens massamoord twintig jaar cel, maar zit maar drie dagen achter de tralies.
+Zes of misschien zeven totale vreemden Voelde zich gedwongen achter de tralies aan u te bekennen zonder dat je er om vroeg?
+AL RUIM 130 jaar veroordeelt de Amerikaanse regering wie zich eraan schuldig maakt tot maximaal vijftien jaar achter slot en grendel in een federale gevangenis.
+Zelfs als de "echte" Wurger achter de tralies zat en dat hij voorwaardelijk vrij kwam, - is hij in de '60.
+Ze opsluiten en de sleutel weggooien
+De overheid meent dat de kampen open zijn, ook al zitten de bewoners achter de tralies op militaire bases, uit het zicht van de Hongaarse bevolking.
+De Wicklow Gaol Het leven achter de tralies Je bent nu in Wicklow, dat ook wel de tuin van Ierland wordt genoemd, maar waar de verschrikkingen van de 18e-eeuwse gevangenispraktijken nog steeds voelbaar zijn wanneer je door de Wicklow Gaol loopt.
+Daarna zijn we naar de Wat Chiang Man geweest, de oudste tempel en alleen de grote olifanten beelden en de buddha's achter tralies maakten het de moeite waard.
+Juanra maakt in Spanje geen enkele kans op een eerlijk proces en dreigt voor lange tijd achter de tralies te verdwijnen.
+Terug achter de tralies, een week na een andere overval.
+gearresteerd en daarna in vrijheid is gesteld, die vervolgens opnieuw zonder duidelijke reden is gearre­steerd, en die nu een van die politieke gevangenen is over wie de voorgaande spreker het heeft gehad.
+Lex, ik dacht dat je je nagels aan 't bijten was in de gevangenis.
+Juanra zit sinds 26 oktober 2002 in de cel te wachten op enige voortgang in zijn zaak.
+Wie hem ook vervolgt, ik hoop dat ze succes hebben... want ik denk dat we in een veel veiliger wereld leven... als hij wordt vastgezet, als hij niet los rondloopt.
+Sluit haar alsjeblieft voor een lange tijd op.
+Ik geef het niet op tot je voorgoed achter tralies zit.
+In de Verenigde Staten bijvoorbeeld zitten bijna twee miljoen mensen achter slot en grendel — velen van hen wegens drugsdelicten.
+Is een van deze stappen goed genoeg om hem weer achter de tralies te brengen?
+- Ik ben blij dat je vertrouwen toont, Jackson, want tot hij achter de tralies is,
+Wie zegt dat ik niet voor m'n daden boet, Michael?
+Bekijk grotere afbeelding Juanito Luksetić (39) en de heuvels aan Matulja werd gisteren veroordeeld tot twee jaar in de gevangenis, terwijl zijn stadsgenoot, 45-jaar- Goran Zakrajšeku, veroordeeld tot tien maanden in de gevangenis, terwijl achter de tralies belandde wegens illegale productie en bezit van marihuana voor verkoop, schrijft Novi lijst.
+Joekels Achter de Tralies... en, naar mijn bescheiden mening, het beste blad ooit.
+We hebben Chu opgesloten, maar het was een dure operatie.
+Ze zit haar hele leven al in 'n kooi.
+Scorpion De maniakale Mac Gargan zat de afgelopen jaren veilig achter de tralies in de Raft.Nu hij bevrijd is kan zijn rivaliteit met Spider-Man weer oplaaien.
+25 augustus 2009 – The Independent (Londen) 51 Justitie: Belgisch gangsterliefje gearresteerd Na drie ontsnappingen in minder dan twee weken, die het gevangeniswezen op zware kritiek heeft doen staan, heeft de Belgische justitie de drie gevangenen weer […] 12 augustus 2009 – Presseurop De Morgen Religie: Voorspellingen over islamitisering doorgeprikt Na de terroristische aanslagen in Londen en Madrid deden allerlei voorspellingen de ronde in kranten en op Internet dat de Islam een gewelddadige en radicale weg zou inslaan in Europa.
+Een onschuldige man staat op het punt achter de tralies te belanden door iets wat jij deed.
+Je zult Walter Sokoloff wel haten, omdat hij helpt je broer achter de tralies te houden.
+Mrs Washington, we hebben genoeg bewijzen om uw man voor vijf jaar op te sluiten.
+Hierdoor deed de muziek op 'Holy Target' heel erg denken aan Dissection en aangezien Dissection-chef Jon Nodtveidt in die tijd achter de tralies zat, was men een perfect concurrent voor Sacramentum om Dissection's plek op te vullen.
+Bekeken 536 Toegevoegd 5 jaar geleden 05:00 Achter bars Bekeken 112 Toegevoegd 5 jaar geleden 05:29 Verborgen lager lichaam onder het rokje Bekeken 28 Toegevoegd 4 jaar geleden 06:13 Schoolgirls met minirok uniform viewing harig Bekeken 29 Toegevoegd 4 jaar geleden 03:15 Geen panty onder het rokje Bekeken 9 Toegevoegd 4 jaar geleden 05:00 Faye is een schattig en schattig blondine die loves naar zijn buiten.
+De organisatie heeft er voor gezorgd dat deze (sterke) jongens geheel terecht achter de tralies werden geplaatst en zo een ruimte is heel wat anders dan een boksring en daar waren ze tenslotte voor gekomen.
+Ofje gevangen nemen en dan zou je dood willen zijn.
+Tsjechië: "Laatste der Mohikanen" van de maffioso gepakt
+Ik laat je opsluiten als je mijn dochter ooit nog eens aankijkt.
+Manson heeft meer macht achter de tralies dan toen hij vrij was.
+Laat het me zo zeggen, als ik deze uitrusting had, was jij al jaren geleden opgesloten geweest.
+Hij bracht achttien maanden in de gevangenis door, maar zelfs achter de tralies zette hij zijn politieke activiteiten voort door aan hongerstakingen mee te doen en bij één gelegenheid zijn polsen door te snijden.
+Jij gaat terug achter de tralies waar je thuishoort.
+Richardson zal nog lang brommen.
+Eén voorbeeld dicht bij Europa, namelijk Turkije, waar Syrische christenen nog altijd gevangen worden gezet wanneer zij actief hun godsdienst belijden.
+Je zit niet vast omdat je vrouw de borgsom kon betalen.
+Denkt u dat ik veilig ben nu ze achter de tralies zit?
+En voordat ik het weet, Ik ben achter de tralies weer.
+Dissidenten verdwijnen vaak voor een belachelijk lange periode achter slot en grendel.
+Ooit was hij een toonbeeld van gerechtigheid maar vanavond zit Jack Doyle in de cel.
+Kanaries zitten altijd achter tralies.
+Heb je vingerafdrukken?
+Jij bent een moeder, en Emily hoort in de gevangenis doordat van jou weg te hebben gehaald.
+Vergeet Neverland. Je groeit straks op achter de tralies: Levenslang voor moord.
+De heren achter dit label verdwenen in 1985 echter achter de tralies als gevolg van de nodige frauduleuze praktijken en dit leek de nekslag te zijn voor deze talentvolle band.
+En dan haal ik je niet alleen van de zaak.... ik zet je achter tralies samen met je vriendje.
+Van sommigen waren vingerafdrukken en foto’s gemaakt, waarna ze als misdadigers achter de tralies waren gezet.
+Hopelijk, zit hij dan al lang achter tralies.
+● Bijna twee miljoen volwassenen in de Verenigde Staten zaten tegen het eind van 1981 achter de tralies, of waren voorwaardelijk veroordeeld of voorwaardelijk in vrijheid gesteld.
+U moet het serieus nemen, anders belandt u weer achter de tralies.
+De vraag die we ons moeten stellen, is of seksuele geaardheid een reden is om iemand te arresteren, of, zoals onze aardige premier stelt, "over te dragen aan de relevante autoriteiten".
+“Mijn” Mandela is de gevangene, de Mandela van het Robbeneiland, die 27 jaar achter de tralies heeft doorgebracht (waarvan 18 op een rots in de zuidelijke Atlantische Oceaan) en daar toch vandaan is gekomen met een intacte geest, vol van een visioen over een tolerant Zuid-Afrika, een natie die zelfs openstond voor de architecten en de profiteurs van de Apartheid.
+Ik spendeerde mijn volgende zeven verjaardagen achter de tralies. Voor mijn deel in de Loomis Fargo overval.
+Als we goede wetten hadden en goede rechters met ballen genoeg om deze drugshandelaren achter de tralies te zetten en de sleutels weggooiden of een touw om hun nek deden.
+Jij zorgde ervoor dat ik mij achter de tralies een fatsoenlijk mens zou voelen.
+Een jongen die kon opgesloten worden voor ik weet niet hoeveel jaar.
+Kom, we brengen eerst deze boeven naar de gevangenis.
+Bolan zal minimaal 25 jaar achter de tralies doorbrengen in Blackwater Staatsgevangenis.
+De UNMIK moet ervoor zorgen dat er een rechtskader komt waarmee men de daders kan oppakken, achter tralies kan zetten en bestraffen.
+Als ik hem achter de tralies heb, en hij eet ma's eten... dan ga ik met hem schaken.
+Nadat Spider-Man dit bedrog ontdekte, liet hij met hulp van Harry Osborn en de echte FBI.
+Met Javier achter de tralies en zijn familie in puin, is Los Angelicos voorbij.
+Zwanger in gevangenschap: Gezondheid en rechten van vrouwen achter de tralies
+Geloof me, ik wil net zo graag als jij dat ze gevangen wordt.
+Want ook de Amerikaanse autoriteiten hebben toegegeven dat er een aantal onschuldigen vastzit.
+Dus je gooide iemand onschuldig 3 jaar achter de tralies...
+Als dat het niet is, zetten ze me achter slot en grendel.
+Terwijl Binnenlandse Zaken de commissaris... vraagt om met spoed de moordenaar te arresteren.
+Hitler belandt achter de tralies en de rechter verbiedt de NSDAP.
+U hebt pas zelf nog even achter de tralies gezeten.
+Ik hou van films over meiden achter tralies.
+Ik hoop je snel achter de tralies te zien.
+Zie ik een trotse zwarte man ook graag achter de tralies?
+'Als privédetective Juha Korppi een klus aanneemt belanden criminelen in de cel en vrouwen in z'n slaapkamer.'
+Ik denk bijvoorbeeld ook aan de communistische dictatuur van Cuba, waarnaar in dit verslag voorzichtig verwezen wordt, maar waar opposanten zonder vorm van proces voor maanden en jaren in de gevangenis verdwijnen terwijl het regime van een oude en seniele misdadiger tegen de mensheid zich laaft aan de deviezen van liederlijke West-Europeanen.
+Dat type voelt zich beter thuis achter de tralies dan ervoor.
+Ga maar 'n tijdje harp spelen op de tralies.
+Indien schuldig bevonden, geschat wordt hij geconfronteerd kunnen tot 99 jaar achter de tralies en miljoenen dollars aan boetes-een verre schreeuw van een paar jaar voor dezelfde kosten in het verenigd koninkrijk onder de Computer Misuse Act.
+Ik probeerde alleen om Emily weer in de gevangenis te krijgen, waar ze thuishoort.
+Op onze enige vondst van een reclame met kat én vogel (zie 12), zit de vogel veilig achter tralies.Het is daarenboven niet een bijna-echte afbeelding, maar een echt exemplaar.
+Hij hoort de rest van z'n leven in de cel te zitten.
+Je zei dat hij vastzat en het niet kon geweest zijn.
+-lk wil hem achter de tralies. Zodat ouders opletten als ze tijdens een hittegolf uit de auto stappen.
+Maar haar moeder is des duivels en waarschuwt Benjamin dat hij weg moet blijven van haar dochter.
+Jij hoort eigenlijk thuis in een dierentuin.
+Wanneer zijn vader hem achterna komt worden de twee opgepakt op verdenking van spionage en verdwijnen zij voor jaren achter de tralies.
+Lilly's moordenaar achter de tralies, check.
+Cruel and Unusual2012 18 feb - 8 apr 2012 Cruel and Unusual Lizzie Sadin CHILDREN BEHIND BARS 1999-2007 De manier waarop de overheid zijn gevangenen behandelt, is een goede graadmeter voor de kwaliteit van zijn democratie.
+Poetin liet ze voor drie jaar opsluiten vanwege een illegaal optreden in de Christus Verlosserkathedraal in Moskou.Synopsis Nadia, Masha and Katia werden in de winter van 2012 opgepakt door de Russische politie nadat ze in een 40 seconden durend optreden het nummer Punk Prayer te horen hadden gebracht in een van Rusland's belangrijkste kathedralen: de Christus Verlosserkathedraal in Moskou.
+Angelique hoopte dat haar dood haar dochter's moordenaar achter de tralies zou brengen en hier is mijn voorspelling, het zal zo zijn.
+Ik wil iedereen achter de tralies zien... voor het einde van de dag.
+Toen Bunky achter de tralies zat, ging ik de beest uithangen. - Ik begon te drinken en te roken.
+Zouden New York, Frankfurt, of zelfs Parijs geen concurrentievoordeel in de schoot geworpen krijgen als internationale bankiers, bevreesd om achter de tralies te belanden als hun derivatentransacties opnieuw uit de hand lopen, de City ontvluchten?

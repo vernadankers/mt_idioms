@@ -1,20 +1,6 @@
-Kun je een bocht werpen ?	-0.6460213661193848
-Je gooit een curveball terug .	-0.36647671461105347
-Ik kan geen curveball gooien .	-0.4103216826915741
-Leerde me hoe ik een curveball moest gooien .	-0.4958683252334595
-Weet je hoe je een bocht moet gooien ?	-0.5434554815292358
-Ik weet hoe ik een bocht moet maken .	-0.5729063153266907
-Gooi een curveball naar ze of zoiets .	-0.5487915277481079
-Het lot , het lot , hoe je een curve bal gooit .	-0.5416553020477295
-Iemand probeert een bocht naar mijn kind te werpen !	-0.5974530577659607
-Hij gooit een curve bal waar we het het minst verwachten .	-0.5234943628311157
-Misschien moet je hem leren hoe hij een curveball moet gooien voordat ik weg ben .	-0.46648693084716797
-Dus ... laat ME een curve bal in de pot gooien .	-0.3157249689102173
-Mac zei dat je dit moest doen .	-0.5687816739082336
-Als je niet thuis bent , wie zal me dan laten zien hoe ik een curve bal moet gooien ?	-0.3784022331237793
-Ik gooi een curveball , ik ga banaan maken en dan ben ik klaar voor de tweede ronde .	-0.5757654309272766
-Vecht tegen die binnenin snelle ballen uit vroeg of laat zullen ze niet in staat zijn om te helpen , maar gooien een curve .	-0.563538134098053
-De vele-wereldse hypothese van kwantumfysica zegt dat als ik een curveball gooi , ik dat alleen doe in dit universum .	-0.3600061237812042
-Pitchers die kunnen gooien een curveball volledig overhandigt met de arm slot min of meer verticaal zal een curveball die zal breken recht naar beneden .	-0.3946080207824707
-We schieten de grappen op je af als een automatisch wapen van komedie . We gooien een curve bal grap naar je , slaan je recht op je hoofd .	-0.5025431513786316
-Het echte onrecht hier is als ik een curveball ... je weet wel , een echt goede ... alleen dat , niets anders , geen opleiding , niets ... niets van dit alles zou uitmaken .	-0.3958475887775421
+Hij gooit een curve bal waar we het het minst verwachten.
+Dus... laat ME een curve bal in de pot gooien.
+Iemand probeert een bocht naar mijn kind te werpen!
+We schieten de grappen op je af als een automatisch wapen van komedie. We gooien een curve bal grap naar je, slaan je recht op je hoofd.
+Als je niet thuis bent, wie zal me dan laten zien hoe ik een curve bal moet gooien?
+Het lot, het lot, hoe je een curve bal gooit.

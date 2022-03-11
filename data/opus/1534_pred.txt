@@ -1,23 +1,8 @@
-`` het gras is altijd groener ... ''	-0.30963271856307983
-Het gras is altijd groener ...	-0.23251919448375702
-Ja , het gras is altijd groener .	-0.194120854139328
-Het gras is altijd groener .	-0.2867978513240814
-Het gras is altijd groener .	-0.20013098418712616
-Het gras is altijd groener .	-0.21061453223228455
-Het gras is altijd groener .	-0.2295246720314026
-Het gras is altijd groener .	-0.19724860787391663
-Het gras is altijd groener , dus ...	-0.2506446838378906
-Nou , het gras is altijd groener , toch ?	-0.4244176745414734
-Het gras is altijd groener aan de andere kant .	-0.20568139851093292
-Maar ik denk dat het gras altijd groener is , toch ?	-0.2620319724082947
-Het gras is altijd groener aan de andere kant .	-0.20568139851093292
-Ik zou zeggen dat het gras altijd groener is , maar ...	-0.21794617176055908
-Het gras is altijd groener in de tuin van een ander insect .	-0.22878395020961761
-Je weet wat ze zeggen , het gras is altijd groener .	-0.2253704071044922
-Het eindigde omdat Suzy denkt dat het gras altijd groener is aan de andere kant .	-0.25570401549339294
-Het gras is altijd groener aan de andere kant , althans volgens Alfie .	-0.21175864338874817
-Het gras is altijd groener , Catherine .	-0.3018946349620819
-Het weer is vaak killjoy , het gras is altijd groener elders en bergen ook niet .	-0.28227895498275757
-Als Mike naar je kijkt , Danny , ziet hij ... wat , Mike ?	-0.35207366943359375
-Maar voor een schaap is het gras altijd groener aan de andere kant van het hek en voorbij de kust strekte de maagdelijke wereld van het land massa 's	-0.2886256277561188
-♪ Too many years spend living in what could be ♪ ♪ Eindelijk is mijn leven zoals het zou moeten zijn ♪ ♪ The grass is always greener ♪	-0.31689560413360596
+Het gras is altijd groener aan de andere kant, althans volgens Alfie.
+Het eindigde omdat Suzy denkt dat het gras altijd groener is aan de andere kant.
+Nou, het gras is altijd groener, toch?
+Het gras is altijd groener aan de andere kant.
+Het weer is vaak killjoy, het gras is altijd groener elders en bergen ook niet.
+Maar voor een schaap is het gras altijd groener aan de andere kant van het hek en voorbij de kust strekte de maagdelijke wereld van het land massa's
+♪ Too many years spend living in what could be ♪ ♪ Eindelijk is mijn leven zoals het zou moeten zijn ♪ ♪ The grass is always greener ♪
+Het gras is altijd groener in de tuin van een ander insect.

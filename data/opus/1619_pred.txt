@@ -1,37 +1,8 @@
-Laten we de schroeven draaien .	-0.3663710653781891
-Draai de schroeven om .	-0.37391671538352966
-Ik moet de schroef draaien .	-0.26189354062080383
-Ipse dixit , draai gewoon de schroef .	-0.2764522433280945
-Ik heb iets nodig om de schroeven te draaien .	-0.383945107460022
-Je bent hier om de schroeven te draaien .	-0.37363290786743164
-Laten we de schroef draaien .	-0.36565786600112915
-We moeten de schroeven draaien op de klootzakken .	-0.5137274265289307
-Ja , ik draaide de schroef een beetje .	-0.40690919756889343
-Als we Thorne de schuld geven , breken we hem .	-0.46956756711006165
-Dus bel Lincoln , meneer , en draai de schroeven .	-0.2939060926437378
-Wanneer doet een piano , draai de schroeven zogenaamde vocale nagels .	-0.335761696100235
-Sorry dat ik je liet wachten .	-0.34454256296157837
-Maar hij mist het instinct van de vechter om de schroeven te draaien .	-0.4220938980579376
-Draai de schroef , het scheurt de botten . Osteogene cellen stromen binnen .	-0.41473856568336487
-Dan draaien we de schroeven om tot je interesse hebt .	-0.5699201226234436
-Laten we de schroef draaien ... hem laten denken dat het net dichterbij komt .	-0.4152616560459137
-Hierdoor kunt u eenvoudig de hoes beveiligen en de schroef draaien .	-0.5230755805969238
-Wat , en de kans missen om de schroeven naar mij te draaien ?	-0.6247801184654236
-En we riskeren slechte informatie te krijgen als we de schroeven draaien .	-0.4151996076107025
-Als je de schroef van een bepaald zadel draait , beweegt hij vooruit of achteruit .	-0.4035062789916992
-Ik heb politie van een dozijn districten die vrijwilligerswerk doen om deze jongens de schuld te geven .	-0.720348596572876
-Mrs. Mailer zal het niet kunnen weerstaan om die te gebruiken om de schroeven op haar man te draaien .	-0.4502973258495331
-Laotiaanse kleuters zijn niet groot genoeg om de schroeven aan te draaien , dus ...	-0.5952499508857727
-Morgen krijg ik de uitslag van de bloedtesten , en dan draaien we de schroef om tot hij het bekent .	-0.5579056143760681
-Ik geef toe dat het verdacht lijkt , maar ik hoop dat er een andere reden is om een van onze slachtoffers de schuld te geven .	-0.47758084535598755
-We hadden de foto 's ... maar we hadden de dreiging nodig dat het meisje zou kunnen getuigen om echt de schroef te draaien .	-0.4300209581851959
-We naaien de duim weer omhoog en de komende weken draaien we langzaam de schroeven en strekken ze het bot uit .	-0.4337622821331024
-We hebben hem nodig , zodat we de gouverneur kunnen pakken ... en de olie weer aan kunnen zetten voor Cliff het bedrijf overneemt .	-0.5476774573326111
-We kijken naar raadsman Madhavan 's huis , we draaien de schroeven een beetje harder voor de kinderen , of we laten ze gaan , zien waar ze ons leiden ?	-0.35168397426605225
-Tegen de Verenigde Staten zou ik willen zeggen dat ik hoop dat zij vanwege de verkiezingen niet te streng zullen zijn omwille van binnenlandse politieke redenen .	-0.5357239246368408
-Het is duidelijk dat het mandaat nauw aansluit bij de inspanningen van de Commissie om het gemeenschappelijk landbouwbeleid aan te passen teneinde de controle op de overschotproduktie aan te scherpen en de landbouwuitgaven aan te pakken .	-0.4436040222644806
-Ze ontdekten dat deze bilaterale overeenkomst hen in staat stelt om de schroeven zeer strak op Airbus over directe steun te draaien .. omdat Airbus krijgt lancering steun die ... maar stelt hen in staat om te ontsnappen aan eventuele controle op indirecte steun .	-0.6038675904273987
-Mijn tweede reden is een kwestie van parlementaire ethiek : het verslag van de heer Baron Crespo is een grimmige verklaring van de vastberadenheid van de Begrotingscommissie , met steun van bepaalde landen en nationaliteiten , om het Europees Parlement aan de praat te krijgen .	-0.4889794886112213
-Het is onze taak om tastbaar en duurzaam betrouwbaar op te zetten of - met uw toestemming leen ik een woord van onze definitie van modern landbeheer - duurzame randvoorwaarden en niet om de schroeven - inclusief de kleine - nog verder te draaien .	-0.39969855546951294
-Ik was gepassioneerd geïnteresseerd in techniek en technologie.Ik verwijderde vaak covers van transistor radio 's om de schroeven van die mysterieuze afstelapparaten binnen te draaien , in de hoop de ontvangst en gevoeligheid te verbeteren.Natuurlijk ging dat vaak mis , met een volledig falende radio als gevolg , maar het bleef me intrigeren .	-0.3818095922470093
-Een brug kan soms verschuiven van zijn plaats als de snaren zijn uitgerekt zwakker . Als je gitaar gestemd in een open E klinkt perfect maar een barre akkoord op het midden van de nek van de tune hopeloos , dan moet je de snaar lengte aanpassen door gebruik te maken van de brug . Als je draait de schroef van een bepaald zadel beweegt vooruit of achteruit .	-0.3415023684501648
+Als we Thorne de schuld geven, breken we hem.
+Ja, ik draaide de schroef een beetje.
+Als je de schroef van een bepaald zadel draait, beweegt hij vooruit of achteruit.
+Tegen de Verenigde Staten zou ik willen zeggen dat ik hoop dat zij vanwege de verkiezingen niet te streng zullen zijn omwille van binnenlandse politieke redenen.
+Mijn tweede reden is een kwestie van parlementaire ethiek: het verslag van de heer Baron Crespo is een grimmige verklaring van de vastberadenheid van de Begrotingscommissie, met steun van bepaalde landen en nationaliteiten, om het Europees Parlement aan de praat te krijgen.
+Het is duidelijk dat het mandaat nauw aansluit bij de inspanningen van de Commissie om het gemeenschappelijk landbouwbeleid aan te passen teneinde de controle op de overschotproduktie aan te scherpen en de landbouwuitgaven aan te pakken.
+Een brug kan soms verschuiven van zijn plaats als de snaren zijn uitgerekt zwakker. Als je gitaar gestemd in een open E klinkt perfect maar een barre akkoord op het midden van de nek van de tune hopeloos, dan moet je de snaar lengte aanpassen door gebruik te maken van de brug. Als je draait de schroef van een bepaald zadel beweegt vooruit of achteruit.
+Morgen krijg ik de uitslag van de bloedtesten, en dan draaien we de schroef om tot hij het bekent.

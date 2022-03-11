@@ -1,236 +1,39 @@
-`` Onder het weer '' ?	-0.4497032165527344
-'Onder het weer ' .	-0.47409769892692566
-Ben je onder de weer ?	-0.5968336462974548
-Voel je je niet lekker ?	-0.34215229749679565
-Hij is er slecht aan toe .	-0.5980641841888428
-Ik ben onder de weersomstandigheden .	-0.6018194556236267
-Sid is onder zeil .	-0.5004554986953735
-Beetje onder het weer ?	-0.6465973258018494
-Onder het weer , toevallig .	-0.6916343569755554
-- Onder het weer .	-0.4851616322994232
-Ze is onder zeil .	-0.5386630892753601
-- Onder het weer ?	-0.5592829585075378
-Onder het weer ?	-0.6630024909973145
-Hij is er slecht aan toe .	-0.5980641841888428
-Ik ben onder de weersomstandigheden .	-0.6018194556236267
-Beetje onder het weer .	-0.43277326226234436
-Beetje onder de weersomstandigheden ?	-0.775201678276062
-Beetje onder het weer .	-0.47249165177345276
-Nou , ze zijn onder de weersomstandigheden .	-0.5767776370048523
-Tony is niet onder de weersomstandigheden .	-0.44374996423721313
-Ik ben onder de weersomstandigheden ... zwaar .	-0.4711242616176605
-Je lijkt onder de weersomstandigheden .	-0.5911753177642822
-Ik bedoel , onder het weer .	-0.4144030809402466
-Voel je je niet lekker ?	-0.30934345722198486
-Ben je onder de weer , Lil ?	-0.5181237459182739
-'Een beetje onder het weer ?	-0.6213250160217285
-- Ik voel me niet lekker .	-0.6489231586456299
-Een beetje onder het weer ?	-0.639259397983551
-Misschien is hij onder zeil .	-0.5184754729270935
-Ben je onder zeil ?	-0.657157838344574
-Een beetje onder het weer .	-0.5446682572364807
-- Hij is onder zeil .	-0.6505893468856812
-Bang dat ze onder zeil is .	-0.5240738391876221
-Kerry , ben je onder zeil ?	-0.4971972703933716
-Ik ben onder de weersomstandigheden geweest .	-0.5452694296836853
-Ik ben echt onder de weersomstandigheden .	-0.6100948452949524
-- Ik ben gewoon ... onder de weersomstandigheden .	-0.520141065120697
-Aanraken onder het weer , nietwaar ?	-0.6711042523384094
-Mr Stroh voelt zich niet lekker .	-0.32212603092193604
-Nog steeds onder de weersomstandigheden , denk ik .	-0.5260324478149414
-Ik ben een beetje onder de weer .	-0.599255383014679
-Ik ben een beetje onder de weer .	-0.599255383014679
-Ik ben een beetje onder de weer .	-0.599255383014679
-Ik hoorde dat je onder zeil was .	-0.4707617163658142
-Charlie is een beetje ziek .	-0.5166853666305542
-- Ik voel me niet zo lekker .	-0.6811822056770325
-Ik voelde me niet lekker .	-0.41666409373283386
-Je ziet er slecht uit , Hal .	-0.3769649863243103
-Je ziet er een beetje slecht uit .	-0.6216754913330078
-Niet te slecht gisteren ?	-0.6360068321228027
-Is ze nog steeds onder zeil ?	-0.5108231902122498
-Ze is een beetje onder de weer .	-0.5880666375160217
-Hij zei dat hij onder zeil was .	-0.47964879870414734
-Ze is een beetje onder de weer .	-0.5880666375160217
-Is Mrs. Bulworth onder zeil ?	-0.4840421676635742
-Hij is een beetje onder de weersomstandigheden .	-0.6084513664245605
-Ja , ik ben ... onder het weer geweest .	-0.47960764169692993
-Hij is een beetje ziek .	-0.605767548084259
-Ik ben een beetje onder de weer .	-0.599255383014679
-Julia voelt zich een beetje slecht .	-0.4392563998699188
-Ze voelt zich een beetje slecht .	-0.5057542324066162
-Ze is de laatste tijd onder zeil .	-0.6182258129119873
-Het spijt me te horen dat je onder zeil bent .	-0.5006402134895325
-Ik ben gewoon een beetje onder de weer .	-0.6552265882492065
-Hij ziet er dood uit .	-0.38304176926612854
-Waarom ben je onder de weersomstandigheden , is het niet ?	-0.6929689645767212
-Ze voelt zich een beetje slecht .	-0.5057542324066162
-- Ze is een beetje onderkoeld .	-0.6252469420433044
-Ze is een beetje onder de weer .	-0.5861734747886658
-Hij was een beetje onder de weersomstandigheden .	-0.5803574323654175
-Je lijkt een beetje onder het weer .	-0.5937910676002502
-Mijn osmotische paling is onder het weer .	-0.40829840302467346
-Sorry , hij is een beetje onderkoeld .	-0.46484512090682983
-Ze zei dat ze zich niet lekker voelde .	-0.4052688777446747
-- Ik voelde me niet lekker ...	-0.5403726100921631
-Voelt Stella zich niet lekker ?	-0.39551907777786255
-- Ik voel me een beetje slecht .	-0.6571550965309143
-- Hij is een beetje onderkoeld .	-0.6228761076927185
-Ik voel me een beetje slecht .	-0.43844228982925415
-Dr. Karev , ik voel me een beetje slecht .	-0.3714119791984558
-Je lijkt een beetje onder het weer .	-0.5937910676002502
-Ik voel me gewoon niet lekker .	-0.4854279160499573
-Ik ben gewoon een beetje onder de weer .	-0.632426381111145
-- Ik ben een beetje onder de weer .	-0.7525666952133179
-Lemon , je ziet er een beetje slecht uit .	-0.3883368968963623
-Ze is een beetje onder het weer vanmiddag .	-0.48890945315361023
-Ik begrijp dat je een beetje onder zeil bent .	-0.5627421736717224
-Is Eileen nog onder zeil ?	-0.5592840313911438
-Ik voel me een beetje slecht .	-0.562428891658783
-Jongens , hij voelt zich een beetje slecht .	-0.4189414083957672
-Ik voel me een beetje slecht .	-0.45977655053138733
-Het spijt me te horen dat je onder zeil bent .	-0.522739589214325
-Ze vertelde me dat je onder zeil bent .	-0.543616771697998
-Ik voel me een beetje slecht , dus ...	-0.38350972533226013
-Hij zei dat zijn moeder onder zeil was .	-0.4139043390750885
-Hij voelde zich niet lekker thuis .	-0.4598316550254822
-Hij voelde zich een beetje slecht .	-0.5271492004394531
-Ik zei hem dat je onder zeil was .	-0.5562836527824402
-Ze voelt zich een beetje slecht .	-0.5157676935195923
-Hij is een beetje , je weet wel , onder het weer .	-0.4285360276699066
-Ja , sorry , alleen een beetje onder het weer .	-0.515442430973053
-Nusrat is een beetje ... onder de weersomstandigheden .	-0.45516493916511536
-Misschien was hij onder de weersomstandigheden .	-0.6207647919654846
-Ze is een beetje slecht , ben ik bang .	-0.5299977660179138
-Ik ben gewoon een beetje onder de weer .	-0.7350866198539734
-Mama voelt zich een beetje slecht .	-0.5389707684516907
-Ik ben bang dat hij een beetje ziek is .	-0.5086958408355713
-Ik ... ik ben een beetje onder de weersomstandigheden geweest .	-0.682651162147522
-Ik voel me een beetje slecht .	-0.5555770993232727
-Hij ziet er een beetje ... onder het weer uit .	-0.38872429728507996
-Voel je je een beetje onder het weer ?	-0.39620208740234375
-Ik weet niet zeker waarom ik me zo slecht voel .	-0.4163891077041626
-Ja , ik hoorde dat je onder zeil was .	-0.4728217124938965
-Ze is een beetje onder de weer , mevrouw .	-0.5420506000518799
-Ik werd wakker toen ik me een beetje onder het weer voelde .	-0.6571932435035706
-Nou , misschien ben ik een beetje onder de weer .	-0.5953768491744995
-Nou , ik ben de laatste tijd een beetje onder de weersomstandigheden geweest .	-0.622212827205658
-`` Sorry , ik kan niet komen vanavond , gebeten onder het weer . ''	-0.4968861937522888
-Ik voel me een beetje onder het weer vanmorgen .	-0.45520976185798645
-Ik was een beetje onder het weer die dag .	-0.422235369682312
-Nou , ik was ... een beetje onder de weersomstandigheden .	-0.5028077960014343
-Ik ben een beetje moe , een beetje onder de weersomstandigheden .	-0.48126062750816345
-Ze ligt boven te rusten , een beetje onder het weer .	-0.6246899962425232
-Voel je je niet lekker ?	-0.42517051100730896
-Harry is , uh , een beetje onder de weersomstandigheden deze dagen .	-0.4836645722389221
-Brenda is een beetje onder het weer .	-0.5332110524177551
-Kan ik je ergens mee helpen ?	-0.2689582407474518
-Ik ben bang dat vader zich een beetje slecht voelt .	-0.48186540603637695
-Hij voelt zich een beetje slecht , zie je ?	-0.4770638346672058
-Ik was bang dat hij weer ziek was .	-0.4089604318141937
-Ik kan mijn leraars kont niet onder het weer hebben .	-0.6849866509437561
-Ik hoor dat je je een beetje slecht voelt .	-0.46065664291381836
-Vader , voel je je een beetje slecht vandaag ?	-0.4867382347583771
-Wanda : Wat helpt als je je onder het weer voelt ?	-0.4815942645072937
-Pater Tim voelt zich een beetje slecht vandaag .	-0.5119736790657043
-Eigenlijk , Angie , voel ik me een beetje slecht .	-0.3972957134246826
-Ik wist niet dat ze zich onder de weather voelde .	-0.4044837951660156
-Ze belde en zei dat ze zich niet lekker voelde .	-0.3275892436504364
-Ik ben bang dat ze zich niet lekker voelt .	-0.4580247700214386
-Eigenlijk voelt mijn vrouw zich een beetje slecht .	-0.4829600155353546
-Hoe dan ook , Charmaine is een beetje onder het weer op dit moment .	-0.45755815505981445
-Nou , nou , nou , nou , kijken we niet onder het weer ?	-0.34502553939819336
-Ze is ... ze is een beetje onderkoeld .	-0.593871533870697
-Je vrouw is een beetje onder de weer op dit moment .	-0.6381187438964844
-Dokter Bennett voelt zich niet zo lekker vandaag .	-0.4989856779575348
-Xiao-mei voelt zich onder het weer , dus nam ik het stofzuigen op .	-0.4019503891468048
-Onze lieve kleine bemoeial is een beetje onder de weersomstandigheden .	-0.527021586894989
-Zoals ik al zei , ze voelt zich een beetje slecht .	-0.3301621973514557
-Weet je wat helpt als je je niet lekker voelt ?	-0.4328779876232147
-Alleen als Clyde Patchett onder het weer is , wat de meeste dagen is .	-0.423938125371933
-En wat als een man zich een beetje slecht voelt ?	-0.4752255380153656
-Nou , mijn vrouw zegt dat ze een beetje onder zeil is , maar ...	-0.4529440104961395
-Ja , ze zei dat ze zich niet lekker voelde .	-0.3953300714492798
-Sally is een beetje slecht vandaag .	-0.5641787052154541
-Ik denk dat de dokter er zelf ook een beetje slecht uitziet .	-0.5076063275337219
-Eigenlijk is Emily een beetje slecht , maar bedankt voor het vragen .	-0.43298250436782837
-Hij zegt : 'Sorry , ik kan vanavond niet .	-0.5297738909721375
-Ik voelde me onder de weersomstandigheden , besloot vroeg naar bed te gaan .	-0.5352402925491333
-Ik ... was de laatste tijd een beetje slecht , weet je ?	-0.6100001335144043
-Als je me wilt excuseren , ik voel me een beetje slecht .	-0.5704012513160706
-Ik voel me een beetje slecht , Mark .	-0.43157631158828735
-We zijn allemaal een beetje onder de weather op het moment .	-0.4029994010925293
-Alleen omdat hij onder zeil is , laat zijn aanval niet verdwijnen .	-0.7665638327598572
-Ik zei dat ze zich nergens zorgen over moest maken .	-0.422519326210022
-Nou , de laatste tijd , Mac , Shirley is een beetje onder de weersomstandigheden .	-0.5287597179412842
-Ik ben een beetje onder de weer , maar het is goed om hier te zijn .	-0.3967393934726715
-Ik voelde me een beetje slecht , maar niets ernstigs .	-0.47313177585601807
-Oh , ja , ik , uh ... voel me een beetje onder het weer , moeite met slapen .	-0.4374246597290039
-Sommigen van jullie weten misschien dat ze een beetje onderkoeld is .	-0.534480631351471
-Nou , niemand anders heeft gezegd dat Owen onder zeil is , of wel ?	-0.6410349607467651
-Je ziet er een beetje slecht uit .	-0.47868871688842773
-Je vrouw is onder zeil , maar je wilde het niet missen .	-0.39934998750686646
-Ik hoorde dat je je niet lekker voelde .	-0.5121526718139648
-Hij ziet er een beetje slecht uit . Ik kan hem beter naar huis brengen .	-0.5133371949195862
-Een man heeft veel vocht nodig als hij onder de weersomstandigheden is .	-0.5445056557655334
-Zeg eens , meneer ... voelt u zich de laatste tijd niet lekker ?	-0.37632039189338684
-Ik ben altijd een beetje onder de weersomstandigheden geweest , dat is alles .	-0.6509767174720764
-Luitenant Torres zegt dat je onder zeil bent .	-0.48721346259117126
-Nee , m ' n vader voelt zich niet lekker .	-0.4811660051345825
-Ze is een beetje onder de weer , en ze slaapt het uit op dit moment .	-0.5389028787612915
-Helaas is Dixon een beetje onder de weersomstandigheden , maar invallen , heel onverwachts ...	-0.5367226600646973
-Mijn vrouw is onder zeil en ik probeer haar niet te storen .	-0.40270453691482544
-Ik ben een beetje onder de weer , ik wil je niet ziek maken .	-0.42636826634407043
-We moeten de boot dopen , maar Leo is een beetje onder zeil .	-0.4636269211769104
-Julie zei dat je 'onder het weer ' was op Thanksgiving .	-0.41582855582237244
-Ik begrijp dat Mr White zich vanmorgen een beetje slecht voelt .	-0.4819612205028534
-Over de dokter , ik voel me onder de weersomstandigheden , maar ik voel me nu veel beter .	-0.46250587701797485
-Ja , nou , Bernadette is een beetje onder de weer en mijn moeder is een beetje onder mijn tandarts .	-0.43540921807289124
-Sorry , ik kan haar niet blijven dragen als ze zich een beetje slecht voelt .	-0.35278868675231934
-Ook ben ik de laatste tijd onder de weersomstandigheden geweest , dus het is misschien niet mijn beste werk .	-0.5480159521102905
-Ze zal je hier doorheen loodsen en als Don onder het weer uit klimt ...	-0.5666424632072449
-Ik verstop me niet omdat ik een misdaad heb begaan , ik verstop me omdat ik ziek ben .	-0.5127027034759521
-Ja , ik was een beetje onder de weersomstandigheden ... maar ik wilde het examen niet missen .	-0.4893903434276581
-Onder het weer of onder de betovering van een man met een puntige witte hoed ?	-0.37851017713546753
-Nou , ik voel me een beetje onder de weersomstandigheden ... maar ik voel me nu veel beter .	-0.4375995099544525
-Als ze onder het weer zijn , geef ze wat ze willen , ijs en jam en dergelijke .	-0.3818295896053314
-Het spijt me dat te horen , Rebecca , ik hoop dat je je snel beter voelt .	-0.37209343910217285
-Ik denk het niet , en ik denk niet dat dat het is .	-0.4901963770389557
-Je ziet er de laatste tijd een beetje slecht uit , dus ik heb wat vitamines mee naar huis genomen van het werk .	-0.5203536748886108
-Sorry dat ik u niet eerder ter beschikking heb gesteld .	-0.592452883720398
-Nou , er is een vriend van mij , juist , en hij is een beetje onder de weersomstandigheden op dit moment .	-0.4860474765300751
-Ik voelde me onder het weer en duizelig enzovoort , en mensen vroegen me waarom .	-0.4376617670059204
-Nee , nee , ik voel me gewoon een beetje slecht .	-0.5985032320022583
-Het spijt me dat mijn man er niet bij zal zijn , maar hij voelt zich een beetje slecht .	-0.4089055359363556
-Weet je , schat , als hij echt onder de weersomstandigheden is , misschien is het beter als hij niet zoveel masturbeert .	-0.4314252734184265
-Als het maagspullen zijn , zeg je gewoon `` onder het weer '' of mensen beginnen je voor te stellen dat je onuitsprekelijke dingen doet .	-0.4507843852043152
-Lieverd Mr Bashful is misschien een beetje ... onder het weer wat met de ex hier en zo .	-0.558253824710846
-Ik ben bang dat Ash zich een beetje slecht voelt , dus ik neem de leiding als de ...	-0.4031801223754883
-Ik ben natuurlijk blij terug te zijn in Baltimore , maar in alle eerlijkheid voel ik me een beetje slecht .	-0.38452255725860596
-Nou , jongens de schipper is een beetje onder het weer vanavond dus ik veronderstel dat het brood en jam voor thee .	-0.4342016279697418
-Marshall , als het maagspullen zijn , zeg je gewoon `` onder het weer , '' of mensen beginnen je voor te stellen dat je onuitsprekelijke dingen doet .	-0.4319859445095062
-Arthur , jullie twee hebben andere plannen gehad , andere gasten van het huis , waren onder de weersomstandigheden , sinds je terug bent uit Frankrijk ,	-0.4899698495864868
-Gezien hoe je onder de weersomstandigheden was , wilde ik je herinneren aan Jules en Terry uit Sheraton .	-0.48659706115722656
-Deze zomer van 2014 is er een die we zullen onthouden en is overweldigend , maar niet omdat ik onder de weersomstandigheden ben geweest .	-0.3434545695781708
-Moeder voelt zich een beetje slecht , dus stuurde ik haar naar Mobile om haar lieve vriendin , Mrs Carothers te bezoeken .	-0.4070042073726654
-Nee , dit is Dr Cuddy 's kindermeisje , ze voelt zich een beetje slecht , dus ze komt vandaag niet .	-0.4983017146587372
-Ik denk dat het te wijten was aan de hitte en hoge vochtigheid dat `` Dromer '' voelde een beetje onder het weer op de tweede dag .	-0.3449418544769287
-Burt , het is erg laat en je klinkt een beetje onder de weersomstandigheden en er is zoiets als vrije meningsuiting in dit land .	-0.3524007201194763
-Ik zag dat je vandaag niet op kantoor was ... en keek of je ziek was en of we iets voor je konden regelen .	-0.6040814518928528
-We hebben hem niet gezien en we vroegen ons af of hij thuis zou kunnen zijn .	-0.508304238319397
-Ze was een beetje onder de weer , maar we hebben haar weer op de been gekregen ... en hebben haar naar school gestuurd .	-0.5834145545959473
-Als we dansen , dansen we samen onder de maan en onder het weer .	-0.36400794982910156
-Probeer het toevoegen van 2 druppels Citroen , 2 druppels Lavendel en 1 druppel Geranium aan het water in een oliebrander bij het voelen onder het weer .	-0.2534233033657074
-Ik had me de laatste tijd een beetje onder het weer gevoeld , maar Dusty 's aanwezigheid was zo verkwikkend dat ik mijn languor vergat en zich bij haar voegde in aanscherpingscirkels .	-0.4830571413040161
-Toen ik de universiteit belde om te zeggen dat ik onder de weersomstandigheden was , dachten ze dat ik een grap uithaalde , maar helaas was het waar .	-0.5038954019546509
-Ik voelde me onder het weer en duizelig en zo , en mensen vroegen me waarom . Ik zou zeggen , `` Het is omdat ik morgen moet praten . ''	-0.44583436846733093
-Jouw verhaal is ... ze arriveerde , ze gaf het toe aan jou ... en toen zei ze dat ze zich een beetje slecht voelde , en toen vertrok ze kort daarna .	-0.5354763865470886
-Veel voorkomende oorzaken zijn roken , over-wassen , het gebruik van geurende producten rond de vagina , douchen , worden onder de weersomstandigheden een verandering van slaappartner , het dragen van vochtige zwemkleding en zelfs het dragen van kunstmatige slipjes !	-0.4196736514568329
-Als u hangt de gordijnen van dezelfde kleur , hetzelfde materiaal voor enige tijd , gevoel onder het weer , of het nu leuk of niet , moet u overwegen bijpassend een ander gordijn , door elkaar gebruikt , altijd nieuw .	-0.3898327648639679
-Ik ben onder het weer vandaag dus ik heb niet de volledige Instagram roundup voor u , maar u kunt controleren veel van de aandelen hier en zie alle van de op Instagram met behulp van hashtags # crochetsavedmylife en # crochetconcupiscence .	-0.2256847620010376
-Jullie hebben soms geworsteld en jullie zijn onder het weer geweest ... maar toch marcheren jullie verder ... met het WETEN IN JULLIE HART dat dit is wat jullie kwamen doen ... VAN LIEFDE GEVEN EN ZIJN .	-0.28878477215766907
-Jullie hebben soms geworsteld en jullie zijn onder het weer geweest ... maar toch marcheren jullie verder ... met het WETEN IN JULLIE HART dat dit is wat jullie kwamen doen ... VAN LIEFDE GEVEN EN ZIJN .	-0.28878477215766907
-Ik had me de laatste tijd een beetje onder het weer gevoeld , maar Dusty 's aanwezigheid was zo verkwikkend dat ik mijn languor vergat en bij haar kwam in aanscherping cirkels.Een Engels stel arriveerde en een beetje later kwam ik in badkostuums het water in .	-0.47239723801612854
-De tactiele kaarttabel in het midden van deze rustplaats geeft een overzicht van het volledig toegankelijke netwerk van paden . Een afgedrukte kaart onder het weerbeschermingsdak geeft ook informatie over het padnetwerk in de omgeving .	-0.3785306513309479
-Ms Crowder , ik begrijp dat u zich onder het weer voelt , en ik begrijp dat u zich een beetje gepest voelt , maar u moet begrijpen als u ons niet iets relevants en tastbaars brengt binnen de week , is uw tijd als een informant voorbij .	-0.38557520508766174
-Op 3 april 2008 stond een concert gepland bij De Singer jazzclub in Rijkevorsel , een stad ten oosten van Antwerpen in België . Aangekomen bij deze kleine club en een beetje onder de weersomstandigheden , vond ik dat we iets anders moesten spelen .	-0.3678068220615387
+Ik ben onder het weer vandaag dus ik heb niet de volledige Instagram roundup voor u, maar u kunt controleren veel van de aandelen hier en zie alle van de op Instagram met behulp van hashtags #crochetsavedmylife en #crochetconcupiscence.
+Ik... was de laatste tijd een beetje slecht, weet je?
+Ik begrijp dat Mr White zich vanmorgen een beetje slecht voelt.
+De tactiele kaarttabel in het midden van deze rustplaats geeft een overzicht van het volledig toegankelijke netwerk van paden. Een afgedrukte kaart onder het weerbeschermingsdak geeft ook informatie over het padnetwerk in de omgeving.
+Dokter Bennett voelt zich niet zo lekker vandaag.
+Hoe dan ook, Charmaine is een beetje onder het weer op dit moment.
+Ik zag dat je vandaag niet op kantoor was... en keek of je ziek was en of we iets voor je konden regelen.
+Ik denk dat de dokter er zelf ook een beetje slecht uitziet.
+Ik voel me een beetje onder het weer vanmorgen.
+Ik voelde me onder het weer en duizelig en zo, en mensen vroegen me waarom. Ik zou zeggen, "Het is omdat ik morgen moet praten."
+Nou, er is een vriend van mij, juist, en hij is een beetje onder de weersomstandigheden op dit moment.
+Pater Tim voelt zich een beetje slecht vandaag.
+Ook ben ik de laatste tijd onder de weersomstandigheden geweest, dus het is misschien niet mijn beste werk.
+We zijn allemaal een beetje onder de weather op het moment.
+Je vrouw is een beetje onder de weer op dit moment.
+Voel je je een beetje onder het weer?
+Je ziet er de laatste tijd een beetje slecht uit, dus ik heb wat vitamines mee naar huis genomen van het werk.
+Ik had me de laatste tijd een beetje onder het weer gevoeld, maar Dusty's aanwezigheid was zo verkwikkend dat ik mijn languor vergat en zich bij haar voegde in aanscherpingscirkels.
+Nou, jongens de schipper is een beetje onder het weer vanavond dus ik veronderstel dat het brood en jam voor thee.
+Niet te slecht gisteren?
+Ik denk het niet, en ik denk niet dat dat het is.
+Ik voelde me onder het weer en duizelig enzovoort, en mensen vroegen me waarom.
+Ik had me de laatste tijd een beetje onder het weer gevoeld, maar Dusty's aanwezigheid was zo verkwikkend dat ik mijn languor vergat en bij haar kwam in aanscherping cirkels.Een Engels stel arriveerde en een beetje later kwam ik in badkostuums het water in.
+Zeg eens, meneer... voelt u zich de laatste tijd niet lekker?
+Ze is een beetje onder het weer vanmiddag.
+Ze is de laatste tijd onder zeil.
+Lieverd Mr Bashful is misschien een beetje... onder het weer wat met de ex hier en zo.
+Burt, het is erg laat en je klinkt een beetje onder de weersomstandigheden en er is zoiets als vrije meningsuiting in dit land.
+Sally is een beetje slecht vandaag.
+Nou, ik ben de laatste tijd een beetje onder de weersomstandigheden geweest.
+Ja, nou, Bernadette is een beetje onder de weer en mijn moeder is een beetje onder mijn tandarts.
+Ik was een beetje onder het weer die dag.
+Nee, nee, ik voel me gewoon een beetje slecht.
+Nee, dit is Dr Cuddy's kindermeisje, ze voelt zich een beetje slecht, dus ze komt vandaag niet.
+Ik was bang dat hij weer ziek was.
+Ik denk dat het te wijten was aan de hitte en hoge vochtigheid dat "Dromer" voelde een beetje onder het weer op de tweede dag.
+Harry is, uh, een beetje onder de weersomstandigheden deze dagen.
+Jullie hebben soms geworsteld en jullie zijn onder het weer geweest... maar toch marcheren jullie verder... met het WETEN IN JULLIE HART dat dit is wat jullie kwamen doen... VAN LIEFDE GEVEN EN ZIJN.
+Vader, voel je je een beetje slecht vandaag?

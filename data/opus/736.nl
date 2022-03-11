@@ -1,500 +1,500 @@
-- In levenden lijve.
-- In levenden lijve.
-Inderdaad.
-Helemaal.
-Zijzelf.
-In levende lijve.
-In levende lijven!
-- In het echt.
--Helemaal.
-- Jazeker. Ga maar met haar praten.
-In levende lijve.
-In levenden lijve.
-- Hoogst persoonlijk.
-Dana... in levende lijve.
-Doornen in het vlees
--In levenden lijve.
-In levende lijden.
-In levenden lijve.
-- Niet in persoon.
-Het monster in levenden lijve.
-Levende legende.
-Ze kunnen elkaar niet aanraken.
-Zach Morstein, in levende lijve.
-Levend en wel.
-Je bent het. Eindelijk.
-Marcos Mendez in levenden lijve.
-Nu ontmoet ik je in levende lijve.
-’ Verdrukking in het vlees ’
--In levenden lijve, kindje.
-- Van vlees en bloed, zogezegd.
-Ik ben 't, meisje, Tank, in levende lijve.
-Ja mam.
-- Daar heb je de vedette.
-Niet zo indrukwekkend in het echt.
-Dus jij bent het in levende lijve.
-"Hij is terug en in levende lijve."
-Daar waren ze, levend en wel!
-„ EEN DOORN IN HET VLEES ”
-De mysterieuze Lana Lang. In levende lijve.
-Dus dit is hem, in levende lijve.
-Gérard Depardrol in levende lijve.
-Wat geweldig om je in levenden lijve te ontmoeten.
-Ik heb er nooit één in het echt gezien.
-Leuk in je levende lijve te ontmoeten!
-Je moet het zien in het vlees.
-Dan zien we hem in levende lijve.
-Denk nog eens aan Paulus ’ „doorn in het vlees ”.
-In hoogsteigen persoon.
-Geneigdheid tot zonde – zonde in het vlees
-Emma wie die een...
-En niet hier in levenden lijve rond te lopen.
-Als dat mijn redder niet in levende lijve is.
-Een echte kip in levenden lijve?
-- Niet te geloven, in levenden lijve.
-Hoe teleurstellend zie je er in het echt uit.
-Ik besta hier in vlees en bloed, voor altijd!
-Hoe God „de zonde in het vlees veroordeeld ” heeft
-Ik heb er nooit een ontmoet.
-We gaan Pavlova in levende lijve zien.
-Vraag: "Wat was de doorn in het vlees van Paulus?"
-Wauw, Manny Mega Vega in levenden lijve.
-Wat een eer u eindelijk te zien.
-Mensen die alleen maar hun eigen zin doen, kunnen God dan ook niet tevreden stellen.
-Denny Crane in levende lijve. Wat een lijf.
--In levende lijve.
-Ooit de River King in levende lijve gezien?
-- vrij zijn van breuken of scheuren in het vlees;
-Eindelijk de beruchte Gossip Girl in levende lijve ontmoeten.
-Wat leuk je in 't echt te zien.
-Piper sprak alsof hij daar zelf in levende lijve zat.
-3:16 dat hij God manifest in het vlees was.
-Ik heb ze ook in het echt.
-Ik moet hem nu meteen zien.
-Ons vleselijk lijden zal tot een eind komen.
-Is Jezus -zoals sommigen zeggen- 'God in het vlees'?
-Fijn u eindelijk in persoon te ontmoeten. Dat is nogal een stevige handgreep.
-Een lastpak, net als zijn grootvader.
-Ik verwachtte niet u in het echt te zien.
-Dat niets goeds in het vlees aanwezig is, is de regel.
-Daar heb je hem, in levenden lijve.
-Waarom kwam Jezus, God, in levende lijve naar ons toe?
-Als in de Dood, Magere Hein, man met de zeis.
-In het vlees ligt 40 tot 100 donkere zaden met een harde korst.
-In geest misschien, maar vleselijk, moet ik misschien wel.
-Ik heb je al even mogen ruiken, maar nog niet van zo dichtbij.
-En vorig jaar vocht ie tegen Jeweetwel.
-Ze leek op iemand uit Jane Austen.
-En in dit opzicht moeten zij gedachtig zijn aan Jezus ’ loopbaan in het vlees.
-Mensen die alleen maar hun eigen zin doen, kunnen God dan ook niet tevreden stellen.
-En toch sta ik hier, levendiger dan ooit!
-Op de eerste klank van ‘In Levende Lijve’ knapt de ketting.
-Ik moet ze in het vlees controleren.
-Op de eerste klank van 'In Levende Lijve' knapt de ketting.
-Daar is hij in levende lijve. Een van mijn beste mensen.
-Oh, dit lijkt interessant te worden.
-Daar gij met den Geest begonnen zijt, voleindigt gij nu met het vlees?
-1:24 Maar in het vlees te blijven, is nodiger om uwentwil.
-Jezus werd naar de aarde gestuurd in het vlees van een mens.
-Ik zag hem in levende lijve, zoals jij hier voor mij staat.
-In de Statenvertaling luidt dit vers: „God is geopenbaard in het vlees. ”
-Dat ik je eindelijk in levende lijve mag ontmoeten.
-Je bent erg mooi op TV, maar nog mooier in het echt.
-24 Maar in het vlees te blijven, is nodiger om uwentwil.
-24 Maar in het vlees te blijven, is nodiger om uwentwil.
-Ik ben hier omdat ik een levende zombie wil onderzoeken.
-Maar in het vlees te blijven, is nodiger om uwentwil.
-Je ziet me trouwens snel weer terug.
-Hij die door het vlees loopt, doet dit om zijn eigen vlees te bevredigen.
-Zij nodigt uit om het heil zelfs in het vlees en in de schepping te ontvangen.
-Zij zullen niet in de geest maar in het vlees rechtvaardig verklaard worden.
-Wil je hem naast z'n verkrachter zetten?
-Drieëenheidsaanhangers zullen redeneren dat dit alleen het geval was toen Jezus in het vlees was.
-We hebben geen vertrouwen in het vlees; u mag er niet op rekenen.
-Jouw kruis is niet een of andere fysieke moeilijkheid of een doorn in het vlees.
-Doch dezulken zullen verdrukking hebben in het vlees; en ik spare ulieden.
-8 maanden geleden 14:57 HDZog beroemdheid, de duivel
-Dit maakt het juist nog interessanter om de soort eens beter te bestuderen.
-De bijbel vermeldt niet wat Paulus ’ „doorn in het vlees ” precies was.
-Zulke personen dienen God dus ondanks een figuurlijke „doorn in het vlees ”.
-Marta en Maria waren twee zusters, niet alleen verenigd in het vlees, maar ook in het geloof.
-Dienen wij het echter dan zo te zien dat Jezus ’ God in het vlees ’ was?
-Hij zou weggaan en niet meer door hen in het vlees gezien worden.
-Ik heb eigenlijk maar een keer eerder 'n Amerikaan gezien.
-Maar omdat jullie in het vlees zijn, weet de vijand waar zij hun wapens op moeten richten.
-Dan hebt gij belangstelling voor wat er gebeurde toen Jezus in het vlees op aarde kwam.
-Jezus kwam in levende lijve en werd gedoopt en gekruisigd om al onze zonden weg te wassen.
-Volgens de geïnspireerde Schrift werd Jezus niet in het vlees tot leven opgewekt.
-En nu je hier in levende lijve bent... kunnen we het je geven.
-Net een hete naald in de gewrichten.
-Ik ben blij dat je er bent om haar te zien.
-Paulus bad verschillende keren over zijn „doorn in het vlees ” — mogelijk een fysiek probleem.
-Omdat we in het vlees leven, leiden onze zonden ons soms tot de ondergang.
-Alhoewel we gered zijn, richten we ons gemakkelijk naar deze wereld omdat we nog steeds in het vlees zijn.
-Satan deed Eva geloven dat zij als mens geenszins zou sterven.
-(1856.7) 169:4.9 Jezus heeft er nimmer aanspraak op gemaakt de manifestatie van Elohim (God) in het vlees te zijn.
-3 Want wandelende in het vlees, voeren wij den krijg niet naar het vlees;
-Een telefonisch gesprek kan je oefenen,... maar in levende lijve kan je je echte ik niet verbergen.
-Vader, bewaar deze mannen zodat zij trouw blijven nu ik mij gereedmaak om mijn leven in het vlees op te geven.
-Daarom werd Jezus „ter dood gebracht... in het vlees, maar levend gemaakt in de geest ”.
-Een totale zonsverduistering in levenden lijve meemaken... is een geweldige, inspirerende, ontroerende ervaring.
-17:24 En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuidbesneden werd.
-24 En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuid besneden werd.
-Voel je verschil nu je Noach in het echt ziet, in je huis? Waarover?
-Ware christenen, zo wordt daar gezegd, „voeren geen oorlog overeenkomstig datgene wat wij zijn in het vlees.
-Eén manier waarop het “in het vlees leven” zich manifesteert is zelfzuchtigheid, een andere belemmering voor effectief gebed.
-Er zijn haarschachten gebroken en het vlees vertoont scheurtjes, hier en hier.
-Jezus is in het vlees naar de aarde gekomen om de erfenis die Adam had verloren, voor de mensheid terug te winnen.
-Het is misschien onze enige kans om diegene in levende lijve te pakken.
-En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuidbesneden werd.
-De zonde die ik heb, is de zonde in het vlees die ik heb geërfd: hartstochten en begeerten.
-Waarom waren de getrouwen die wij hebben besproken in staat verscheidene dorens in het vlees te verduren?
-C: Nee, Jezus is niet 'God in het vlees', maar 'de Zoon van God in het vlees'.
-Voor veel mensen is zij afstotelijk, omdat de extremisten het hier voor het zeggen hebben.
-Hun dood in het vlees maakt niet voor een bepaalde tijdsduur een eind aan hun ’ daden ’.
-De wandel in het vlees is iets anders dan de wandel in de geest.
-De verwondingen in z'n vlees zijn veroorzaakt door een haak of haken.
-Dit komt doordat de Statenvertaling en enkele andere oude vertalingen zeggen: „God is geopenbaard in het vlees. ”
-Veertig jaar is hij luis in de pels, onvermoeibaar kunstenaar, niet te stuiten criticus.
-Hij was gescheiden van zijn familie in het vlees, één van zijn gekozen medewerkers was bezig hem te verraden.
-Voordat Jezus deze wereld verliet, heeft hij haar als een volmaakt mens in het vlees overwonnen.
-Wat hebben wij toch een zekerheid wanneer we proberen in de Geest te wandelen en niet in het vlees!
-In tegenstelling tot Adam, die zijn volmaaktheid te gronde richtte, handhaafde de Zoon van God zijn zondeloosheid in het vlees.
-De overige leden van het zaad van Abraham behoefden geen natuurlijke joden in het vlees te zijn.
-Paulus heeft er niets op tegen in het vlees te blijven aangezien dat ’ voor u noodzakelijker is ’.
-Als jij Kieran niet had verlost, zou hij nu niet proberen, zich in den lijve, met Vivian te herenigen.
-25 En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuid besneden werd.
-En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuidbesneden werd.
-Hij zal geen opstanding krijgen, zelfs niet in het vlees op aarde. — Joh. 6: 70, 71; 17: 12, NW.
-Hij omschreef het als "een doorn in het vlees, een engel des satans om hem met vuisten te slaan" (2 Cor.
-Hij werd gezien, in het vlees, door honderden na zijn dood, en spoedig daarna opgevaren naar de Hemel.
-Bovendien was hij onvolmaakt en had te kampen met „een doorn in het vlees ”, misschien een slecht gezichtsvermogen.
-Hij zei echter niet dat hij in het vlees zou wederkomen, en evenmin kunt u dit in de bijbel lezen.
-Wij voelden ons zeer bedroefd over de dwaling van de Second Adventists, die Christus in het vlees verwachtten. ”
-Jezus bedoelde niet dat zijn getrouwe apostelen in het vlees zouden blijven leven en nooit zouden sterven.
-De King James Version (alsook de Statenvertaling) luidt hier met betrekking tot Christus Jezus: „God is geopenbaard in het vlees. ”
-13:18 Maar als er een zweer in het vlees en de huid heeft gezeten, en het is genezen,
-Ik kan het er niet mee eens zijn dat die boodschap een "doorn in het vlees van de Nieuw-Apostolische Kerk" zou zijn.
-Paulus zegt in Filippenzen 1 dat als hij leeft voort in het vlees betekent vruchtbare arbeid voor Hem.
-"Want er zijn vele misleiders uitgegaan in de wereld, die de komst van Jezus Christus in het vlees niet belijden.
-Ik kom ergens vandaan, waar het kwaad mens is geworden.
-Hij vertelt ons dat hij aan „een doorn in het vlees ” leed en dat hij God herhaaldelijk had gevraagd deze te verwijderen.
-Nauwelijks hadden we ons neergelegd of de landlord sloop binnen en eiste in den vleze te worden voldaan.
-17:25 En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuid besneden werd.
-De natuurlijke dood vindt minder vaak plaats, terwijl de Richters steeds vaker met hun subjecten fuseren tijdens het leven in het vlees.
-"Want er zijn vele misleiders uitgegaan in de wereld, die de komst van Jezus Christus in het vlees niet belijden.
-24 En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuid besneden werd.
-Voor Dudley is het de gelegenheid om de monsters uit zijn nachtmerries in het echt te ontmoeten, net goed voor hem!
-Laat ik het nog eens uitdrukkelijk zeggen: ik ben gekomen opdat mijn broeders in het vlees vreugde, blijdschap en een rijker leven zouden kennen.
-Dit is geen onredelijke eis.
-Indien jullie de eersten wilt zijn in het koninkrijk, tracht dan met deze goede waarheden jullie broeders in het vlees te dienen.
-"IN het vlees" wekt teveel de indruk van een lichamelijke aandoening, terwijl dat niet in de uitdrukking besloten ligt. engel?
-In werkelijkheid trachten zij als christenen ’ in het vlees voltooid ’ te worden in plaats van in geestelijk opzicht.
-„ Want hoewel wij in het vlees wandelen, voeren wij geen oorlog naar hetgeen wij in het vlees zijn.
-De apostel Paulus bad of zijn „doorn in het vlees ”, mogelijk een lichamelijke aandoening, van hem kon worden weggenomen.
-Maar wat dit punt betreft, dat Jezus werkelijk in het vlees was gekomen, waren zij een andere mening toegedaan, en daarom werd de uitdrukking „antichrist ” op hen van toepassing gebracht.
-„ Want er zijn vele bedriegers tot de wereld uitgegaan, personen die de komst van Jezus Christus in het vlees niet belijden.
-Behalve al die dingen was er nog die figuurlijke „doorn in het vlees ”, mogelijk een probleem met zijn gezichtsvermogen.
-Waarom doet hij zoiets?Bruce McConkie zei: "Onze Heer wordt genoemd de eniggeboren Zoon van de Vader in het vlees.
-(1045.2) 95:2.9 Toen Melchizedek in het vlees verscheen, hadden de Egyptenaren een religie die ver verheven was boven die van de volken die hen omringden.
-Ondanks dit alles verklaarde Kajafas de Waarheid schuldig omdat de Waarheid zei de vleesgeworden God te zijn, hetgeen door Kajafas als godslastering betiteld werd.
-Paulus bijvoorbeeld bad herhaaldelijk aangaande zijn „doorn in het vlees ” — mogelijk een fysiek probleem in verband met zijn gezichtsvermogen.
-De bijbel merkt zelfs realistisch op dat het huwelijk op zich ’ verdrukking in het vlees ’ met zich meebrengt. — 1 Korinthiërs 7: 28.
-2:28 Want die is niet een Jood, die het in het openbaar is; noch die is de besnijdenis, die het in het openbaar in het vlees is;
-Ik dacht dat ik gek werd maar daar was je in vlees en bloed een tweede kans om te krijgen wat van mij is.
-Ik heb vier boeken over hem geschreven, maar nu zie ik hem pas voor het eerst in levende lijve.
-Ja, denk dan eens aan wat Paulus te dien aanzien zei: „Wanneer ik zwak ben, dan ben ik krachtig. ”
-En nu zij deze goddelijke genegenheid ontdekt en ontvangen hebben, kunnen de mensen ernaar streven deze liefde te openbaren aan hun broeders in het vlees.
-Alhoewel Jezus in Zijn wezen God Zelf was, was Hij desalniettemin ook in het vlees van een mens, vol zwakheden.
-Ik begroet hen die mij eens nabij waren in het vlees en spreek mijn vriendschap uit voor mijn broeders en zusters in het koninkrijk.
-Henoch, de eerste sterveling op Urantia die met de Gedachtenrichter fuseerde tijdens zijn leven als sterveling in het vlees.
-7 Want vele verleiders zijn in de wereld gekomen, die niet belijden, dat Jezus Christus in het vlees gekomen is.
-Wees maar niet bang. Zelfs 'n nacht in heftig Hull kost u de kop niet.
-Doch gijlieden zijt niet in het vlees, maar in den Geest, zo anders de Geest Gods in u woont.
-Gij daarentegen zijt niet in het vlees, maar in de Geest, althans, indien de Geest Gods in u woont.
-Jehovah God had zich echter voorgenomen dat deze toekomstige koningen en priesters een werk zouden verrichten terwijl zij zich nog als mensen van vlees en bloed op aarde zouden bevinden.
-In de door bemiddeling van Mozes aan Israël gegeven Wet komen enkele verbodsbepalingen voor met betrekking tot huwelijken tussen personen die nauw aan elkaar verwant zijn.
-Geen vlees van mensen dient daarmee ingewreven te worden, en met deze samenstelling moogt gij niets soortgelijks maken.
-Toen Gods eigen Zoon in het vlees was, demonstreerde hij door zijn levenswijze welke morele maatstaf door zijn volgelingen in acht genomen moest worden.
-Als wij lijden in het vlees, worden wij ook onttrokken aan de zonde. De geest van Jezus werd nooit besmet door de zonde in het vlees.
-JEZUS Jezus, die vlees werd oftewel de Christus van zijn Wezen volledig manifesteerde, werd het volmaakte gevolg van de volmaakte oorzaak.
-De apostel Paulus sprak erover dat hij gekweld werd door „een doorn in het vlees ”,„ een engel van Satan ”, die hem ’ bleef slaan ’.
-Toch weet ik niet wat ik kiezen moet. Aan de ene kant wil ik graag in dit lichaam blijven en hier nog veel goeds kunnen doen.
-de voorhuid moet worden verwijderd. Dat zal voor Mij het teken zijn dat u en uw nakomelingen dit verbond accepteren en eerbiedigen.
-Maar of te leven in het vlees, hetzelve mij oorbaar zij, en wat ik verkiezen zal, weet ik niet.
-Eerst vertelde Paulus zijn medegelovigen eerlijk dat hij te kampen had met „een doorn in het vlees ”, een of andere vorm van beproeving.
-Evenals de apostel Paulus had ik het moeilijk met mijn „doorn in het vlees ”. — 2 Korinthiërs 12: 7 - 10.
-Kunnen we hem bij Max krijgen?
-7 Want er zijn vele misleiders uitgegaan in de wereld, die de komst van Jezus Christus in het vlees niet belijden.
-Ik heb zo veel over haar gehoord, ik wil weten hoe ze eruitziet.
-Je hebt de stem gehoord, nu zul je hem ontmoeten. De enige echte Lovelace... In eigen persoon...
-Hieraan kunnen wij weten of Gods Geest spreekt: Ieder die erkent dat Jezus Christus een mens van vlees en bloed geworden is, zegt dat door de Geest van God.
-In plaats daarvan zouden zij stellig gelijk God moeten worden, niet na de dood in de vorm van een voortbestaan na de dood, maar terwijl zij nog in het vlees in leven waren.
-Hierdoor werd zij getroffen door het zwaard van de Heilige Geest en werd verdoemd in zowel het vlees als ook in de geest.
-Eerst moeten zij echter bewijzen getrouw te zijn tot de dood, in een dienst die God hun toewijst terwijl zij nog in het vlees leven.
-Jezus ontmoette mensen doorgaans in den lijve; op straat, tijdens reizen, bij de waterput, bij de tempel, bij mensen thuis.
-En terwijl hij in het vlees was met zijn discipelen, onderrichtte hij hen dat zij bij hun prediking van Gods koninkrijk hetzelfde zouden doen.
-Liefde (Jezus) schepte niet op over wie Hij in een mensenlichaam was, hoewel Hij eenieder die met Hem in aanraking kwam met gemak had kunnen overweldigen.
-De zonden waren niet aan Zijn Geest doorgegeven, maar slechts aan Zijn vlees. Jezus werd naar de aarde gestuurd in het vlees van een mens.
-Liefde (Jezus) schepte niet op over wie Hij in een mensenlichaam was, hoewel Hij iedereen die met Hem in aanraking kwam met gemak had kunnen overweldigen.
-Allen die door deze dienstknechten van God tot leven werden opgewekt, moesten weer in het vlees sterven en in Hades of Sjeool afdalen.
-3 Want wij zijn de besnijding, wij, die God in den Geest dienen, en in Christus Jezus roemen, en niet in het vlees betrouwen.
-14 En als een jongsken niet besneden wordt aan de voorhuid van zijn vlees, zal zijne ziel uitgeroeid worden uit zijn volk, omdat hij mijn verbond heeft nagelaten.
-4:2 Hieraan kent gij den Geest van God: alle geest, die belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God;
-• Welke van de schriftuurlijke voorbeelden van mannen en vrouwen die verscheidene dorens in het vlees hebben verduurd, vindt u bijzonder ontroerend, en waarom?
-Hier beneden op de aarde wordt het deze demonische engelen niet meer toegestaan zich in het vlees te materialiseren zoals zij dit vóór de wereldomvattende Vloed hadden gedaan.
-Zij beschouwden Jezus niet als een God - Mens, God zelf in het vlees, en Jezus maakte er ook geen aanspraak op God te zijn.
-Net als de eerste - eeuwse afvalligen waren de Katharen „personen die de komst van Jezus Christus in het vlees niet belijden ”. — 2 Johannes 7.
-Alhoewel Jezus Christus dus in de gedaante van een mens naar deze aarde kwam, was Zijn werkelijke identiteit dus eigenlijk de Koning der koningen.
-Plots bevinden ze zich in de nabijheid van een aantal Afrikanen die rond hen komen staan.Dit is geen tv-reportage, ze staan oog in oog met vreemdelingen van vlees en bloed.
-Deze fase van de IK BEN is gedeeltelijk te ervaren op geestelijke niveaus, zelfs door stervelingen die onze Vader kunnen aanbidden terwijl zij nog in het vlees zijn.
-In 2 Korinthiërs 12: 7 spreekt Paulus over zijn eigen worsteling met „een doorn in het vlees ”, waarmee hij mogelijkerwijs doelt op een probleem met zijn ogen.
-De beide soorten kunnen onderscheiden worden aan de topjes van de kelkblaadjes: deze is spits in het vetblad-muur en stomp in het kweldermuur.
-Dit leerkoraal krijgt alleen stevigheid door kleine kalknaaldjes of spiculae (die op geschaafde amandelen lijken) en de hydraulische druk binnen het vlezige weefsel van zijn lichaam.
-Want wíj zijn de besnijdenis, die door de Geest Gods Hem dienen, die in Christus Jezus roemen en niet op vlees vertrouwen” (Filippenzen 3:2, 3).
-Een van de meest interessante was die van een persoon die uit zijn lichaam was getreden en echt gezien werd alsof hij in zijn fysieke lichaam zat door een ander persoon:
-Petrus en Andreas volgden Jezus niet alleen zolang hij in het vlees was, maar zij bleven hem zelfs na zijn dood volgen.
-Desgewenst kunnen we een stereolithografie laten maken, zodat u uw product ook tastbaar kunt beoordelen voordat met de bouw van de matrijs wordt begonnen.
-Door de beschrijving die Jezus ervan geeft, wordt duidelijk te kennen gegeven dat de verdrukking, evenals de wereldomvattende vloed in Noachs dagen alle menselijke leven in het vlees bedreigt.
-Want toen wij in het vlees waren, wrochten de bewegingen der zonden, die door de wet zijn, in onze leden, om den dood vruchten te dragen.
-Waarom wordt door het geval van de vrouw met de geest van zwakheid en dat van Paulus ’ doorn in het vlees niet betoogd dat Satan in alle krankheid de hand heeft?
-Ja, hoewel Anthony voor het eerst zebra’s, leeuwen, giraffen en andere dieren in het echt zag, had hij al met deze dieren kennisgemaakt.
-5 Want toen wij in het vlees waren, wrochten de bewegingen der zonden, die door de wet zijn, in onze leden, om den dood vruchten te dragen.
-Sprak de apostel Paulus daar niet over toen hij aan de gemeente Kolosse uiteenzette dat de christelijke besnijdenis niet letterlijk, in het vlees, was?
-„ Met het oog op de noodzaak die wij hier — buiten het Paradijs van Eden — hebben ”, brengt het echter ’ verdrukking in het vlees ’ met zich.
-Dat wil zeggen dat de kinderen naar het vlees niet werkelijk Gods kinderen zijn, maar de kinderen door de belofte worden als het zaad gerekend ”.
-(2076.1) 195:5.10 Probeert uw nieuwsgierigheid, of alle sluimerende avontuurlijkheid die in uw ziel opwelt, niet in één kort leven in het vlees te bevredigen.
-Vergeet niet dat u van geboorte niet bij het volk van God hoort. De Joden noemen u minachtend 'de onbesnedenen'. Dat besneden-zijn van hen betekent overigens niets meer dan dat er een snee in hun lichaam is gemaakt.
-3:4 Hoewel ik heb, dat ik ook in het vlees betrouwen mocht; indien iemand anders meent te betrouwen in het vlees, ik nog meer;
-Dat Jezus niet in het vlees werd opgewekt, verklaart waarom twee van zijn discipelen en Maria Magdalena hem niet herkenden toen hij na zijn opstanding lichamelijk verscheen.
-Vergelijk dit met Romeinen 8:3: "God heeft, door zijn eigen Zoon te zenden in een vlees, aan dat der zonde gelijk, en wel om de zonde, de zonde veroordeeld in het vlees."
-Hoe zouden wij allen speciale aandacht kunnen schenken aan degenen, hetzij jong of oud, die het hoofd moeten bieden aan een bijzonder pijnlijke doorn in het vlees?
-Want ik strek mijn armen uit naar mijn vrienden, en tranen vloeien uit mijn ogen, maar niemand heeft medelijden met mij. Weent over mij, weent bitter over mij, o mensen:
-Ik heb mijn zelfschenking aan de kinderen die wij zelf hebben geschapen, bijna beëindigd; er rest mij slechts mijn leven in het vlees neer te leggen.
-De apostel Johannes verhaalt ons zijn eigen ervaringen met het Woord toen hij in het vlees was, opdat hij ons in deze zegening kan laten delen.
-De antichrist van zijn tijd identificerend, schreef Johannes: „Vele bedriegers zijn in de wereld uitgegaan, personen die niet belijden dat Jezus Christus in het vlees is gekomen.
-7:5 Want toen wij in het vlees waren, wrochten de bewegingen der zonden, die door de wet zijn, in onze leden, om den dood vruchten te dragen.
-Als christenen moeten wij acht slaan op de vermaning van de apostel Petrus: „Daar Christus dan in het vlees heeft geleden, zo wapent ook gij u met dezelfde gezindheid...
-2:11 Daarom gedenkt, dat gij, die eertijds heidenen waart in het vlees, en die voorhuid genaamd werdt van degenen, die genaamd zijn besnijdenis in het vlees, die methanden geschiedt;
-Geen wonder dat Jezus zich niet opnieuw in het vlees aan hen zou aanbieden als de rechtmatige gezalfde erfgenaam van het koninkrijk van David te Jeruzalem!
-Hoewel ’ verdrukking in het vlees ’ in ieder huwelijk spanningen teweegbrengt, maken de onervarenheid van de meeste tieners en hun vaak irreële verwachtingen hun huwelijk wel bijzonder kwetsbaar.
-Al wat nu voor u verborgen is, zal u bekend gemaakt worden wanneer de Zoon des Mensen zijn zending op aarde in het vlees volbracht heeft.
-„ Opdat hij het overige gedeelte van de tijd die hij in het vlees leeft, niet meer voor de begeerten van mensen, maar voor Gods wil moge leven.
-4 Hoewel ik heb, dat ik ook in het vlees betrouwen mocht; indien iemand anders meent te betrouwen in het vlees, ik nog meer.
-Met als gevolg dat de beslotenheid van de kamer zich tot traphal ontvouwt, langswaar er geen ontkomen is aan de nederdaling in het vlees:
-Toen de apostel Paulus herhaaldelijk bad om van zijn „doorn in het vlees ” verlost te worden, zei Jehovah:„ Mijn kracht wordt in zwakheid tot volmaaktheid gebracht ”.
-Daarom heeft God "door zijn eigen Zoon te zenden in een vlees, aan dat der zonde gelijk, en wel om de zonde, de zonde veroordeeld in het vlees" (Romeinen 8:3).
-“De Geest van God herkent u hieraan: iedere geest die belijdt dat de Christus als mens gekomen is, komt van God”.
-We hebben geen vertrouwen in het vlees; u mag er niet op rekenen. Geloof in plaats ervan in God’s genade, verheerlijk de Heer, en volg Hem met uw hele hart.
-Hij verliet deze wereld gerijpt in de ervaring die zijn schepselen doormaken gedurende de korte, inspannende jaren van hun eerste leven, het leven in het vlees.
-Romeinen 8:3 zegt ons dat God "Zijn Zoon zendende in gelijkheid des zondigen vleses, en dat voor de zonde, de zonde veroordeeld in het vlees."
-"De Geest van God herkent u hieraan: iedere geest die belijdt dat de Christus als mens gekomen is, komt van God".
-Een van de opmerkelijkste dienstknechten van de God aller tijden, de apostel Paulus, kampte kennelijk met een lichamelijke handicap — „een doorn in het vlees ”.
-Degenen die hen in slavernij aan de Wet trachtten te brengen, wilden ’ zich een innemend voorkomen geven in het vlees ’, vervolging vermijden en een reden tot roemen hebben.
-Terwijl de meeste christenen uitzien naar een hemelse Messías, verklaart Divine Principle dat de Christus ’ bij de wederkomst in het vlees op aarde geboren moet worden ’.
-Dewijl dan Christus voor ons in het vlees geleden heeft, zo wapent gij u ook met dezelfde gedachte, namelijk dat wie in het vlees geleden heeft, die heeftopgehouden van de zonde;
-De overige 10% eigenheid maken 'In The Flesh' zo'n lekkere duistere death metal plaat dat je er als fan van het genre niet om heen kunt.
-Al degenen, die een schoon gelaat willen tonen naar het vlees, die noodzaken u besneden te worden, alleenlijk opdat zij vanwege het kruis van Christus niet zoudenvervolgd worden.
-De opleiding op de eerste twee woningwerelden is hoofdzakelijk negatief, in de zin dat zij te maken heeft met de aanvulling van tekorten in de ervaring van het leven in het vlees.
-Bij dezelfde moeder, Elizabeth Howard, dochter van wijlen de Hertog van Norfolk, en daarom volle broer en zuster in vlees en bloed zodat hun samenzijn een daad van incest is?
-Font size: Tekstkleur: Achtergrond: Kleuren wisselen Lettertype In The Flesh voor website U kan het lettertype In The Flesh verbinden met uw website zonder het op onze server te downloaden.
-Dit verwijst naar een geestelijk koninkrijk waarin de christenen te Kolosse waren overgezet terwijl zij zich hier op aarde nog in het vlees bevonden, in een stad van Klein - Azië die in religieus opzicht in duisternis was gehuld.
-12 Al degenen, die een schoon gelaat willen tonen naar het vlees, die noodzaken u besneden te worden, alleenlijk opdat zij vanwege het kruis van Christus niet zouden vervolgd worden.
-Houd in gedachten dat zij rechtvaardig worden verklaard in het vlees opdat zij ervoor in aanmerking zouden kunnen komen opgenomen te worden in het huisgezin van Gods geestelijke zonen in de hemel.
-Zo zal hij erin kunnen slagen „de rest van zijn tijd in het vlees niet meer voor de begeerte van mensen te leven, maar voor Gods wil ”. — 1 Petr.
-Misschien hebben sommigen van u wanhopig gedacht, na wedergeboren te zijn van het water en de Geest, "De Bijbel zegt dat zij die in het vlees zijn God niet kunnen behagen.
-Op passende wijze zouden zij eerst opstaan en deze gebeurtenis zou voorafgaan aan de herleving van de Koninkrijksverkondigers, die nieuw leven ingeblazen zou worden om gedurende deze „tijd van het einde ” hun werk in het vlees op aarde voort te zetten.
-Hij is niet als de ongehoorzame ’ zonen Gods ’ in de dagen van Noach, van de hemel naar de aarde gekomen om de genietingen van het vlees te smaken, om zich in het bestaan in het vlees te verheugen.
-1 Johannes 4:2 vertelt ons: "Hieraan herkent u de Geest van God: iedere Geest die erkent dat Jezus Christus mens is geworden, komt van God".
-Doordat hij tussen de seksen een aantrekkingskracht heeft ingesteld, is het normaal dat man en vrouw trouwen, en zelfs christenen die in het vlees zijn, worden hiervan niet uitgesloten.
-In plaats dat zij het vooruitzicht hadden eindeloos, eeuwig in het vlees te leven in het aardse paradijs, kwamen zij onder Gods doodsoordeel te staan, zonder een kans op voortbestaan, en werden zij uit het Edense paradijs verdreven.
-Wat heeft Jezus, hoewel hij in vleselijke zin vrouw noch kinderen had, in dit opzicht een schitterend voorbeeld gegeven! — Markus 10: 13 - 16; Efeziërs 5: 25 - 27.
-Dezen mogen, als ’ nieuwe scheppingen ’, nog een poosje in het vlees blijven leven om hun bediening op aarde te verrichten en hun rechtschapenheid onder beproeving te bewijzen.
-Deze geestelijke oorlogvoering wordt beschreven in 2 Korinthiërs 10: 3 - 5: „Al wandelen wij in het vlees, wij voeren geen oorlog overeenkomstig datgene wat wij zijn in het vlees.
-Paulus, die wonderen van gezondmaking verrichtte, kreeg geen verlichting van de „doorn in het vlees ” die hem bleef„ slaan ”. — 2 Korinthiërs 12: 7; 1 Timotheüs 5: 23.
-In het vlees heeft hij de spot en schande bereidwillig aanvaard, maar nu worden de rollen omgekeerd en al Gods vijanden zullen een smadelijke en algehele nederlaag lijden.
-Het boek 2 Johannes vormt ook een dringende waarschuwing om op de hoede te zijn voor bedriegers die rondgingen en beweerden dat Christus niet daadwerkelijk in het vlees verrezen was.
-16 Nu voortaan niet als een dienstknecht, maar meer dan een dienstknecht, namelijk een geliefden broeder, inzonderheid mij, hoeveel te meer dan u, beide in het vlees en in den Heere.
-En dit is zelfs in het leven in het vlees waar: wanneer de mens en God een deelgenootschap aangaan, kan er geen grens worden gesteld aan de toekomstige mogelijkheden van zulk een deelgenootschap.
-5 Want hoewel ik met het vlees van u ben, nochtans ben ik met den geest bij u, mij verblijdende en ziende uw ordening, en de vastigheid van uw geloof in Christus.
-Dat doet het vlees altijd. Satan heeft een gewillige bondgenoot in het vlees en door de energie van het vlees kan hij het volk des Heren uit hun erfdeel houden.
-Ook al wandelt Christus Jezus niet langer in het vlees op aarde rond, zoals ruim negentienhonderd jaar geleden, wil dit niet zeggen dat wij niet met hem kunnen wandelen.
-Is het daarom niet begrijpelijk dat de apostel Petrus over Jezus verklaarde dat hij „ter dood gebracht ” werd„ in het vlees ”, maar „levend gemaakt in de geest ”? — 1 Petr.
-Dat is erg opwindend voor iedereen, maar laten we eerlijk zijn... wat echt opwindend is, is om deze twee wezens te zien... in levende lijve.
-Opdat de uitverkoren heiligdomklasse, die werd vertreden, niet met de zevende wereldmacht vernietigd zou worden, maar gered zou kunnen worden terwijl ze zich nog in het vlees bevond. — Matth.
-Bekijk duizenden anatomische specimen die worden bewaard in potten, van voeten met koudvuur tot kwaadaardige moedervlekken. U kunt ook een boek zien dat is gebonden in de huid van de notoire 19e eeuwse moordenaar William Burke!
-In 2 Johannes 7 schreef dezelfde apostel en schrijver van de eerste brief: „Er zijn vele bedriegers tot de wereld uitgegaan, personen die de komst van Jezus Christus in het vlees niet belijden.
-Wij hebben gezien dat Jezus Christus na zijn getrouwe loopbaan tot de dood in het vlees, „levend [werd] gemaakt in de geest ”,„ rechtvaardig [werd] verklaard in geest ”, en dat hem onsterfelijkheid en onverderfelijkheid geschonken werd.
-Dat kan onderwijs zijn dat niet in balans is, of juist onderwijs dat tot in het extreme doorgevoerd wordt, of het kan iemand zijn die hen boos maakt.De vrucht van de Geest/geest is liefde, blijdschap, vrede, geduld, vriendelijkheid, goedheid, geloof, zachtmoedigheid, zelfbeheersing."
-Toen zij derhalve de mogelijkheid onder de ogen zagen dat zij hem misschien nooit meer in het vlees zouden zien, weenden zij zeer, terwijl zij ’ Paulus om de hals vielen en hem teder kusten ’. — Hand. 20: 37, 38.
-Christus heeft ook geleden. Hij is eenmaal voor onze zonden gestorven, als een onschuldige voor de schuldigen. Hij heeft dat gedaan om ons bij God terug te brengen. Maar hoewel Zijn lichaam gestorven is, is het door de Geest weer levend gemaakt.
-Laten wij, daar wij nog steeds in het vlees zijn, ten slotte echter een beknopt beeld krijgen van wat voor soort van man, wat voor soort van leider, Jezus is geweest toen hij met zijn discipelen op aarde was.
-Christus heeft ook geleden. Hij is eenmaal voor onze zonden gestorven, als een onschuldige voor de schuldigen. Hij heeft dat gedaan om ons bij God terug te brengen. Maar hoewel Zijn lichaam gestorven is, is het door de Geest weer levend gemaakt.
-Bovendien was het de bijbelschrijver Paulus die verklaarde: „Want al leven wij in het vlees, wij trekken niet ten strijde naar het vlees, want de wapenen van onzen veldtocht zijn niet vleselijk ”.
-God gaf de volgende reden voor het gebod: „Gij moet besneden worden in het vlees van uw voorhuid, en het moet dienen tot een teken van het verbond tussen mij en u ”.
-De engelen van tijd en ruimte hebben de gave om zowel geest-wezens als materiële wezens te kunnen zien, evenals de opklimmende stervelingen dat kunnen na hun verlossing uit het leven in het vlees.
-Want wij zijn degenen met de ware besnijdenis, die door Gods geest heilige dienst verrichten en wij roemen in Christus Jezus en stellen ons vertrouwen niet in het vlees. ”
-Wees vriendelijk voor mijn broers naar het vlees wanneer zij dit evangelie eenmaal echt gaan geloven; leg liefdevolle, onpartijdige toewijding aan de dag aan de Grieken in het Westen en aan Abner in het Oosten.
-Maar, het Ware Zielzelf zal zichzelf KENNEN … in het fysieke … vanuit het fysieke … en daardoor zal er enkel nog een verlangen zijn om de meest Liefdevolle gedachten, woorden en daden 'uit te voeren'.
-„ De hervormer is altijd een doorn in het vlees ”, zei Jürgen Reulecke, hoogleraar moderne geschiedenis en een deskundige op het gebied van hervormers, die in het nieuwsblad Die Zeit werd geciteerd.
-7:28 Maar indien gij ook trouwt, gij zondigt niet; en indien een maagd trouwt, zij zondigt niet. Doch dezulken zullen verdrukking hebben in het vlees; en ik spare ulieden.
-Heb. 2:18. “Daar Christus dan naar het vlees geleden heeft, moet ook gij u wapenen met dezelfde gedachte, dat, wie naar het vlees geleden heeft, onttrokken is aan de zonde.”
-Jezus voorzei hoe Jehovah de verdrukking ten aanzien van Satans organisatie zou onderbreken opdat Jehovah’s uitverkorenen in het vlees de gelegenheid zouden hebben dit levenreddende werk met betrekking tot de „andere schapen ” te verrichten.
-Als u ons in levende lijve wilt ontmoeten en u Outwell-producten wilt bekijken, kunt u ons vinden op diverse klantenshows en ook bij open dagen en tentoonstellingen van verkopers gedurende het jaar.
-“Zo iemand laat zich gedurende de rest van zijn leven niet meer leiden door menselijke verlangens maar door Gods wil” (1 Petrus 4:2; zie ook Kolossenzen 4:5, Jakobus 4:14 en 1 Petrus 1:14-22).
-Nog eentje: De Geest van God herkent u hieraan: iedere geest die belijdt dat Jezus Christus als mens gekomen is, komt van God (Johannes 4:2).De correcte versie is:
-Dit alles nu heb ik gedaan opdat mijn broeders in het vlees mogen weten dat de Vader hen liefheeft, zoals ook de Zoon hen liefheeft, en dat gij hen liefhebt zoals gij ook mij liefhebt.
-(1016.2) 93:2.8 Gedurende de incarnatie in het vlees stond Machiventa volledig in contact met zijn elf metgezellen uit het korps der planetaire curatoren, maar hij kon niet communiceren met hemelse persoonlijkheden van andere orden.
-Aan het eind van jullie aardse leven zullen jullie allen barmhartigheid verwachten; daarom verlang ik van jullie dat je tijdens je leven als sterveling barmhartigheid betoont aan al jullie broeders in het vlees.
-6 Want daartoe is ook den doden het Evangelie verkondigd geworden, opdat zij wel zouden geoordeeld worden naar den mens in het vlees, maar leven zouden naar God in den geest.
-1:16 niet langer als een dienaar, maar, in plaats van een dienstknecht, een zeer geliefde broeder, in het bijzonder voor mij: maar hoeveel zodat er meer aan u, beide in het vlees en in den Heere!
-Het ego kan inderdaad niet worden vernietigd zo lang we van haar diensten gebruik moeten maken tijdens dit aardse leven; maar het kan beteugeld en dienstbaar gemaakt worden, in plaats van dat we het bij voortduring de baas over ons laten spelen.
-Het was voor de wet niet mogelijk te bevrijden, omdat zij stukliep op de zwakheid van de menselijke natuur. Daarom heeft God Zijn eigen Zoon gestuurd, Die net als de zondige mensen, een menselijk lichaam had. Om ons te bevrijden van de zonde heeft Hij het oordeel van God op Zich genomen.
-Daarom kon een goddelijke persoon zoals Jezus niet werkelijk sterven in het vlees, maar zou slechts lijken zo te doen, hoewel Mohammed niet geloofde dat Jezus goddelijk was, maar slechts een profeet was zoals hijzelf was.
-Kort voordat hij in het vlees werd ter dood gebracht, zeide hij tot zijn volgelingen: „Nu wordt deze wereld geoordeeld; nu zal de heerser van deze wereld [Satan] uitgeworpen worden ”.
-1:23 Want ik word van deze twee gedrongen, hebbende begeerte, om ontbonden te worden en met Christus te zijn; want dat is zeer verre het beste.1:24 Maar in het vlees te blijven, is nodiger om uwentwil.
-In de loop der jaren konden wij waarnemen dat zijn menselijke bewustzijn steeds duidelijker ging zien dat hij, ofschoon hij in het vlees leefde, in de geest de verantwoordelijkheid voor een universum op zijn schouders droeg.
-We were created to live in a way that shows Him to be who He is . Paulus zegt in Filippenzen 1 dat als hij leeft voort in het vlees betekent vruchtbare arbeid voor Hem.
-16 En buiten allen twijfel, de verborgenheid der godzaligheid is groot:God is geopenbaard in het vlees, is gerechtvaardigd in den Geest, is gezien van de engelen, is gepredikt onder de heidenen, is geloofd in de wereld, is opgenomen in heerlijkheid.
-Want ook Christus is eenmaal om de zonden gestorven als rechtvaardige voor onrechtvaardigen, opdat Hij u tot God zou brengen: Hij, die gedood is naar het vlees, maar levend gemaakt naar de geest" (1 Petrus 3:17, 18).
-Hij is naar de geesten gegaan die gevangen zaten, om dit alles te verkondigen.” De zinsnede “naar de geest” in vers 18 gebruikt precies dezelfde constructie als de zinsnede “naar het lichaam”.
-De apostel Paulus bad tot God om de "doorn in zijn vlees" te verwijderen, maar God zei "Nee", omdat Hij wilde dat Paulus begreep dat hij niet lichamelijk 100% in orde hoefde te zijn om de behoudende genade van God te ervaren.
-Ook schrijft een discipel die met hem op de Galilese berg bijeenwas: „Christus is eens voor altijd gestorven betreffende zonden,... hij, ter dood gebracht in het vlees, maar levend gemaakt in de geest ”.
-De vrede van Jezus is de vreugde en voldoening van de mens die God kent en die de zege heeft behaald dat hij geheel heeft geleerd hoe hij de wil van God kan doen, terwijl hij het sterfelijke leven in het vlees leidt.
-Hier hebben wij nog een bewijs, nog een verzekering dat een overblijfsel van Christus ’ geestelijke broeders Armageddon in het vlees zal overleven en na de strijd nog enige tijd in het vlees op aarde in de nieuwe ordening zal zijn.
-Over degene die deze handelwijze wenst te volgen, schrijft de apostel Petrus dat hij ’ den tijd, die nog rest in het vlees, niet meer naar de begeerten van mensen, maar naar den wil van God moet leven ’.
-Het is een stuk makkelijker als je kunt zien en voelen en aanraken maar wij, we hebben hem niet fysiek gezien we hebben hem niet aangeraakt maar we hebben hem in de geest ervaren.
-Met u is het anders. U doet niet meer uw eigen zin, maar laat u leiden door de Geest; tenminste als de Geest van God in u woont. Als u de Geest van Christus niet hebt, hoort u niet bij Hem.
-18 Want Christus heeft ook eens voor de zonden geleden, Hij rechtvaardig voor de onrechtvaardigen, opdat Hij ons tot God zou brengen; Die wel is gedood in het vlees, maar levend gemaakt door den Geest;
-Het boek 2 Johannes houdt zich voornamelijk bezig met een dringende waarschuwing voor bedriegers die niet de precieze leer van Christus onderrichtten en bleven beweren dat Jezus niet daadwerkelijk lichamelijk uit de dood was opgestaan, maar alleen geestelijk.
-En opdat ik mij door de uitnemendheid der openbaringen niet zou verheffen, zo is mij gegeven een scherpe doorn in het vlees, namelijk een engel des satans, dat hij mij met vuisten slaan zou, opdat ik mij niet zou verheffen.
-Een goed gefundeerde en met een anker te vergelijken hoop op Jehovah en op de gewaarborgde zegeningen van zijn nieuwe samenstel geeft christenen dus ondanks hun verdrukkingen in het vlees en de stormachtige toestanden die hen in deze wereld omringen, stabiliteit en troost.
-Een van de meest interessante was die van een persoon die uit zijn lichaam was getreden en echt gezien werd alsof hij in zijn fysieke lichaam zat door een ander persoon: Mr Landau rapporteerde dat zijn toekomstige vrouw hem in 1955 vertelde van haar BLE's.
-"En buiten alle twijfel, de verborgenheid der godzaligheid is groot. God is geopenbaard in het vlees, is gerechtvaardigd in den Geest, is gezien van de engelen, is gepredikt onder de heidenen, is geloofd in de wereld, is opgenomen in heerlijkheid." 1 Timotheüs 3:16.
-Zij waren niet als de ongelovige joden, die Jezus zichtbaar in het vlees in hun midden zagen en toch niet erkenden dat hij de beloofde Messías was, dat ’ het koninkrijk Gods zich in hun midden ’ bevond.
-Paulus vertelde ons derhalve dat mentale en geestelijke duisternis de mensen in de wereld niet alleen tot verderf in het vlees heeft gebracht, maar hen ook heeft gescheiden van de door God in het vooruitzicht gestelde hoop op eeuwig leven.
-(2002.4) 186:5.3 Ten tijde van zijn doop had de Meester zich reeds de methode eigen gemaakt van de vereiste ervaring op aarde en in het vlees, die noodzakelijk was om zijn zevende en laatste zelfschenking aan zijn universum te voltooien.
-Daarom dat de gezindheid van het vlees vijandschap is tegen God; want het onderwerpt zich niet aan de wet Gods; trouwens, het kan dat ook niet: zij, die in het vlees [natuurlijk gezind] zijn, kunnen Gode niet behagen.
-Terwijl zij nog in het vlees op aarde zijn, vervullen zij ondertussen de „bediening ” die hun ten deel valt als ambassadoriale„ gezanten die optreden in de plaats van Christus ”, doordat zij zich bezighouden met „de bediening van het woord ” over Jehovah’s koninkrijk in handen van Christus.
-(1953.3) 181:1.1 Toen de elf weer hadden plaatsgenomen, ging Jezus staan en sprak hen als volgt toe: ‘Zolang ik in het vlees bij jullie ben, kan ik slechts één individueel persoon zijn bij jullie en in de hele wereld.
-Ofschoon zij onzichtbaar zijn voor stervelingen, zien zij u wel zoals ge in het vlees zijt, zonder de hulp van transformeerders of vertalers; verstandelijk begrijpen zij de levenswijze van stervelingen, en zij delen al ’s mensen niet-zintuiglijke emoties en gevoelens.
-En opdat ik mij door de uitnemendheid der openbaringen niet zou verheffen, zo is mij gegeven een scherpe doorn in het vlees, namelijk een engel des satans, dat hij mij met vuisten slaan zou, opdat ik mij niet zou verheffen.
-'Koning Pepi heeft zijn schittering neergezet als een trap onder zijn voeten waarlangs hij kan opstijgen naar zijn moeder.' (1045.2) 95:2.9 Toen Melchizedek in het vlees verscheen, hadden de Egyptenaren een religie die ver verheven was boven die van de volken die hen omringden.
-Bruce McConkie zei: “Onze Heer wordt genoemd de eniggeboren Zoon van de Vader in het vlees. Christus werd verwekt door een onsterfelijke Vader, op dezelfde wijze als mensen verwekt worden door sterfelijke vaders.”
-Vat je plichten vlug weer op en leef je leven in het vlees als een zoon van God, een sterveling die zich wijdt aan de veredelende dienst van de mens op aarde en bestemd is voor de verheven, eeuwige dienst van God in de eeuwigheid.’
-Over „Het technische gebruik van pareimi [werkwoord] en parousía in het N.T. ” wordt gezegd:„ In het N.T. worden de termen nooit voor de komst van Christus in het vlees gebruikt, en parousía heeft nooit de betekenis van wederkomst.
-Jezus, die God Zelf is, voltooide Zijn werk om zondaars rechtvaardig te maken door naar deze aarde te komen in het vlees van een mens en Zijn volk te redden van al hun zonden door Zijn doopsel en Zijn dood aan het Kruis.
-En wanneer jullie je mij herinnert, ziet dan eerst terug op mijn leven in het vlees, herinner je dat ik eens bij jullie ben geweest, en ziet dan in geloof dat jullie allen eens met mij het avondmaal zult gebruiken in het eeuwige koninkrijk van de Vader.
-(1954.5) 181:1.8 Een zekere mate van zowel stoïcisme als optimisme komt wel van pas in het leven op aarde, maar geen van beide heeft ook maar iets te maken met die prachtige vrede die de Zoon Gods aan zijn broeders in het vlees schenkt.
-En opdat ik mij door de uitnemendheid der openbaringen niet zou verheffen, zo is mij gegeven een scherpe doorn in het vlees, namelijk een engel des satans, dat hijmij met vuisten slaan zou, opdat ik mij niet zou verheffen.
-Aangezien allen die loochenen dat Jezus in het vlees is gekomen, antichristen zijn, komen wij verder tot de gevolgtrekking dat allen die beweren dat Jezus een incarnatie was, en louter met vlees was bekleed, antichristen zijn, want zij loochenen dat Jezus waarlijk in het vlees is gekomen.
-Als wij geloven dat de Heer dus op deze aarde geboren was in de gedaante van een mens, gedoopt werd door Johannes, aan het Kruis stierf, van de dood herrees, en daarbij onze Verlosser werd, kunnen we allen Gods kinderen worden.
-Hij verliet deze wereld gerijpt in de ervaring die zijn schepselen doormaken gedurende de korte, inspannende jaren van hun eerste leven, het leven in het vlees. Al deze menselijke ervaring is een eeuwig bezit van de Soeverein van het Universum.
-Bovendien is het belangrijk om in gedachten te houden dat de verdienste van Christus ’ slachtoffer — welke ten behoeve van degenen die geestelijke Israëlieten worden, wordt toegepast en tot gevolg heeft dat zij, terwijl zij zich nog in het vlees bevinden, door God rechtvaardig worden verklaard — een speciaal doel heeft.
-Opdat zij, zelfs hoewel zij nog in het vlees op aarde zijn, onder de verheerlijkte Hogepriester dienst mogen verrichten, geeft Jehovah hun een nieuwe geboorte door zijn heilige geest, waardoor hij hen tot zijn geestelijke zonen maakt en machtigt priesterlijke taken te verrichten.
-"Want wat de wet niet vermocht, omdat zij zwak was door het vlees - God heeft, door zijn eigen Zoon te zenden in een vlees aan dat der zonde gelijk, en wel om de zonde, de zonde veroordeeld in het vlees, …" (Romeinen 8:3).
-Ten einde zich bovendien te rechtvaardigen om het feit dat zij Christus ’ voorbeeld niet volgden maar al vóór de opstanding uit de doden heerschappij aanvaardden, beweerden zij dat Openbaring 20: 4 - 6 ten aanzien van henzelf in vervulling ging.
-Zij legt haar eieren in het vruchtvlees van de olijf en daaruit kan de larve zich ontwikkelen.De scheuren in de vrucht zorgen dat die slecht wordt waarbij de ontwikkeling van de larve de zuurgraad verhoogt in de olie met bijgaande organoleptische mankementen.
-Zoals Romeinen 8:3 verklaart, "Want hetgeen der wet onmogelijk was, dewijl zij door het vlees krachteloos was, heeft God, Zijn Zoon zendende in gelijkheid des zondigen vleses, de zonde veroordeeld in het vlees."
-Tegenwoordig kunnen we via internet van over de hele wereld ervaringen en ideeën met elkaar delen, maar in die eerste decennia van de twintigste eeuw voldeed alleen een échte ontmoeting, zo was Parijs de community van de moderne kunst.
-(1200.4) 109:6.4 De activiteiten van Richters in uw plaatselijk universum worden bestuurd door de Gepersonaliseerde Richter van Michael van Nebadon, dezelfde Mentor die Michael stap voor stap begeleidde toen hij zijn leven als mens leefde in het vlees van Joshua ben Joseph.
-Omdat niemand die van Adam een kort bestaan als een man ontvangt, een volmaakt leven als een slachtoffer voor het menselijke gezin kon geven, zond God zijn eniggeboren Zoon uit de hemel opdat deze een volmaakte man in het vlees op aarde kon worden.
-Wij lezen daarom: „Immers, ook Christus is eens voor altijd gestorven betreffende zonden, een rechtvaardige voor onrechtvaardigen, om u tot God te leiden, hij, ter dood gebracht in het vlees, maar levend gemaakt in de geest. ”
-Bij één gelegenheid liet hij doorschemeren dat, terwijl het oog van het vlees hem had aanschouwd toen hij hier in het vlees leefde, hij bij zijn terugkeer (tenminste bij één van zijn mogelijke bezoeken) slechts door het oog van het geestelijk geloof zou worden onderscheiden.
-En alle geest, die niet belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, datkomen zal, en is nu alrede in de wereld.
-Tegen het einde van september, de vruchten rood, zacht en erg lief. In het vlees ligt 40 tot 100 donkere zaden met een harde korst. Woonplaats: groeit goed op een zonnige of licht beschaduwde gebieden. Hygrophilous. Bodem: vereist gebieden met losse, vochtige, vruchtbare grond.
-Of houdt u, in christelijke liefde, rekening met zulke ongunstige omstandigheden, terwijl u zulke mensen niet beziet naar wat zij in het vlees zijn maar overeenkomstig het standpunt van God, die niet partijdig is ten opzichte van mensen van welk ras of welke kleur maar ook?
-8:3 Want hoewel dit niet mogelijk was onder de wet, omdat het werd verzwakt door het vlees, God Zijn eigen Zoon gezonden in de gelijkenis van het zondige vlees en vanwege de zonde, om de zonde te veroordelen in het vlees,
-Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar Christus leeft in mij; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons vanGod, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft.
-God heeft de bijbel niet aan een afzonderlijke persoon gegeven, maar aan een natie; eerst aan de Hebreeuwse natie en vervolgens aan wat Petrus Gods „heilige natie ” noemt, hetgeen het„ Israël Gods ” is, waarvan de leden niet in het vlees, maar in het hart zijn besneden.
-Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar Christus leeft in mij; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons van God, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft.
-En het doel van onze Heer, die de Koning der koningen was en de Heer van de Hemel, om in de gedaante van een mens naar deze aarde te komen, was om de waarheid van de blauwe, paarse en dieprode wol en het getweernde linnen te vervullen.
-En dit was de betekenis van Jezus’ persoonlijke ervaring, kort voor zijn dood in het vlees, toen hij op een dag tegen zijn discipelen uitriep: ‘En ik zag Satan als bliksem uit de hemel vallen.’ Deze was met Lucifer naar Urantia gekomen voor de laatste, cruciale strijd.
-Toen Jezus zijn discipelen op aarde achterliet en veertig dagen na zijn opstanding uit de doden naar de hemel opsteeg, was hij nog steeds in het bezit van zijn recht op volmaakt menselijk leven, een recht dat hij niet had verspeeld door enige zonde in het vlees te begaan.
-Weliswaar houdt Christus niet op Zijns zelfs, of een vrij God te zijn, wanneer Hij de onze wordt, maar Hij gedraagt zich zo alsof Hij niet van Zichzelf was, door met ons in nauwe betrekking te komen en ambten op Zich te nemen, die Hem verbinden.
-Als Petrus door zijn dagelijkse zonden een zondaar was geworden, zou Jezus hem niet gezegd hebben om het evangelie van de verzoening der zonden te prediken, omdat hij, net als de andere discipels het niet kon helpen om toch dagelijks in het vlees te zondigen.
-Dal is de reden waarom Ik mij vandaag gioie zorgen maak over de resultaten van de conferentie. Daarom ook moei ons Parlement zijn werkzaamheden intensiveren om. samen met de Commissie en bepaalde lid-stalen. de intergouvernementele conferentie politiek te stimuleren.
-(1752.4) 158:1.2 Jezus was opgeroepen om zich op de berg terug te trekken voor de afwikkeling van belangrijke zaken die te maken hadden met de voortgang van zijn zelfschenking in het vlees, voorzover deze ervaring verband hield met het universum dat hij zelf had geschapen.
-„ De eerste mens Adam werd een levende ziel, ” zo haalt Paulus aan, waarbij hij hem tegenover de laatste Adam, Jezus, stelt, die „een levengevende geest ” werd nadat hij uit de doden was opgewekt,„ hij, ter dood gebracht in het vlees, maar levend gemaakt in de geest. ”
-Wij weten nog steeds niet of dit gewoon een droom is, maar het lijkt ten minste heel levensecht voor Sabby, de gelukkige performer die is belast met de verificatie dat deze belachelijk hete Russische porno legende eigenlijk terug is. Welkom terug, onze Cumlouder engel.
-108.11 En de Heer zei: “Nu zal ik de geesten roepen van de goeden, die zijn van de generatie van het licht, en ik zal degenen die zijn geboren in de duisternis transformeren, die toen ze in het vlees waren niet werden gecompenseerd met de eer die passend is bij hun geloof.
-De apostel Petrus schreef hier later over: „Christus is eens voor altijd gestorven betreffende zonden, een rechtvaardige voor onrechtvaardigen, om u tot God te leiden, hij, ter dood gebracht in het vlees, maar levend gemaakt in de geest. ” — 1 Petr.
+Gods vrouw, vertegenwoordigd door een joods overblijfsel dat het Zaad, toen hij nog in het vlees op aarde leefde, getrouw had gevolgd, treurde echter.
+Hij had nu zijn aardse leven geleid tot volle tevredenheid van de Vader, en deze incarnatie in het vlees had hem in staat gesteld de mens volledig te begrijpen. Jezus was de volmaaktheid van de mens; hij had dezelfde volmaaktheid bereikt die alle ware gelovigen voorbestemd zijn in hem en door hem te bereiken. Jezus openbaarde een God van volmaaktheid aan de mens en liet in zichzelf de volmaakt geworden zoon van deze gebieden aan God zien.
+8:8 Dus degenen die in het vlees niet in staat zijn om God te behagen.
+2:5 Want hoewel ik met het vlees van u ben, nochtans ben ik met den geest bij u, mij verblijdende en ziende uw ordening, en de vastigheid van uw geloof in Christus.
 God kan ons de wijsheid en innerlijke kracht geven die nodig zijn om „een doorn in het vlees ” te verduren die ons kwelt alsof we door„ een engel van Satan ” worden geslagen.
-Vanuit die positie kan de Here ons duidelijk maken of we wel of niet moeten handelen en hoe. (Vergelijk de manier waarop Elisa handelde) Soms leidt dat tot een definitieve wonderbaarlijke oplossing, soms geeft God ons kracht om de doorn in het vlees te verdragen.
-Ieder van de twaalf reageerde op zijn eigen persoonlijke manier op de gebeurtenissen van deze laatste dagen die het einde vormden van het dienstbetoon van Jezus in het vlees, en ieder hield zich aan ’s Meesters uitdrukkelijke opdracht om zich gedurende deze Paasweek te onthouden van alle onderricht en prediking in het openbaar.
-Zo bijgevolg de status quo van het Duitse staatswezen de voltooiing van het ancien régime uitdrukt, de definitieve doorn in het vlees van de moderne staat, dan drukt de status quo van de Duitse politieke wetenschap de onvoltooidheid van de moderne staat uit, de gebrekkige toestand van zijn vlees zelf.
-(2091.11) 196:2.2 Het leven van Jezus in het vlees laat een transcendente religieuze groei zien van de vroege ideeën van primitief ontzag en menselijke eerbied, via jaren van persoonlijke geestelijke omgang, totdat hij ten slotte de gevorderde, verheven status bereikte van besef van zijn eenheid met de Vader.
-(229.4) 20:6.5 De loopbanen van de Michaels en de Avonals komen bij hun zelfschenkingen als sterveling voor het merendeel overeen, doch niet in alle opzichten zijn zij identiek: nooit zal een Magistraat-Zoon zeggen 'Wie de Zoon gezien heeft, heeft de Vader gezien,' zoals uw Schepper-Zoon verklaarde toen hij in het vlees op Urantia verkeerde.
-'Uw spraak maakt u openbaar' kan op veel manieren toegepast worden, want of wij in het vlees leven of in de geest, in de natuurlijke of in de geestelijke mens, het zal altijd blijken uit wat wij zeggen en uit de geestelijke uitwerking van de vrucht van onze lippen.
-“Of je kunt zeggen dat het afgelopen is met hoe het vroeger was”, vervolgt Schmechel. En wat leidt tot het feit dat ik klaar ben met hoe het eerder gegaan is? Als ik een strijder word. Als ik me wapen met de gedachte dat ik in het vlees moet lijden om vooruit te komen. Om overwinningsvreugde te krijgen.
-(1047.2) 95:5.2 Sinds Melchizedek uit het vlees was verdwenen, had geen enkel mens tot aan die tijd zo’n verbazingwekkend duidelijk beeld gehad van de geopenbaarde religie van Salem als Ichnaton. In sommige opzichten is deze jonge Egyptische koning een van de opmerkelijkste personen in de geschiedenis van de mensheid.
-(1101.5) 100:7.1 Ofschoon de gemiddelde mens van Urantia niet kan verwachten de hoge volmaaktheid van karakter te bereiken die Jezus van Nazaret verwierf terwijl hij in het vlees was, is het voor iedere sterfelijke gelovige zeer wel mogelijk om een sterke, verenigde persoonlijkheid te ontwikkelen volgens de vervolmaakte lijnen van de Jezus-persoonlijkheid.
-Een ieder die nu mijn discipel wil zijn, moet bereid zijn zelfs zijn leven te geven, evenals de Zoon des Mensen op het punt staat zijn leven op te offeren ter voltooiing van de missie om de wil van de Vader te doen op aarde, en in het vlees.
-Want later, toen de kerk te Jeruzalem was gesticht, gaf hij inderdaad gehoor aan het bevel van de Meester ofschoon het toen te laat was om lid te kunnen worden van de zeventig, en hij werd penningmeester van de kerk te Jeruzalem waarvan Jakobus, de broer van Jezus, het hoofd was.
-(1113.6) 101:6.17 Door zich het geloof van Jezus toe te eigenen, kan de sterfelijke mens reeds in de tijd de realiteiten van de eeuwigheid smaken. Jezus ontdekte in zijn menselijke ervaring de Finale Vader, en zijn broeders naar het vlees in het sterfelijke leven kunnen hem navolgen in deze ervaring van het ontdekken van de Vader.
-Zo blijft de cultuur van een planeet steeds aanwezig op die planeet, en onder de juiste omstandigheden worden deze kostbare herinneringen aan gebeurtenissen in het verleden beschikbaar gesteld, zoals ook het verhaal van het leven en onderricht van Jezus door de middenwezens van Urantia aan hun verwanten in het vlees is gegeven.
-Over Egypte, en over Juda, en over Edom, en over de kinderen Ammons, en over Moab, en over allen, die aan de hoeken afgekort zijn, die in de woestijn wonen; want al deheidenen hebben de voorhuid, maar het ganse huis Israels heeft de voorhuid des harten. Jeremia 10
-Als een bevestiging hiervan vertelt Petrus ons in zijn eerste brief 1Pe hoofdstuk 3 vers 18: „Christus is eens voor altijd gestorven betreffende zonden, een rechtvaardige voor onrechtvaardigen, om u tot God te leiden, hij, die ter dood gebracht werd in het vlees, maar levend gemaakt in de geest. ”
-Op de vragen van Johannes over diens eigen prediking en zending zei Jezus slechts: ‘Mijn Vader zal je nu en in de toekomst leiden zoals hij dat in het verleden heeft gedaan.’ En deze twee grote mannen gingen die morgen uiteen aan de oevers van de Jordaan om elkaar nooit weer in het vlees te begroeten.
-Aangezien die voorste afdeling een verborgen plaats was, die niet door niet - priesterlijke aanbidders van God gezien mocht worden en die toch niet de tegenwoordigheid van God in de hemel afbeeldde, moeten wij de conclusie trekken dat ze een schaduw was van de bijzondere positie die eerst door Jezus en later door zijn onderpriesters werd ingenomen toen zij zich nog in het vlees bevonden.
-PB, voetnoot; AS. Jezus Christus predikte niet tot de „geesten in de gevangenis ” toen hij in Sheʹol, Haʹdes of het gemeenschappelijke graf dood was nadat hij ’ in het vlees ter dood was gebracht, ’ maar enige tijd nadat hij ’ in de geest levend was gemaakt ’ doordat hij uit de doden werd opgewekt.
-Er waren echter in november een aantal amendementen op dit verslag ingediend en het werd terugverwezen naar de Commissie.
-Andere zaken kunnen zeker bediscussieerd worden, zoals de vraag wie het boek Hebreeën schreef, de aard van de “doorn in het vlees” van Paulus of het aantal engelen dat op een speldenpunt kan staan. We moeten oppassen dat we ons niet laten meeslepen door getwist over secundaire zaken (2 Timoteüs 2:23; Titus 3:9).
-Lees meer Credits regisseur: Jeffrey Schwarzcomponist: Michael Cudahyproducent: Jeffrey Schwarzmontage: Jeffrey Schwarzfotografie: Nancy Schreibergeluid: Joe Milnerproductiehuis: Allan Glaser Productions Meer info dialoog: Engelsondertitels: Geen ond.land: Verenigde Statenjaar: 2015Officiële site Filmografie JEFFREY SCHWARZ (1969): Al Lewis in the Flesh (1993, short), Blood and Donuts (2000, short), Spine Tingler!
-Het leven dat ik nu in het vlees leid, zal beide oordelen, de ware en de valse herders. Indien de valse herder blind was, zou hij niet zondig zijn, maar gij beweert dat ge ziet: gij zegt leraren in Israel te zijn; daarom blijft uw zonde op u rusten.
-(1017.1) 93:3.7 Melchizedek onderrichtte dat er in de toekomst nog een Zoon van God zou komen, in het vlees, zoals hijzelf, maar dat deze uit een vrouw geboren zou worden. Dit is de reden waarom talrijke latere leraren van mening waren dat Jezus een priester of voorganger was, ‘eeuwig, naar de ordening van Melchizedek.’
-Degenen van Christus ’ volgelingen die ertoe geroepen zijn uiteindelijk met hem in de hemel te zijn, ontvangen, terwijl zij zich nog in het vlees bevinden, het voorrecht van een vroegtijdige bevrijding van de veroordeling der zonde, opdat hun een „nieuwe geboorte ” gegeven kan worden en zij aldus in eendracht met Christus Jezus en zijn geestelijke broeders kunnen komen.
-We wassen ze weg door te geloven dat Jezus Christus, de Koning der koningen, ongeveer 2.000 jaar geleden in de gedaante van een mens naar deze aarde kwam om de zondaars te redden, door hun zonden op Zich te nemen met Zijn doopsel, Zijn bloed aan het Kruis te vergieten en daarbij de zondaars van al hun zonden te vergeven.
-De Zoon van God daalde naar deze wereld af in de gedaante van een mens en werd gedoopt om alle zonden van de wereld door Johannes de Doper weg te nemen. Daarna bloedde Hij aan het Kruis om de mensheid voor altijd van al hun zonden te redden (Leviticus 16:6-22, Mattheus 3:13-17, Johannes 1:29, Hebreën 9:12, 10:1-18).
-Enige tijd vóór Michaels dood in het vlees, trachtte Satan, de medewerker van de gevallen Lucifer, zulk een conclaaf op Edentia bij te wonen, maar de verharding van de gevoelens jegens de aartsrebellen had het punt bereikt waar de deuren van sympathie zo nagenoeg universeel waren gesloten, dat er voor de tegenstanders uit Satania geen permanente plaats meer kon worden gevonden.
-Iemands levensloop en hoop voor de toekomst worden dus op het verkeerde spoor geplaatst door geloof in leerstellingen die zijn gegroeid uit de eerste leugen waar de bijbel melding van maakt, hoewel Eva destijds ongetwijfeld heeft gedacht dat de slang bedoelde dat zij helemaal niet in het vlees zou sterven.
-De geest-morontia-wereld kent duizend en één dingen van de allerhoogste waarde, dingen die het waard zijn gereproduceerd te worden maar die op Urantia onbekend zijn, ervaringen die tot de categorie horen van de activiteiten die nauwelijks ‘bij de mens zijn opgekomen’ – de realiteiten die God in petto heeft voor degenen die het leven in het vlees overleven.
-Na uit de doden te zijn opgewekt, zei Jezus tot zijn discipelen: „Dit zijn mijn woorden die ik tot u sprak toen ik nog bij u [in het vlees] was, dat alle dingen die in [1] de wet van Mozes en in [2] de Profeten en [3] de Psalmen over mij geschreven staan, vervuld moesten worden ”.
-Ik vind het ongelooflijk dat God in het vlees over het hele land mensen had genezen en overal onderwees, met hen sprak als Zoon van God zijnde en refereerde naar God de Vader als Zijn Vader, en dat de mensen desondanks zeiden dat Hij een dode profeet was die weer tot leven was gekomen, in plaats van Wie Hij zei dat hij was.
-De blauwe, paarse en dieprode wol en het getweernde linnen dat gebruikt werd voor de poort van de voorhof van de Tabernakel, zegt ons de waarheid van de zaligheid; dat Jezus Christus onze Messias, naar deze aarde moest komen in de gedaante van een mens, gedoopt en gekruisigd moest worden, om ons van onze zonden te redden.
-Indien de Meester gunstig zou zijn ontvangen door de stervelingen op aarde, en van Urantia was weggegaan door zijn leven in het vlees vrijwillig af te leggen, zou het feit van de liefde van God en de barmhartigheid van de Zoon – het feit van het zoonschap bij God – hierdoor in geen enkel opzicht anders zijn geworden.
-3. Zolang Christus in het hart niet komt, kan het niet met. Christus vertoeven of enig ding voor Hem doen, Matth. 6: 24: Gij kunt niet God en de mammon tegelijk dienen; twee meesters hebben elk hun" bezigheid en gedurig werk, zodat men de een moet verlaten en de andere aanhangen.
-(2084.6) 195:10.6 De oproep tot de avontuurlijke onderneming om een nieuwe, getransformeerde, menselijke samenleving op te bouwen door middel van de geestelijke wedergeboorte van Jezus’ broederschap van het koninkrijk, moet allen die in hem geloven met enthousiasme vervullen, zozeer als niet meer is voorgekomen sinds de dagen toen zij rondgingen op aarde als zijn metgezellen in het vlees.
-Dienovereenkomstig verkoos Jezus zijn leven in het vlees af te leggen op de wijze die in overeenstemming was met de voltooiing van de natuurlijke loop der gebeurtenissen, en hij weigerde standvastig zich te onttrekken aan de wrede klauwen van een boze samenzwering van onmenselijke gebeurtenissen, die met verschrikkelijke zekerheid voortijlde naar zijn ongelooflijke vernedering en smadelijke dood.
-De Zoon van God, Jezus Christus, kwam naar de aarde in het vlees van een mens, werd gedoopt door Johannes de Doper, nam de last van alle zonden van de wereld op Zich, stierf aan het Kruis en werd na drie dagen van de dood herrezen, en Hij werd de Heer voor degenen die geloven.
-‘Hij zal zijn engelen u itzenden, en zij zullen zijn uitverkorenen bijeenvergaderen uit de vier windstreken.’ Samen met iedere serafijn die is aangesteld bij de repersonalisatie van een slapende sterveling, functioneert ook de teruggekeerde Richter, hetzelfde onsterfelijke Vader-fragment dat in de sterveling leefde tijdens de dagen in het vlees, en zo wordt de identiteit hersteld en de persoonlijkheid weer tot leven gebracht.
-Jezus is de Koning der koningen (de paarse draad) die in de gedaante van een mens naar deze aarde, met Zijn doopsel (de blauwe draad) de zonden van de wereld op Zich nam, deze zonden aan het Kruis droeg en gekruisigd werd (het paarse draad), van de dood herrees en ons daarmee heeft gered.
-Pas in 1932 begonnen wij duidelijk in te zien dat het ware „Israël Gods ”, het uitverkoren instrument voor de voornaamste vervulling van de vele Hebreeuwse profetieën inzake het herstel, niet zou bestaan uit natuurlijke joden, die in het vlees waren besneden, maar uit geestelijke joden of Israëlieten, dat wil zeggen door de geest verwekte christenen.
-‘Daar Christus dan naar het vlees geleden heeft, moet ook gij u wapenen met dezelfde gedachte, dat wie naar het vlees geleden heeft, onttrokken is aan de zonde, om niet meer naar de begeerten van mensen, maar naar de wil van God de tijd, die nog rest in het vlees, te leven.’ 1 Petrus 4:1-2
-In de Christelijke gemeente is weliswaar „noch man noch vrouw; want gij zijt allen één, in eendracht met Christus Jezus ”, maar in het vlees zijn wij nog steeds man en vrouw; wij kunnen nog steeds trouwen en kinderen voortbrengen en wij kunnen nog steeds door hartstocht worden gedreven en er toe worden verleid ons op sexueel gebied te misdragen.
-Omtrent zijn sterven als mens en zijn opstanding als een geestelijk persoon gaf de apostel Petrus de volgende uiteenzetting. „ Immers, ook Christus is eens voor altijd gestorven betreffende zonden, een rechtvaardige voor onrechtvaardigen, om u tot God te leiden, hij, ter dood gebracht in het vlees, maar levend gemaakt in de geest.
-Alhoewel Jezus daarna nog drie en een half jaar als een volmaakte man in het vlees heeft gewandeld totdat zijn menselijke slachtoffer was voltooid in zijn dood aan de martelpaal, stond God hem toch toe hier op aarde praktische illustraties te geven met betrekking tot de wijze waarop dit nieuwe programma van menselijke opheffing in Jehovah’s bestemde tijd werkzaam zou zijn.
-Zij worden geschoold in de school van harde slagen aangezien zij neergeslagen worden in het vlees opnieuw en opnieuw maar wanneer zij opstaan is het met een grotere zalving en niet meer het vlees dat verrijst maar MIJN RUACH ha KODESH die verrijst. Een profetenschool kan niet onderwijzen wat slechts de RUACH ha KODESH kan onderwijzen.
-Omdat wij ons niet onderscheiden van het overige gedeelte der mensen door klinkende titels of ongewone religieuze kleding te dragen of een gemakkelijk leven te leiden als een geestelijke, bezien de autoriteiten dezer wereld ons misschien niet als gewijde priesters van God, maar bezien ons naar datgene wat wij in het vlees schijnen te zijn.
-De uitwendige toestand van de eens zo trotse luchtvaartmaatschappij was blijkbaar ook de dispenser - de Lufthansa - een doorn in het oog . Ten minste is het in de buurt van dat de luchtvaartmaatschappij Lufthansa branding verwijdering op 10. September 2006 geleid . Er waren belettering geschilderd over Lufthansa gewoon met witte kleur , zelfs deze maatregel is waar vandaag niet langer heel effectief...
-Maar het gaat dan ook over de persoon die niet meer zo van de compensatie is, de persoon die van God is of een god zelf is en die het ideaal vormt, de heiland is, de grote leider is, de redder, de geestelijk leraar, de held en het grote voorbeeld, de bron van wijsheid en de beheersing van het universum in eigen persoon.
-3 Want wat de wet niet vermocht, omdat zij zwak was door het vlees - God heeft, door zijn eigen Zoon te zenden in een vlees, aan dat der zonde gelijk, en wel om de zonde, de zonde veroordeeld in het vlees, 4 opdat de eis der wet vervuld zou worden in ons, die niet naar het vlees wandelen, doch naar de Geest.
-Bij zijn terugkomst in Nederland liet hij weten dat hij wat ruimer over de apartheid was gaan denken: "Ik meen te kunnen zeggen dat men met de leuze wij-zijn-tegen-apartheid nog geen oplossing brengt."In deze tijd, tegen het einde van de jaren vijftig, nam echter bij de Nederlandse koninkrijksdelen Suriname en de Nederlandse Antillen de ergernis over de Haagse sympathie voor Zuid-Afrika toe.
-Dat God Zijn oog zou stellen ons zo goed en dat Hij Christus voor ons. zoals Efeziërs 2 zegt, "Daarom herinneren dat op een bepaald moment u, heidenen in het vlees… vergeet niet dat je op dat moment gescheiden van Christus, vervreemd van het burgerschap van Israël en vreemdelingen van de verbonden der belofte, zonder hoop en zonder God in de wereld.
-Hij zei: „Daar Christus dan in het vlees heeft geleden, zo wapent ook gij u met dezelfde gezindheid, want de persoon die in het vlees heeft geleden, heeft opgehouden te zondigen, om de rest van zijn tijd in het vlees niet meer voor de begeerten van mensen te leven, maar voor Gods wil. ” — 1 Petrus 4: 1, 2.
-Dit is belangrijk! 1 JOHANNES 4:3 (Statenvertaling): "En alle geest, die niet belijdt dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld." 1 JOHANNES 4:3 (NBG): "en iedere geest, die Jezus niet belijdt is niet uit God.
-Hieraan kent gij den Geest van God: alle geest, die belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God; en alle geest, die niet belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld. ”
-Kolossenzen 1 zegt hetzelfde: "Jezus, God in het vlees, schiep alles." [meer voorbeelden van veranderingen in text m.b.t. to de schepping (engelstalig), van seminarie dia's] De nieuwe Bijbelvertalingen zijn vanuit de Alexandrijnse Bijbel.Zij geloofden niet dat Jezus God in het vlees was.Boekwinkels willen veel Bijbels verkopen en ze willen niemand aanstoot geven, dus verkopen ze een vertaling die geen aanstoot geeft.
-(1953.5) 181:1.3 ‘Indien jullie mij wilt navolgen wanneer ik van jullie heenga, span je dan ernstig in om te leven in overeenstemming met de geest van mijn onderricht en met het ideaal van mijn leven – het doen van de wil van mijn Vader. Doe dat, inplaats van te trachten mijn natuurlijke leven in het vlees, zoals ik dit noodzakelijkerwijs op deze wereld heb moeten leiden, te imiteren.
-Ten eerste, bij alle aanvallen die op mijn persoon gedaan zouden worden, zou ik willen vaststellen of de aanvaller al of niet een zoon van God was – mijn broeder in het vlees – en indien ik tot de conclusie zou komen dat zulk een schepsel geen moreel oordeel en geestelijke rede bezat, zou ik mijzelf zonder aarzelen verdedigen met alle kracht waarover ik beschik, zonder rekening te houden met de gevolgen voor de aanvaller.
-Wij moeten doen wat Petrus in het vierde hoofdstuk van zijn eerste brief zegt: „Bewapent... u... met dezelfde geestesgesteldheid [als Christus], want de persoon die in het vlees heeft geleden, heeft opgehouden te zondigen, opdat hij het overige gedeelte van de tijd die hij in het vlees leeft, niet meer voor de verlangens van mensen, maar voor Gods wil moge leven. ” — 1 Petr.
-De latere misvorming van het onderricht van Jezus, zoals dit in het Nieuwe Testament is vastgelegd, is te wijten aan het feit dat de opvatting van de schrijvers van het evangelie gekleurd werd door hun overtuiging dat Jezus toen voor slechts korte tijd afwezig was van de wereld: dat hij spoedig zou terugkomen om het koninkrijk te vestigen in macht en heerlijkheid – eenzelfde idee als onder hen leefde toen hij nog bij hen was in het vlees.
-In het Oude Testament liet Hij onze zonden verdwijnen met de blauwe, paarse en dieprode wol terwijl Jezus in het Nieuwe Testament onze Verlosser werd door naar deze aarde te komen in de gedaante van een mens, met Zijn doopsel dat Hij van Johannes ontving al onze zonden op Zich nam en door Zijn bloed aan het Kruis te vergieten voor al onze zonden en het oordeel voor deze zonden te zorgen.
-Jezus werd niet als iemand die „een weinig lager dan de engelen ” is, opgewekt, maar als een geestelijke Zoon die machtiger is dan Satan, de Grote Slang, want deze zelfde Simon Petrus zegt ons:„ Christus is eenmaal om de zonden gestorven als rechtvaardige voor onrechtvaardigen, opdat Hij u tot God zou brengen: Hij, die gedood is naar het vlees, maar levend gemaakt naar den geest ”.
-In plaats dat Jezus Christus beweerde God in het vlees te zijn, wees hij op zijn afhankelijkheid van de Vader en zijn ondergeschiktheid aan hem met de woorden: „Ik kan van Mijzelf niets doen; gelijk Ik hoor, oordeel Ik, en mijn oordeel is rechtvaardig, want Ik zoek niet mijn wil, doch den wil van Hem, die Mij gezonden heeft. ” — Joh. 5: 30.
-(Matteüs 26:39, 42, 44) PAULUS: Om te verhinderen dat ik mezelf zou verheffen, werd mij een doorn in het vlees gestoken: ik word gekweld door een engel van Satan.8 Ik heb de Heer driemaal gesmeekt mij van hem te bevrijden, 9 maar hij zei: 'Je hebt niet meer dan mijn genade nodig, want kracht wordt zichtbaar in zwakheid.' (2 Korintiërs 12:7-9) 93.
-1 Johannes 4:3 En alle geest, die niet belijdt, dat YAHUSHUA ha MASHIACH in het vlees gekomen is, die is uit YAHUVEH niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld. 2 Johannes 1:7 Want er zijn vele verleiders in de wereld gekomen, die niet belijden, dat YAHUSHUA ha MASHIACH in het vlees gekomen is.
-De verworven geest-identiteit van de man van Nazaret die gedurende zijn levens- loop in het vlees was opgebouwd, in het begin door de rechtstreekse inspanningen van zijn Gedachtenrichter, en later door zijn eigen volmaakte harmonisering van de fysieke behoeften en de geestelijke vereisten van het ideale sterfelijke bestaan, een harmonisering die tot stand werd gebracht door zijn onophoudelijk kiezen voor de wil van de Vader, moet toevertrouwd zijn geweest aan de hoede van de Paradijs-Vader.
-Onthoud dat dit een wapen tegen satan is, als jullie hem er constant aan laten herinneren, dat satan geen claim heeft op jullie gedachte, lichaam, geest of ziel, tenzij jullie, door zonde, hem het legale recht geven. Ben Heilig zoals IK Heilig BEN, streef ernaar om Heilig te leven, in jullie gedachte, en lichaam en wandel meer in de HEILIGE GEEST dan dat jullie wandelen in het vlees, en weet dat legioenen van Hemelse Heilige Engelen vechten aan jullie zijde!
+Hier hebben wij nog een bewijs, nog een verzekering dat een overblijfsel van Christus ’ geestelijke broeders Armageddon in het vlees zal overleven en na de strijd nog enige tijd in het vlees op aarde in de nieuwe ordening zal zijn.
+(1200.4) 109:6.4 De activiteiten van Richters in uw plaatselijk universum worden bestuurd door de Gepersonaliseerde Richter van Michael van Nebadon, dezelfde Mentor die Michael stap voor stap begeleidde toen hij zijn leven als mens leefde in het vlees van Joshua ben Joseph.
+== Tournee ==De op het album volgende tournee "In the Flesh" was van een andere orde dan de voorgaande.
+God woont daar louter door middel van zijn geest, omdat de leden van die tempel in het vlees op aarde zijn.
+Als dusdanig beweren degenen die niet wedergeboren zijn over het algemeen dat de betekenis van de blauwe wol "Jezus Christus is God Zelf, en "Hij kwam naar deze aarde in de gedaante van een mens" is.
+Dit verwijst naar een geestelijk koninkrijk waarin de christenen te Kolosse waren overgezet terwijl zij zich hier op aarde nog in het vlees bevonden, in een stad van Klein - Azië die in religieus opzicht in duisternis was gehuld.
+Jezus was God in een menselijke gedaante (Johannes 1:1,14), dus toen mensen Hem zagen, zagen zij God.
+Toen Jezus zeide dat hij zou wederkomen, bedoelde hij niet dat hij in het vlees en zichtbaar voor de mensen op aarde, zou terugkeren.
+Weliswaar houdt Christus niet op Zijns zelfs, of een vrij God te zijn, wanneer Hij de onze wordt, maar Hij gedraagt zich zo alsof Hij niet van Zichzelf was, door met ons in nauwe betrekking te komen en ambten op Zich te nemen, die Hem verbinden.
+Zijn diensttijd in het vlees onder de schapen des Heren was ten einde.
+Met het oog hierop was in de eeuwen voordat Jezus in het vlees werd ter dood gebracht en door de opstanding uit de doden in de geest werd levend gemaakt, nog niet de tijd aangebroken waarop Jehovah door zijn engel - Zoon, Satan zou ’ berispen. ’
+Jezus, die God Zelf is, voltooide Zijn werk om zondaars rechtvaardig te maken door naar deze aarde te komen in het vlees van een mens en Zijn volk te redden van al hun zonden door Zijn doopsel en Zijn dood aan het Kruis.
+Hoewel ’ verdrukking in het vlees ’ in ieder huwelijk spanningen teweegbrengt, maken de onervarenheid van de meeste tieners en hun vaak irreële verwachtingen hun huwelijk wel bijzonder kwetsbaar.
+14 En de onbesnedene, de man namelijk, die het vlees van zijn voorhuid niet laat besnijden, die mens zal uitgeroeid worden uit zijn volksgenoten: hij heeft mijn verbond verbroken.15 Verder zeide God tot Abraham: Wat uw vrouw Sarai betreft, gij zult haar niet Sarai noemen, maar Sara zal haar naam zijn.
+4:3 En alle geest, die niet belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, datkomen zal, en is nu alrede in de wereld.
+Zo zijn fysieke beperkingen ook voor veel jongeren tegenwoordig „een doorn in het vlees ”.
 Iemand die in het vlees schudt, kan dit makkelijk weer onder controle krijgen. Als je aan iemand vraagt of God op hen is of dat Hij er is omdat ze een demon hebben, dan zul je het aan hun reactie kunnen weten - een demon zal spreken met een haatvolle reactie, en als het hun vlees is, zal die persoon je raar aankijken, want hoe zou je kunnen denken dat het een demon is!.
-En gedurende deze veertig jaren zal het koninkrijk van God worden opgericht (maar niet in het vlees, ’ het natuurlijke eerst en naderhand het geestelijke ’), de joden zullen worden hersteld, de heidense koninkrijken in stukken worden gebroken ’ gelijk een pottenbakkersvat ’ en de koninkrijken van deze wereld zullen de koninkrijken van onze Heer en zijn Christus worden, en het oordeelstijdperk zal zijn ingeleid. ” — Three Worlds or Plan of Redemption, blz.
-Doch dezulken zullen verdrukking hebben in het vlees; en ik spare ulieden.29Maar dit zeg ik, broeders, dat de tijd voorts kort is; opdat ook die vrouwen hebben, zouden zijn als niet hebbende;30En die wenen, als niet wenende; en die blijde zijn, als niet blijde zijnde; en die kopen, als niet bezittende;31En die deze wereld gebruiken, als niet misbruikende; want de gedaante dezer wereld gaat voorbij.32En ik wil, dat gij zonder bekommernis zijt.
-En we moeten ons herinneren dat de Messias naar deze aarde kwam in de gedaante van een mens en dat Hij al onze zonden op Zijn eigen lichaam accepteerde door het doopsel dat Hij van Johannes ontving, d.w.z. als we actuele zonden in deze wereld begaan, vervallen we in zwakheid of onze zwakheid wordt onthuld, we moeten ons zelfs nog meer herinneren dat de Messias in het vlees kwam, gedoopt en gekruisigd werd, en daarmee al onze zonden uitgewist heeft.
-En dit is het eeuwige leven, dat mijn schepselen u kennen als de enige ware God en Vader van allen, en dat zij geloven in hem die gij in de wereld hebt gezonden. Vader, ik heb u op aarde verheven en heb het werk dat gij me had opgedragen volvoerd. Ik heb mijn zelfschenking aan de kinderen die wij zelf hebben geschapen, bijna beëindigd; er rest mij slechts mijn leven in het vlees neer te leggen.
-Want ik wil, dat gij weet, hoe groten strijd ik voor u heb, en voor degenen, die te Laodicea zijn, en zo velen als er mijn aangezicht in het vlees niet hebben gezien; Opdat hun harten vertroost mogen worden, en zij samengevoegd zijn in de liefde, en dat tot allen rijkdom der volle verzekerdheid des verstands, tot kennis der verborgenheid van God en den Vader, en van Christus; In Denwelken al de schatten der wijsheid en der kennis verborgen zijn.
-Bepaalde fasen van het bewustzijn vinden voortzetting in de overlevende ziel; bepaalde experiëntiële waarden van het vroegere menselijke bewustzijn worden door de Richter bewaard, en in het plaatselijk universum blijven de verslagen bestaan van het leven van de mens zoals zich dit in het vlees heeft afgespeeld, alsmede met bepaalde levende registraties in de talrijke wezens die zijn betrokken bij de finale evaluatie van de sterveling in opklimming, wezens die variëren van serafijnen tot Universele Censors, en waarschijnlijk nog verder, tot de Allerhoogste toe.
-(1200.4) 109:6.4 De activiteiten van Richters in uw plaatselijk universum worden bestuurd door de Gepersonaliseerde Richter van Michael van Nebadon, dezelfde Mentor die Michael stap voor stap begeleidde toen hij zijn leven als mens leefde in het vlees van Joshua ben Joseph. Deze buitengewone Richter was waarlijk getrouw aan zijn opdracht, deze heldhaftige Mentor gaf wijze leiding aan de menselijke natuur, door het sterfelijk bewustzijn van de Paradijs-Zoon steeds de weg te wijzen bij het kiezen van het pad van de volmaakte wil van de Vader.
+Ze komt eraan.
+De roos goud, trouwens, ziet er beter uit in het vlees dan in foto's, dankzij een kleur die is ingetogen en warm in plaats van out-and-out roze. iPhone 6S beoordeling – tech Radar Gareth Beavis ziet de upgrade als een no-brainer als geld geen rol speelt, maar het is een veel moeilijker oproep voor de meeste mensen.
+24 En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuid besneden werd.
+De verwondingen in z'n vlees zijn veroorzaakt door een haak of haken.
+De zelf afgekondigde rechters die MIJN ware apostelen en profeten beoordelen raden hen af en moedigen degenen aan die zich in het vlees en niet in MIJN RUACH ha KODESH bewegen.
+Wat voor nut heeft uw leer als ze niet in praktijk kan worden gebracht?’ Jezus beantwoordde deze vraag met de woorden: ‘Ik heb u niet onderricht dat mijn vlees het brood des levens is, noch dat mijn bloed het water des levens is. Maar wel heb ik gezegd dat mijn leven in het vlees een schenking is van het brood des hemels.
+Allen die door deze dienstknechten van God tot leven werden opgewekt, moesten weer in het vlees sterven en in Hades of Sjeool afdalen.
+Maar Paulus zei nog steeds, "Doch gijlieden zijt niet in het vlees, maar in den Geest, zo anders de Geest Gods in u woont.
+Het Boek van Mormon laat Jezus Christus, na zijn opstanding en hemelvaart, in het vlees aan de bevolking van Noord - Amerika verschijnen.
+(1752.4) 158:1.2 Jezus was opgeroepen om zich op de berg terug te trekken voor de afwikkeling van belangrijke zaken die te maken hadden met de voortgang van zijn zelfschenking in het vlees, voorzover deze ervaring verband hield met het universum dat hij zelf had geschapen.
+Sommigen hebben „een doorn in het vlees ” te verduren in de vorm van een ernstige handicap of kwaal.
+Paulus noemt de „doorn in het vlees ” een„ engel van Satan, ten einde mij te blijven slaan, opdat ik niet te veel verhoogd zou zijn ”, en dit zouden deze valse apostelen, onruststokers en aanvallers van Paulus ’ apostelschap en werk zijn, ten einde hem er van te weerhouden te trots op zijn bediening te worden.
+Het doopsel van Jezus was het middel waarmee Christus al onze zonden droeg om ons van onze zonden te redden. Jezus werd gedoopt door Johannes de Doper om al onze zonden op Zich te nemen. Jezus is God Zelf, en toch om ons te redden, kwam Hij naar deze aarde in de gedaante van een mens, nam alle ongerechtigheden van de zondaars op Zich door gedoopt te worden van Johannes de Doper, de vertegenwoordiger van de mensheid, en werd indirect veroordeeld voor de zondaars door Zijn eigen lichaam aan het Kruis op te geven en door water en bloed te vergieten.
+De Almachtige God wekte zijn getrouwe Zoon echter onmiddellijk tot volmaakt hemels leven op, niet als een mens, maar als een geest, want Jezus ’ werd ter dood gebracht in het vlees, maar levend gemaakt in de geest ’.
+‘Daar Christus dan naar het vlees geleden heeft, moet ook gij u wapenen met dezelfde gedachte, dat wie naar het vlees geleden heeft, onttrokken is aan de zonde, om niet meer naar de begeerten van mensen, maar naar de wil van God de tijd, die nog rest in het vlees, te leven.’ 1 Petrus 4:1-2
+1 Johannes 4:3 En alle geest, die niet belijdt, dat YAHUSHUA ha MASHIACH in het vlees gekomen is, die is uit YAHUVEH niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld.
+Als hij niet besneden is in het vlees van zijn voorhuid, dan is hij geen kind van God."
+Wat zou zijn opstanding in het vlees betekenen?
+Terwijl Hij als een mens naar deze aarde kwam, werd onze Heer toen Hij 30 jaar werd, eerst gedoopt om al onze zonden op Zich te nemen.
+God gaf de volgende reden voor het gebod: „Gij moet besneden worden in het vlees van uw voorhuid, en het moet dienen tot een teken van het verbond tussen mij en u ”.
+“Daar Christus dan naar het vlees geleden heeft, moet ook gij u wapenen met dezelfde gedachte, dat, wie naar het vlees geleden heeft, onttrokken is aan de zonde, om niet meer naar de begeerten van mensen, maar naar de wil van God de tijd, die nog rest in het vlees, te leven” (1 Petrus 4:1, 2).
+Hieraan kent gij den Geest van God: alle geest, die belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God; En alle geest, die niet belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld.
+Dat Jezus niet in het vlees werd opgewekt, verklaart waarom twee van zijn discipelen en Maria Magdalena hem niet herkenden toen hij na zijn opstanding lichamelijk verscheen.
+Het is interessant op te merken dat zijn leugen betrekking had op leven, want hij beweerde dat Eva niet zou sterven maar in het vlees op aarde zou voortleven als zij deed wat hij aanraadde.
+"Hieraan onderkent gij de Geest Gods: iedere geest, die belijdt, dat Jezus Christus in het vlees gekomen is, is uit God; en iedere geest, die Jezus niet belijdt, is niet uit God.
+Uit deze analyses, die duiden op de aanwezigheid van olie in de weefsels, kan gezien de tijd die sinds de ramp is verstreken geenszins worden opgemaakt dat dit door de Erika veroorzaakt is.
+Hij zei: „Daar Christus dan in het vlees heeft geleden, zo wapent ook gij u met dezelfde gezindheid, want de persoon die in het vlees heeft geleden, heeft opgehouden te zondigen, om de rest van zijn tijd in het vlees niet meer voor de begeerten van mensen te leven, maar voor Gods wil. ” — 1 Petrus 4: 1, 2.
+Zij die niet goed geweest zijn voor de minsten van zijn broeders ( > broeders naar het vlees = Israëlieten) worden verwezen naar het vuur dat bestemd is voor de duivel en zijn boodschappers (Matteüs 25:41).
+Omdat Christus voor ons geleden heeft en gestorven is, moeten wij ons wapenen met dezelfde innerlijke overtuiging als Hij. Omdat Hij heeft geleden, heeft de zonde zijn macht over ons verloren.
+In het vlees heeft hij de spot en schande bereidwillig aanvaard, maar nu worden de rollen omgekeerd en al Gods vijanden zullen een smadelijke en algehele nederlaag lijden.
+Dit alles nu heb ik gedaan opdat mijn broeders in het vlees mogen weten dat de Vader hen liefheeft, zoals ook de Zoon hen liefheeft, en dat gij hen liefhebt zoals gij ook mij liefhebt.
+Vervolgens zullen de met schapen te vergelijken erfgenamen van de paradijsaarde, die het fundament van de „nieuwe aarde ” vormen, allen in hun midden verwelkomen die uit de doden tot leven in het vlees op aarde worden opgewekt.
+1 JOHANNES 4:3 (Statenvertaling): “En alle geest, die niet belijdt dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld.”
+1 Dewijl dan Christus voor ons in het vlees geleden heeft, zo wapent gij u ook met dezelfde gedachte, namelijk dat wie in het vlees geleden heeft, die heeft opgehouden van de zonde;
+20 Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar Christus leeft in mij; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons van God, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft. 21
+(1450.3) 131:5.4 'Heer, leer ons hoe wij dit leven in het vlees moeten leven, terwijl wij ons voorbereiden op het volgende leven van de geest.
+Wij hebben deze maatregel genomen omdat wij hebben vastgesteld dat het niet ging om 25 000 criminelen, maar om mensen die Tunesië waren ontvlucht.
+Dit is belangrijk! 1 JOHANNES 4:3 (Statenvertaling): "En alle geest, die niet belijdt dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld." 1 JOHANNES 4:3 (NBG): "en iedere geest, die Jezus niet belijdt is niet uit God.
+Wat zijn enkele dingen die voor ‘ verdrukking in het vlees ’ kunnen zorgen?
+Degenen die deel uitmaken van het zich nog in het vlees bevindende overblijfsel van de 144.000 zijn echter niet de enigen die gerechtigd zijn uit de eed die Gods belofte bindend maakt, een krachtige aanmoediging te putten.
+De bijbel vermeldt niet wat Paulus ’ „doorn in het vlees ” precies was.
+Zonde in het vlees
+Zo ja, dan hoorde zij in de anglicaanse kerkdienst, ook al was de de tekst inhoudelijk vele anglicanen een doorn in het oog.
+DE TENHEMELOPNEMING — de leerstelling dat Maria, de moeder van Jezus, lichamelijk naar de hemel is opgestegen — ligt miljoenen rooms - katholieken na aan het hart.
+En hun toestand als door de geest verwekte personen zolang zij nog in het vlees zijn, werd afgebeeld door de Heilige afdeling in de typologische tempel waarin de onderpriesters kwamen.
+Jezus is God Zelf, en toch om ons te redden, kwam Hij naar deze aarde in de gedaante van een mens, nam alle ongerechtigheden van de zondaars op Zich door gedoopt te worden van Johannes de Doper, de vertegenwoordiger van de mensheid, en werd indirect veroordeeld voor de zondaars door Zijn eigen lichaam aan het Kruis op te geven en door water en bloed te vergieten.
+Technisch is uw arbeid op Urantia en in het vlees van het sterfelijk schepsel ten einde.
+Maar in het vlees te blijven, is nodiger om uwentwil.
+Ik kan het er niet mee eens zijn dat die boodschap een "doorn in het vlees van de Nieuw-Apostolische Kerk" zou zijn.
+( b) In hoeverre heeft Jezus in het vlees die goddelijke „wil ” ten uitvoer gebracht?
+Hier volgen de woorden die Petrus zelf heeft geschreven: „Daarom, daar Christus in het vlees heeft geleden, bewapent ook gij u met dezelfde geestesgesteldheid, want de persoon die in het vlees heeft geleden, heeft opgehouden te zondigen, opdat hij het overige gedeelte van de tijd die hij in het vlees leeft, niet meer voor de begeerten van mensen, maar voor Gods wil moge leven.
+Het is een genoegen je na al die tijd persoonlijk te ontmoeten.
+Nu hebben wij de zaak in anderen vorm geheel zuiver vóór ons, namelijk: Indien Jezus in het vleesch een volkomene man was, zooals de Schriften ons dit leeren, bewijst dit dan niet, dat een volmaakt mensch, een menschelijk, vleeschelijk wezen is, – niet een engel, maar een weinig minder dan de engelen?
+Hieraan kent gij den Geest van God: alle geest, die belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God; en alle geest, die niet belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld. ”
+Moge de Heer, Wiens Geboorte in het vlees wij heden vieren, ons aller vreugde zijn en moge de genade van Zijn heil over ons neerdalen.
+15 Heeft Hij de vijandschap in Zijn vlees te niet gemaakt, namelijk de wet der geboden in inzettingen bestaande; opdat Hij die twee in Zichzelven tot een nieuwen mens zou scheppen, vrede makende;
+Dit komt omdat het vlees van een mens niet kan veranderen, en omdat men, als men een beetje vriendelijk, weldadig en genadig in het vlees is, men nog geen wedergeboren rechtvaardige is.
+1 Dewijl dan Christus voor ons in het vlees geleden heeft, zo wapent gij u ook met dezelfde gedachte, namelijk dat wie in het vlees geleden heeft, die heeft opgehouden van de zonde;
+Ik heb mijn leven in het vlees geleid om te laten zien hoe gij, door liefdevol dienstbetoon, God-openbarend kunt worden voor uw medemens, zoals ik ook, door u lief te hebben en u te dienen, God-openbarend ben geworden voor u.
+Waarom verwijderde Jehovah Paulus ’ „doorn in het vlees ” niet?
+Satan deed Eva geloven dat zij als mens geenszins zou sterven.
+De uitwendige toestand van de eens zo trotse luchtvaartmaatschappij was blijkbaar ook de dispenser - de Lufthansa - een doorn in het oog . Ten minste is het in de buurt van dat de luchtvaartmaatschappij Lufthansa branding verwijdering op 10. September 2006 geleid . Er waren belettering geschilderd over Lufthansa gewoon met witte kleur , zelfs deze maatregel is waar vandaag niet langer heel effectief...
+Dit is op iedereen van toepassing die YAHUSHUA ha MASHIACH als GOD, HEER, REDDER, de enige Geboren Zoon van YAHUVEH hebben aanvaard, geboren in het vlees van een maagdelijke vrouw, en gaf zichzelf op voor een Heilig zondeoffer, die stierf en herrees op de 3de dag, en nu zit aan de rechterkant van IK, YAHUVEH.
+Jezus is in het vlees naar de aarde gekomen om de erfenis die Adam had verloren, voor de mensheid terug te winnen.
+(2002.4) 186:5.3 Ten tijde van zijn doop had de Meester zich reeds de methode eigen gemaakt van de vereiste ervaring op aarde en in het vlees, die noodzakelijk was om zijn zevende en laatste zelfschenking aan zijn universum te voltooien.
+Eén stekel drong zijn arm binnen en kwam er pas twee dagen later en 25 centimeter verder weer uit.
+Jezus voorzei hoe Jehovah de verdrukking ten aanzien van Satans organisatie zou onderbreken opdat Jehovah’s uitverkorenen in het vlees de gelegenheid zouden hebben dit levenreddende werk met betrekking tot de „andere schapen ” te verrichten.
+Hoe God „de zonde in het vlees veroordeeld ” heeft
+Jezus, die vlees werd oftewel de Christus van zijn Wezen volledig manifesteerde, werd het volmaakte gevolg van de volmaakte oorzaak. Daarom kunnen we de Christus en Jezus niet langer scheiden. Hij die Jezus van Nazareth was, historisch gezien, werd de volledige belichaming van het Christus idee.
+Hij daalde naar ons af in levende lijve om de mensen van hun zonden te redden.
+Wij zijn daarom niet in het vlees maar in de Geest.
+Jezus werd naar de aarde gestuurd in het vlees van een mens.
+In een herderlijk schrijven geeft de bisschop uitbundig uiting aan zijn vreugde: «En nu is dit nederig kind van onze bodem tot priester van God gewijd, officieel gezagsdrager van de verlossing van zijn Zoon en intieme vriend van onze goddelijke Meester en Heer Jezus Christus... Wanneer ze een van de hunnen aan het altaar, op de preekstoel en in de biechtstoel zien zullen ze aan den lijve de harmonieuze vermenging ervaren van kleuren en rassen in de eenheid van de Kerk die niets op heeft met kaste en overal thuis is...»
+Dit is geen onredelijke eis.
+Jezus kwam naar deze aarde in het vlees van een mens en door Zijn doopsel (blauwe wol) te ontvangen en Zijn bloed (dieprode wol) te vergieten, heeft Hij zondaars gered.
+Volgens het bovenstaande zou, als de Vader degene was die in het vlees kwam, hij niet een 'grotere Jezus' zijn.
+Hij, die gedood is naar het vlees, maar levend gemaakt naar den geest ”. — Joh. 1: 14; Gal.
+Als u het Woord hoort is het slechts gepast dat u moet geloven en in uw hart enorm geïnspireerd moet zijn dat Jezus Christus inderdaad naar deze aarde kwam in de gedaante van een mens en dat Hij gedoopt werd, gekruisigd en herrees om Zijn volk van hun zonden te redden.
+VINDT u het geen opwindend idee wilde dieren in levenden lijve te zien en te horen — een tijger, een orka of een gorilla?
+Hierdoor werd zij getroffen door het zwaard van de Heilige Geest en werd verdoemd in zowel het vlees als ook in de geest.
+24 Maar in het vlees te blijven, is nodiger om uwentwil. 25
+Het doet er niet toe hoe Jezus Christus op deze aarde geboren is als de Verlosser van de mensheid in de gedaante van een mens en door het lichaam van de maagd Maria, als Hij niet gedoopt was om onze zonden op Zichzelf te nemen in de eerste plaats, had Hij niet onze ware Verlosser kunnen worden.
+Je hebt de stem gehoord, nu zul je hem ontmoeten. De enige echte Lovelace... In eigen persoon...
+20 Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar Christus leeft in mij; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons van God, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft. 21
+Mijn vraag die verder gaat dan dat is erop gericht of de Commissie nu geen reden ziet om zelf ook voorbereidingen te treffen voor de verdere toekomst, voor de periode na 1992 dus, om in het kader van het communautair beheer van de douane-unie meer dan alleen de coördinatie op dit vlak na te streven, om dus uiteindelijk de douane-unie in eigen bevoegdheid te beheren.
+In overeenstemming met Petrus ’ uitlating dat Jezus ter dood werd gebracht in het vlees en tot leven werd opgewekt in de geest, zegt Paulus hier dat Jezus, die de „laatste Adam ” is, in de opstanding tot„ een levendmakende geest ” werd opgewekt. — 1 Kor.
+7.Belijden dat Jezus Christus in het vlees gekomen is (4:2).
+En voor zover ik nu (nog) in het vlees leef, leef ik door het geloof in de Zoon van God, die mij heeft liefgehad en Zich voor mij heeft overgegeven.
+Hij is een grote speler in de mensenhandel.
+De Messias, die de Schepper is, kwam eigenlijk naar deze aarde in de gedaante van een mens om al onze zonden te laten verdwijnen, en Hij nam al onze zonden op Zich door het doopsel van Johannes in de Jordaan te ontvangen.
+Waar het dan op aan komt, is: Zullen zij bewijzen dat zij een eeuwig leven waard zijn, niet in het geestenrijk in de hemel, maar als volmaakte menselijke zielen in het vlees op de paradijsachtige aarde?
+God Zelf maakte u.Om u van uw zonden te redden, kwam deze God naar deze aarde in de gedaante van een mens, werd gedoopt om uw zonden op Zich te nemen, werd gekruisigd en vergoot Zijn bloed om de veroordeling van uw zonden te dragen, is uw ware Verlosser geworden, herrees van de dood, leeft zelfs nu en heeft u Zijn zaligheid en liefde als gave gegeven.
+De zonden waren niet aan Zijn Geest doorgegeven, maar slechts aan Zijn vlees. Jezus werd naar de aarde gestuurd in het vlees van een mens.
+Alhoewel Jezus in Zijn wezen God Zelf was, was Hij desalniettemin ook in het vlees van een mens, vol zwakheden.
+8:9 En u bent niet in het vlees, maar in de geest, als het waar is dat de Geest van God woont in u. Maar als iemand niet de Geest van Christus hebben, Hij behoort niet tot hem.
+24 Maar in het vlees te blijven, is nodiger om uwentwil.
+17:25 En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuidbesneden werd.
+108.11 En de Heer zei: "Nu zal ik de geesten roepen van de goeden, die zijn van de generatie van het licht, en ik zal degenen die zijn geboren in de duisternis transformeren, die toen ze in het vlees waren niet werden gecompenseerd met de eer die passend is bij hun geloof.
+Hij leefde dit leven in het vlees door hetzelfde barmhartigheidsbetoon waardoor gij allen uw leven op aarde kunt leiden; en zoals hij zijn sterfelijk leven leidde in zijn tijd en zoals hij was, gaf hij ons allen het voorbeeld om ons leven te leiden in onze tijd en zoals wij zijn.
+Om ons van onze zonden te redden, kwam de eniggeboren Zoon van God naar deze aarde in de gedaante van een mens en werd het zondeoffer door Zijn doopsel, in gehoorzaamheid van de wil van de Vader. Door met Zijn doopsel dat Hij van Johannes ontving de zonden van de mensheid op Zich te nemen, deze zonden van de wereld naar het Kruis te dragen, door gekruisigd te worden, Zijn bloed te vergieten, en Zichzelf daarbij op te offeren, en door te sterven en van de dood te herrijzen, heeft Jezus ons volledig gered.
+Deze passage betekent volgens Paulus dat als we in het evangelie van het water en de Geest geloven – met andere woorden, als we in God's gerechtigheid geloven – en verlost zijn van onze zonden, we niet langer in het vlees zijn maar in de Geest.
+God heeft de bijbel niet aan een afzonderlijke persoon gegeven, maar aan een natie; eerst aan de Hebreeuwse natie en vervolgens aan wat Petrus Gods „heilige natie ” noemt, hetgeen het„ Israël Gods ” is, waarvan de leden niet in het vlees, maar in het hart zijn besneden.
+Jezus ontdekte in zijn menselijke ervaring de Finale Vader, en zijn broeders naar het vlees in het sterfelijke leven kunnen hem navolgen in deze ervaring van het ontdekken van de Vader.
+1:16 Nu voortaan niet als een dienstknecht, maar meer dan een dienstknecht, namelijk een geliefden broeder, inzonderheid mij, hoeveel te meer dan u, beide in het vleesen in den Heere.
+Dienen wij het echter dan zo te zien dat Jezus ’ God in het vlees ’ was?
+HEILIGE: De geestverwekte toestand van Jezus Christus en de 144.000 gezalfde christenen terwijl zij nog in het vlees zijn
+Vooral deze illegalen werden beschouwd als ongewenst door de Nederlandse overheid.Er was veel werkeloosheid in Nederland en illegalen werden beschouwd als parasieten.
+En nu is hij hier in levende lijve... maar ik mag hem van niemand onderzoeken of zien.
+Dat hij in het vlees heeft overwonnen, is voor zijn volgelingen op zichzelf een aanmoedigend voorbeeld waardoor zij worden geholpen de beproeving het hoofd te bieden.
+Deze passage verklaart nadrukkelijk dat onze Heer naar deze wereld kwam in de gedaante van een mens, onze zonden met Zijn doopsel op Zich nam en ons redde door Zijn bloed te vergieten.
+Maar iets meer dan 2000 jaar geleden was de wereld getuige van de wonderbaarlijkste geboorte van allemaal: God stuurde Zijn Zoon om als mensenkind geboren te worden in het gezin van het verloofde stel in Nazaret.
+Als een boksfan een gevecht in het echt wil zien of op... jouw kanaal moet je begrijpen... dat alle wegen via New York gaan.
+Veel kerken leren dat Christus in het vlees zal wederkomen, net zoals zich in de tweede eeuw het denkbeeld ontwikkelde dat Jezus en zijn medekoningen en - priesters gedurende het millennium in het vlees op aarde zouden regeren.
+Alhoewel christenen ’ geen oorlog voeren overeenkomstig datgene wat zij in het vlees zijn ’ en ’ de wapenen van hun oorlogvoering niet vleselijk zijn ’, betekent dit niet dat het de natiën vrij staat het leven van Gods volk af te snijden en een einde te maken aan de juiste aanbidding.
+Toen Jezus in het vleesch was, was Hij een volmaakt menschelijk wezen ; vóór dien tijd was Hij een volmaakt geestelijk wezen; en sedert Zijne opstanding is Hij een volmaakt geestelijk wezen van den hoogsten, goddelijken rang.
+Kwam het niet door deze zelfde kwestie, welke te berde was gebracht door enkelen die nog steeds vasthielden aan het samenstel van het Judaïsme, terwijl zij beweerden dat door „werken der wet ” rechtvaardigheid naar het vlees verworven kon worden, en dat„ overeenkomstig het Joodse gebruik ”?
+Petrus verklaart dat „wie naar het vlees geleden heeft, onttrokken is aan de zonde, om niet meer naar de begeerten van mensen, maar naar den wil van God den tijd, die nog rest in het vlees, te leven ”.
+„ Daar Christus dan in het vlees heeft geleden, ” zei Petrus, „zo wapent ook gij u met dezelfde gezindheid; want de persoon die in het vlees heeft geleden, heeft opgehouden te zondigen. ” — 1 Petrus 4: 1.
+-ln levenden lijve en pastel.
+5 Want hoewel ik met het vlees van u ben, nochtans ben ik met den geest bij u, mij verblijdende en ziende uw ordening, en de vastigheid van uw geloof in Christus.
+Deze engelen horen tot de zesde orde van serafijnse dienaren, en hun dienstbetoon bestaat uit het vergemakkelijken van de overgang van materiële, sterfelijke schepselen uit het tijdelijke leven in het vlees naar de eerste stadia van morontia-bestaan op de zeven woningwerelden.
+Al vier jaar is het optreden van deze moedige, onafhankelijke Egyptische auteur een doorn in het oog van zijn collega's.
+De Commissie zal haar bijdrage leveren aan de werk zaamheden van het Comité met inachtneming van haar bevoegdheid.
+17:24 En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuidbesneden werd.
+dit voelt als de hel waar de meesten eindigen vleesgeworden duivels jagen op mijn succes ik zie de hoorns op hun hoofden en hun staarten ik zie de rode verkoopborden van hun zielen ze verkopen integriteit en worden een beroemdheid goede engelen wijzen me de weg
+Hoewel God de apostelen de kracht gaf om zieken te genezen en zelfs doden op te wekken, wilde hij de „doorn in het vlees ” waardoor de apostel Paulus werd geplaagd — misschien een lichamelijke kwaal — niet verwijderen. — 2 Korinthiërs 12: 7 - 9; Handelingen 9: 32 - 41; 1 Korinthiërs 12: 28.
+In vlees en vacht. Wil je een handtekening?
+Ja, hoewel Anthony voor het eerst zebra’s, leeuwen, giraffen en andere dieren in het echt zag, had hij al met deze dieren kennisgemaakt.
+Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar Christus leeft in mij; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons van God, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft.
+Ten einde met hun vrouw samen te leven, zich dag en nacht, in hun gezelschap te verheugen en hun nakomelingen groot te brengen, moesten deze „zonen Gods ” of engelen gedurende de tijd dat zij zulk een gehuwd leven leidden, in het vlees gematerialiseerd blijven.
+Hoewel deze misleidende „bedriegers ” beleden zelf christenen te zijn, erkenden zij niet dat Jezus Christus als mens in het vlees was gekomen.
+Hoewel de Katharen Jezus als de Zoon van God erkenden, geloofden zij niet dat hij in het vlees was gekomen en verwierpen zij zijn loskoopoffer.
+Wanneer zullen zij hun toevluchtsstad dan ooit kunnen verlaten en vrij zijn van bloedschuld ten gevolge van een ongeluk, aangezien zij toch voor altijd in het vlees zullen blijven leven?
+2 Om nu niet meer naar de begeerlijkheden der mensen, maar naar den wil van God, den tijd, die overig is in het vlees, te leven.
+Voor iedere afzonderlijke bewoonde wereld in heel het universum Nebadon was er iets speciaals en inspirerends verbonden aan het leven dat hij leidde in het vlees van de sterfelijke natuur.
+De olie wordt van nature door de plant geproduceerd en geleidelijk opgeslagen in de vrucht van de olijf bij de rijping.
+Na de derde keer onthulde God aan Paulus dat de „doorn in het vlees ” niet door een wonder weggenomen zou worden.
+Er zijn haarschachten gebroken en het vlees vertoont scheurtjes, hier en hier.
+Deze kerf in zijn huid is vers.
+17:25 En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuid besneden werd.
+Hieraan kunnen wij weten of Gods Geest spreekt: Ieder die erkent dat Jezus Christus een mens van vlees en bloed geworden is, zegt dat door de Geest van God.
+De meerderheid der gevorderde evolutionaire wezens, burgers van werelden die existeren in de finale era van licht en leven, sterft niet; zij worden rechtstreeks van het leven in het vlees overgebracht naar het morontia-bestaan.
+De wereld heeft gedurende deze eeuw de Priester – Hoofd en Lichaam – zien lijden als een zoenoffer.Jezus werd de Joden in het vlees geopenbaard (als een zoenoffer), en zoals Paulus kon zeggen, zo kunnen allen, die in zijn voetstappen volgen, zeggen: het leven van Jezus is in ons sterfelijk lichaam openbaar geworden (verg.
+Omdat Jezus, God zelf, als onze Verlosser naar deze aarde kwam in de gedaante van een mens, alle zonden van de wereld op Zijn lichaam nam, aan het Kruis stierf, van de dood herrees en daarmee al onze zonden heeft weggewassen, zijn we van onze zonden verlost door in deze Jezus Christus te geloven en Hem te vertrouwen.
+De viervoudige waarheid die getoond wordt in de poort van de Tabernakel, vertelt ons dat de Messias naar deze aarde kwam in de gedaante van een mens, alle zonden van de wereld op Zich nam met Zijn doopsel dat Hij van Johannes ontving, en Zijn bloed aan het Kruis vergoot.
+8:8 En die in het vlees zijn, kunnen Gode niet behagen.
+Daarom moet u voor de rest van uw leven niet meer aan de slechte verlangens van de zonde toegeven, maar de wil van God doen.
+Dat niets goeds in het vlees aanwezig is, is de regel.
+Om ons van onze zonden te redden, kwam de eniggeboren Zoon van God naar deze aarde in de gedaante van een mens en werd het zondeoffer door Zijn doopsel, in gehoorzaamheid van de wil van de Vader.
+Dit vereist een overgang naar een ander terrein van werkzaamheden, van werken in het vlees op aarde naar werken in de geest in het hemelse rijk.
+Onthoud dat dit een wapen tegen satan is, als jullie hem er constant aan laten herinneren, dat satan geen claim heeft op jullie gedachte, lichaam, geest of ziel, tenzij jullie, door zonde, hem het legale recht geven. Ben Heilig zoals IK Heilig BEN, streef ernaar om Heilig te leven, in jullie gedachte, en lichaam en wandel meer in de HEILIGE GEEST dan dat jullie wandelen in het vlees, en weet dat legioenen van Hemelse Heilige Engelen vechten aan jullie zijde!
+Thans is hij echter niet bij ons in het vlees zoals negentienhonderd jaar geleden, toen hij de apostelen leidde en hun het juiste voorbeeld stelde.
+De Almachtige God kwam naar deze aarde in de gedaante van een mens.
+Nog eentje: De Geest van God herkent u hieraan: iedere geest die belijdt dat Jezus Christus als mens gekomen is, komt van God (Johannes 4:2).
+Als wij geloven dat de Heer dus op deze aarde geboren was in de gedaante van een mens, gedoopt werd door Johannes, aan het Kruis stierf, van de dood herrees, en daarbij onze Verlosser werd, kunnen we allen Gods kinderen worden.
+* Gedurende de tijd dat zij in het vlees op Gods voetbank zijn, worden zij ook afgebeeld als personen die zich in de binnenste voorhof voor de priesters, waar het offeraltaar stond, bevinden. — Dan.
+Ze kwam bijvoorbeeld te weten dat Christus ’ tweede tegenwoordigheid in de geest zou zijn, en niet in het vlees, zoals zo veel belijdende christenen geloven.
+Maar toen ik hem persoonlijk zag, moest ik mijn pijngrens nog iets verleggen.
+Dewijl dan Christus voor ons in het vlees geleden heeft, zo wapent gij u ook met dezelfde gedachte, namelijk dat wie in het vlees geleden heeft, die heeftopgehouden van de zonde;
+De vrede die Michael aan zijn kinderen op aarde geeft, is dezelfde vrede waarvan zijn eigen ziel was vervuld toen hij zelf als sterfelijk mens in het vlees op deze, uw eigen wereld, leefde.
+M'n eerste klant in levenden lijve.
+4:1 Dewijl dan Christus voor ons in het vlees geleden heeft, zo wapent gij u ook met dezelfde gedachte, namelijk dat wie in het vlees geleden heeft, die heeft opgehouden van de zonde;
+Gods verlossingsplan kent vele hoogtepunten: voor de redding van de mensen zond Hij Zijn Zoon in het lichaam, liet Hem dus mens worden.
+Als wij luisteren en gehoorzamen zullen wij de Heilige Geest ontvangen die ons toestaat Gods rust in te gaan, door in het ware Evangelie, het Evangelie van de Heilige Geest te geloven.
+15 Want hij is misschien wel daarom een tijdlang weg geweest, opdat gij hem voorgoed zoudt terughebben, 16 nu niet meer als slaaf, maar als meer dan slaaf, als een geliefde broeder, in hoge mate voor mij, hoeveel te meer dan voor u, zowel in het vlees als in de Here.
+Sinds Plato weten wij echter dat de menselijke ziel uit drie delen bestaat: het denkende gedeelte, dat met de logica kan worden benaderd, het opvliegende gedeelte, dat alleen maar repressie begrijpt, en het begerende gedeelte dat eveneens irrationeel is.
+Gedurende de tijd dat de Heer Jezus Christus in het vlees op aarde was, zond hij niet alleen de twaalf apostelen uit om evangelisatiewerk te verrichten.
+De apostel Petrus schreef in dezelfde trant: „Daar Christus dan in het vlees heeft geleden, zo wapent ook gij u met dezelfde gezindheid, want de persoon die in het vlees heeft geleden [door de martelpaal van Christus op te nemen], heeft opgehouden te zondigen, om de rest van zijn tijd in het vlees niet meer voor de begeerten van mensen te leven, maar voor Gods wil.
+Satan beloofde hier Adam en Eva geen onsterfelijkheid na de dood, maar zeide dat zij ten gevolge van het eten van de vrucht van de verboden boom niet in het vlees zouden sterven.
+Bij zijn terugkomst in Nederland liet hij weten dat hij wat ruimer over de apartheid was gaan denken: "Ik meen te kunnen zeggen dat men met de leuze wij-zijn-tegen-apartheid nog geen oplossing brengt."In deze tijd, tegen het einde van de jaren vijftig, nam echter bij de Nederlandse koninkrijksdelen Suriname en de Nederlandse Antillen de ergernis over de Haagse sympathie voor Zuid-Afrika toe.
+Stel dat ik niet aan haar verwachtingen voldoe als ze me leert kennen.
+De abstinentie van een drummer valt de eerste paar oppervlakkige draaibeurten niet eens zo op, maar na enkele diepere sessies wordt het geratel van een drum computer toch een beetje van de saaie.Dat ziet Klont! zelf ook in en is op zoek naar een drummer van vlees en bloed.
+Jozef, Jezus' vader in het vlees, was een timmerman (Mattheüs 13:55), en Jezus diende Zijn familie onder deze timmermansvader, waarbij Hijzelf voor de eerste 29 jaar van Zijn leven als een timmerman werkte.
+Toch begrijpen deze zelfde mensen niet waarom het, indien hij in het vlees zou zijn opgewekt, noodzakelijk zou zijn geweest een lichaam te materialiseren.
+Geneigdheid tot zonde – zonde in het vlees
+Daarom dat de gezindheid van het vlees vijandschap is tegen God; want het onderwerpt zich niet aan de wet Gods; trouwens, het kan dat ook niet: zij, die in het vlees [natuurlijk gezind] zijn, kunnen Gode niet behagen.
+Alhoewel Jezus nog drie en een half jaar langer in het vlees op aarde bleef, was hij nu een „nieuw schepsel, ” een gezalfde geestelijke Zoon Gods. — 2 Kor. 5: 17, voetnoot.
+Daarom moet u voor de rest van uw leven niet meer aan de slechte verlangens van de zonde toegeven, maar de wil van God doen.
+De verordening is doeltreffender door haar directe toepasbaarheid.
+Hun dood in het vlees maakt niet voor een bepaalde tijdsduur een eind aan hun ’ daden ’.
+Wat hun mondelinge onderricht betreft, wij hebben de apostelen thans niet persoonlijk in het vlees bij ons, maar wij hebben wel hun geschriften, tezamen met de geïnspireerde geschriften van hun medediscipelen, zoals Markus, Lukas, Jakobus en Judas.
+Wat het ook was, deze „doorn in het vlees ” had een verzwakkende invloed op Paulus.
+Bekijk duizenden anatomische specimen die worden bewaard in potten, van voeten met koudvuur tot kwaadaardige moedervlekken. U kunt ook een boek zien dat is gebonden in de huid van de notoire 19e eeuwse moordenaar William Burke!
+Natuurlijk F.X. IN LEVENDE LIJVE Jij daar, Ik dacht dat jij Wel naar de show zou willen, Om die warme huivering te voelen Van verwarring, die mafketelgloed.
+Mensen willen een Europa van vlees en bloed zien en tegen zichzelf kunnen zeggen dat Europa niet zomaar een institutioneel monster is, waarvan niemand precies weet wie of wat het is, maar dat het mensen zijn, met hun zwakheden.
+In werkelijkheid trachten zij als christenen ’ in het vlees voltooid ’ te worden in plaats van in geestelijk opzicht.
+(1022.3) 93:8.1 Kort na de verwoesting van Sodom en Gomorra nam Machiventa het besluit om zijn nood-zelfschenkking op Urantia te beëindigen. Het besluit van Melchizedek om zijn verblijf in het vlees af te sluiten werd hem door talrijke omstandigheden ingegeven, maar de belangrijkste van deze was de toenemende neiging bij de omwonende stammen en zelfs bij zijn naaste metgezellen, om hem als een halfgod te beschouwen, om hem te zien als een bovennatuurlijk wezen, hetgeen hij inderdaad was; zij begonnen hem echter overmatig en met een hoogst bijgelovige vrees te vereren.
+Zij worden geschoold in de school van harde slagen aangezien zij neergeslagen worden in het vlees opnieuw en opnieuw maar wanneer zij opstaan is het met een grotere zalving en niet meer het vlees dat verrijst maar MIJN RUACH ha KODESH die verrijst.
+Leuk u weer in levenden lijve te zien, professor Stein.
+3 En alle geest, die niet belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld.
+Inderdaad legde de Meester zijn leven in het vlees af op deze dag, de dag van voorbereiding voor het Joodse Pascha, en ongeveer op het uur dat de Paaslammeren in de tempel geofferd werden.
+Geen enkele gelovige die op deze voorgeschreven wijze wordt gedoopt, doet dit om de discipel van louter een mens in het vlees op aarde te worden.
+Wanneer de leden ervan hun getrouwe bediening in het vlees voltooien doordat zij deel hebben aan „de eerste opstanding ”, dan worden met recht hun handen met macht gevuld om doeltreffende dienst te verrichten in verband met Gods voornemen om gedurende het Millennium menigten op deze aarde te zegenen.
+„ EEN DOORN IN HET VLEES ”
+„ Daar Christus dan in het vlees heeft geleden, zo wapent ook gij u met dezelfde gezindheid, want de persoon die in het vlees heeft geleden, heeft opgehouden te zondigen, om de rest van zijn tijd in het vlees niet meer voor de begeerten van mensen te leven, maar voor Gods wil. ” — 1 Petr.
+Dat wil zeggen: de kinderen in het vlees [natuurlijke joden] zijn niet werkelijk de kinderen van God. ”
+Blossom: Ja… White Cloud heeft hier vaak over gesproken en hoe hij weer even terug ‘is’ in het vlees… zelfs maar voor dat eventjes.
+Dat wil zeggen: de kinderen in het vlees zijn niet werkelijk de kinderen van God, maar de kinderen der belofte worden als het zaad gerekend. ” — Rom.
+11 En gij zult het vlees uwer voorhuid besnijden; en dat zal tot een teken zijn van het verbond tussen Mij en tussen u.
+Bewijzen aanvoerend tegen een duizendjarige regering in het vlees op aarde, legt Hastings ’ Encyclopædia of Religion and Ethics uit:
+2: 1, 2. Met een eenvoudige en niet mis te verstane definitie verduidelijkt Johannes de kwestie later nog verder door te zeggen: „Elke geïnspireerde uiting die Jezus Christus belijdt als gekomen in het vlees, spruit uit God voort, maar elke geïnspireerde uiting die Jezus niet belijdt, spruit niet uit God voort. ” — 1 Joh. 4: 2, 3.
+En de mensen die in het vlees zijn, kunnen God niet behagen.
+Wij hebben gezien dat Jezus Christus na zijn getrouwe loopbaan tot de dood in het vlees, „levend [werd] gemaakt in de geest ”,„ rechtvaardig [werd] verklaard in geest ”, en dat hem onsterfelijkheid en onverderfelijkheid geschonken werd.
+Zolang zij in het vlees zijn, genieten zij geestelijke verlichting, zoals werd afgebeeld door de gouden lampestandaard in het Heilige.
+Jouw man in levende lijve zien zou het hun afgunst doen ontvlammen.
+Jehovah God had zich echter voorgenomen dat deze toekomstige koningen en priesters een werk zouden verrichten terwijl zij zich nog als mensen van vlees en bloed op aarde zouden bevinden.
+Hitler is nog lelijker dan ik dacht.
+Toen God Adam en Eva in volmaaktheid schiep, was het zijn voornemen dat de gehele mensheid van één mens afstamde en derhalve aan elkaar verwant zou zijn in het vlees, ja, dat allen één familie zouden vormen.
+Maar opdat hij zich niet te zeer verheven zou voelen, nam God zijn „doorn in het vlees ” — misschien een slecht gezichtsvermogen of die valse apostelen — niet weg.
+8 maanden geleden 14:57 HDZog beroemdheid, de duivel
+…wie naar het vlees geleden heeft, onttrokken is aan de zonde, om niet meer naar de begeerten van mensen, maar naar de wil van God de tijd, [..,] te leven.
+2:20 Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar Christus leeft in mij; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons van God, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft.
+Noach predikte dus tot de geesten die na de vloed in Tartarus werden opgesloten, maar hij kon dit in het vlees doen daar zij in het vlees waren, zich hadden gematerialiseerd.
+Zo waren ze van mening dat alle materie slecht is, en om die reden was Jezus niet in het vlees gekomen maar had hij slechts in schijn een menselijk lichaam — een geloof dat docetisme wordt genoemd.
+Paulus zegt in Filippenzen 1 dat als hij leeft voort in het vlees betekent vruchtbare arbeid voor Hem.
+Dit was een doorn in het oog van de bewindhebbers van de rekenkamer, die een goed beheer van de boeken en papieren van groot belang achtten.
+Ik ben 't, meisje, Tank, in levende lijve.
+Heb. 2:18. “Daar Christus dan naar het vlees geleden heeft, moet ook gij u wapenen met dezelfde gedachte, dat, wie naar het vlees geleden heeft, onttrokken is aan de zonde.”
+Het boek 2 Johannes houdt zich voornamelijk bezig met een dringende waarschuwing voor bedriegers die niet de precieze leer van Christus onderrichtten en bleven beweren dat Jezus niet daadwerkelijk lichamelijk uit de dood was opgestaan, maar alleen geestelijk.
+Iemand die weigert zich te laten besnijden, moet worden verstoten. Die heeft mijn verbond gebroken."
+Doornen in het vlees
+En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuid besneden werd.
+En gij zult het vlees uwer voorhuid besnijden; en dat zal tot een teken zijn van hetverbond tussen Mij en tussen u.
+De stadsheld in vlees en bloed in mijn woonkamer.
+Wel, óf je belt die heer, en vertelt hem dat je hem persoonlijk wilt bedanken, of geef mij zijn nummer.
+Daarom dat de gezindheid van het vlees vijandschap is tegen God; want het onderwerpt zich niet aan de wet Gods; trouwens, het kan dat ook niet: zij, die in het vlees [natuurlijk gezind] zijn, kunnen Gode niet behagen.
+20 Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar Christus leeft in mij; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons van God, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft.
+* Van die tijd af zijn zij verplicht alle dagen die zij in het vlees op aarde zijn, „zeven dagen ” bij wijze van spreken, de offeranden van lof en gehoorzame dienst aan God te offeren.
+Nu voortaan niet als een dienstknecht, maar meer dan een dienstknecht, namelijk een geliefden broeder, inzonderheid mij, hoeveel te meer dan u, beide in het vleesen in den Heere.
+Dit is op iedereen van toepassing die YAHUSHUA ha MASHIACH als GOD, HEER, REDDER, de enige Geboren Zoon van YAHUVEH hebben aanvaard, geboren in het vlees van een maagdelijke vrouw, en gaf zichzelf op voor een Heilig zondeoffer, die stierf en herrees op de 3de dag, en nu zit aan de rechterkant van IK, YAHUVEH. Al degenen die ernaar streven te gehoorzamen zijn gevuld met MIJN RUACH ha KODESH, Mijn HEILIGE GEEST in zekere mate.
+Ik heb nog nooit een man gezien.
+Zonder de Menswording, zonder God die lijfelijk onder ons komt wonen in Jezus, zijn enige Zoon, is de rest van het evangelie onmogelijk.
+Enkele leden van het gezalfde overblijfsel van Koninkrijkserfgenamen zullen ook tezamen met de grote schare „andere schapen ” Armageddon overleven, en dit overblijfsel zal niet in een ogenblik in het vlees worden volmaakt.
+(113.1) 10:4.7 Als sterveling in het vlees dient ge de Triniteit te beschouwen in overeenstemming met uw individuele verlichting en in harmonie met de reacties van uw bewustzijn en ziel.
+4:3 En alle geest, die niet belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld.
+25 En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuid besneden werd. 26
+Zij worden geschoold in de school van harde slagen aangezien zij neergeslagen worden in het vlees opnieuw en opnieuw maar wanneer zij opstaan is het met een grotere zalving en niet meer het vlees dat verrijst maar MIJN RUACH ha KODESH die verrijst. Een profetenschool kan niet onderwijzen wat slechts de RUACH ha KODESH kan onderwijzen.
+24 En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuid besneden werd.
+Een van de meest interessante was die van een persoon die uit zijn lichaam was getreden en echt gezien werd alsof hij in zijn fysieke lichaam zat door een ander persoon:
+1 Johannes 4:3 En alle geest, die niet belijdt, dat YAHUSHUA ha MASHIACH in het vlees gekomen is, die is uit YAHUVEH niet; maar dit is de geest van den antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld. 2 Johannes 1:7 Want er zijn vele verleiders in de wereld gekomen, die niet belijden, dat YAHUSHUA ha MASHIACH in het vlees gekomen is.
+Het besluit van Melchizedek om zijn verblijf in het vlees af te sluiten werd hem door talrijke omstandigheden ingegeven, maar de belangrijkste van deze was de toenemende neiging bij de omwonende stammen en zelfs bij zijn naaste metgezellen, om hem als een halfgod te beschouwen, om hem te zien als een bovennatuurlijk wezen, hetgeen hij inderdaad was; zij begonnen hem echter overmatig en met een hoogst bijgelovige vrees te vereren.
+Zij waren niet als de ongelovige joden, die Jezus zichtbaar in het vlees in hun midden zagen en toch niet erkenden dat hij de beloofde Messías was, dat ’ het koninkrijk Gods zich in hun midden ’ bevond.
+Terwijl Jezus in het vlees hier op aarde was, ervoer hij wat het wil zeggen een mens te zijn, „een weinig lager dan engelen ”.
+Die kogel zat in die vent die ontsnapt is.
+Hij is de Ene die naar deze aarde kwam in de gedaante van de mens, alle zonden van de wereld ontving, en voor deze zonden stierf om ons van al onze zonden te verlossen.
+Hij stond niet toe dat zij vragen zou gaan stellen over haar verleden, om opnieuw over haar schouders te kijken, om vragen te hebben voor God in het vlees, die voor haar stond – Hij was in het heden. Dat doet me denken aan iets dat Hij eens tegen mij zei:"IK BEN, altijd aanwezig (en in het heden).
+Zij zijn in het vlees van de Ene met het vorstendom op Zijn schouders; zij zijn in het vlees van de Almachtige God.
+Daar hij nu dus verhoogd is, hoe kan hij dan in het vlees zijn en terzelfder tijd hoger zijn dan de engelen, zelfs hoger dan hij was voordat hij van de hemel naar de aarde af kwam?
+Paulus schrijft dat in het vlees "geen goed woont", en hoe het vlees van nature in strijd is met gehoorzaamheid aan God (Romeinen 7:18-23).
+De burgers daarentegen, dat blijkt uit de ervaringen in Griekenland, Ierland en Portugal, krijgen meer sociale ongelijkheid, meer werkloosheid en meer armoede te verduren.
+Toen Jezus in het vlees kwam, werd hij „een weinig lager dan engelen ” gemaakt, en indien hij ook God in het vlees was, werd God hierdoor lager dan engelen gemaakt, en indien hij in het vlees is opgestegen, betekent dit dat zowel God als Christus op dit ogenblik lager dan engelen zijn!
+En wat mannelijk is, de voorhuid hebbende, wiens voorhuids vlees niet zalbesneden worden, dezelve ziel zal uit haar volken uitgeroeid worden; hij heeftMijn verbond gebroken.
+GALATEN 2:20 "Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar CHRISTUS LEEFT IN MIJ; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons van God, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft."
+Dit móet wel het geval zijn, aangezien de apostelen en andere discipelen van de eerste eeuw G.T. niet tot Christus ’ onzichtbare wederkomst met Koninkrijksmacht in deze twintigste eeuw in het vlees in leven zijn gebleven.
+Het hoofd bieden aan „een doorn in het vlees ”
+1:24 Maar in het vlees te blijven, is nodiger om uwentwil.
+Maar er zijn enkele religieuze mensen die loochenen dat Jezus Gods zoon was en dat hij in het vlees was gekomen doordat Jehovah hem op wonderbaarlijke wijze naar de schoot van een Joodse maagd, Maria, had overgebracht.
+Dit was een doorn in het oog van de bewindhebbers van de rekenkamer, die een goed beheer van de boeken en papieren van groot belang achtten.
+Het blad voelt op zijn manier zoals op zijn manier voelt de steen, maar alleen wie handen heeft vindt zachtheid in het vlees en hardheid in de beenderen.
+niet alleen als uw slaaf, maar ook als uw geliefde broeder, die een speciaal plekje in mijn hart heeft. Is dat niet veel beter? Hij zal nu veel meer voor u betekenen, omdat hij niet alleen uw slaaf maar ook uw broeder in Christus is.
+Jezus leefde zijn leven in het vlees en verliet deze wereld zonder dat iemand (behalve Zebedeüs van Betsaïda) wist dat hij deze uitgebreide tocht had gemaakt.
+Bovendien had Paulus een „doorn in het vlees ” — mogelijk een oogaandoening. — 2 Kor. 12: 7; Hand. 23: 1 - 5; Gal. 4: 15; 6: 11.
+De prominente plaats van de kathedraal aan de oever van de Moskourivier was een doorn in het oog van Stalin, die daar liever een communistisch monument zag.
+Christus geopenbaard in het vlees is het grote mysterie van de godsvrucht. “En buiten twijfel, groot is het geheimenis der godsvrucht: Die Zich geopenbaard heeft in het vlees, is gerechtvaardigd door de Geest,..” 1. Tim. 3:16
+(26.5) 1:4.3 Wanneer ge hier beneden klaar zijt, wanneer ge uw loopbaan in tijdelijke gedaante op aarde hebt volbracht, wanneer uw proeftocht in het vlees is beëindigd, wanneer de stof waaruit de sterfelijke tabernakel is gevormd ‘wederkeert tot de aarde waaruit deze is voortgekomen,’ dan zal, naar u is geopenbaard, de inwonende ‘Geest terugkeren tot God die hem gegeven heeft.’ In ieder moreel wezen van deze planeet vertoeft een fragment van God, een essentieel deel van zijn goddelijkheid.
+Als iemand in Jezus probeert te geloven zonder wedergeboren te zijn in zijn/haar geest, dan is deze persoon slechts iemand die probeert wedergeboren te zijn in het vlees net zoals Nicodemus en hij/zij zal nooit wedergeboren zijn.
+25 En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuid besneden werd.
+In de derde plaats, ondanks het recente geruststellende verslag van de Commissie over de industriële visserij, zal deze bedrijfsactiviteit — zonder controle — de voorraden voor vangst geschikte vis verder uitdunnen, als de vis de wisselvalligheden van het lot die ik zoeven heb omschreven al overleeft, daar er voor de vis niets meer te eten overblijft.
+Omdat niemand die van Adam een kort bestaan als een man ontvangt, een volmaakt leven als een slachtoffer voor het menselijke gezin kon geven, zond God zijn eniggeboren Zoon uit de hemel opdat deze een volmaakte man in het vlees op aarde kon worden.
+Waarom wordt door het geval van de vrouw met de geest van zwakheid en dat van Paulus ’ doorn in het vlees niet betoogd dat Satan in alle krankheid de hand heeft?
+Mensen die alleen maar hun eigen zin doen, kunnen God dan ook niet tevreden stellen.
+Ons vleselijk lijden zal tot een eind komen.
+Dewijl dan Christus voor ons in het vlees geleden heeft, zo wapent gij u ook met dezelfde gedachte, namelijk dat wie in het vlees geleden heeft, die heeft opgehouden van de zonde;
+Een bevestiging van het feit dat Jezus ook als mens Gods Zoon was, kwam van de Vader zelf.
+Wat deze „doorn in het vlees ” ook was, Paulus werd er heel erg door gekweld, en hij bad herhaaldelijk of die weggenomen kon worden. — 2 Korinthiërs 12: 8.
+Ja, denk dan eens aan wat Paulus te dien aanzien zei: „Wanneer ik zwak ben, dan ben ik krachtig. ”
+Zulk een eer en gehoorzaamheid was iemand niet alleen terecht verschuldigd tegenover hen die rechtstreeks zijn vleselijke ouders waren, maar ook tegenover de oudere mannen van aanzien in Israël.
+Hij werd in het vlees verwekt doordat Adam gemeenschap had met Maria. — Journal of Discourses, Deel I, blz. 50, 51.
+Indien wij niet geloven dat hij in het vlees is geboren en in de wereld is gekomen om Gods voornaamste getuige voor „de waarheid ” te zijn, verkeren wij in dwaling en spruiten wij uit de wereld voort, terwijl wij geen ware christenen zijn. — 1 Joh. 4: 1 - 6, NW.
+Behalve dat hij de Middelaar ervan was, had Jezus rechtstreekse bemoeienissen in het vlees met degenen die als eersten in dit verbond opgenomen zouden worden.
+Eeuwenlang hebben de geestelijken en schrijvers van de christenheid deze tot Jezus gerichte en in Mattheüs 24: 3 (Nieuwe Vertaling van het Nederlands Bijbelgenootschap) opgetekende woorden zo uitgelegd als zouden ze betekenen dat hij weer zichtbaar zou zijn in het vlees, zodat alle mensen hem zouden zien.
+Want later, toen de kerk te Jeruzalem was gesticht, gaf hij inderdaad gehoor aan het bevel van de Meester ofschoon het toen te laat was om lid te kunnen worden van de zeventig, en hij werd penningmeester van de kerk te Jeruzalem waarvan Jakobus, de broer van Jezus, het hoofd was.
+Enige tijd vóór Michaels dood in het vlees, trachtte Satan, de medewerker van de gevallen Lucifer, zulk een conclaaf op Edentia bij te wonen, maar de verharding van de gevoelens jegens de aartsrebellen had het punt bereikt waar de deuren van sympathie zo nagenoeg universeel waren gesloten, dat er voor de tegenstanders uit Satania geen permanente plaats meer kon worden gevonden.
+(1425.5) 129:4.6 Ofschoon dit volmaakte leven dat hij in de gelijkenis van het sterfelijke vlees leidde, niet de onvoorwaardelijke, universele goedkeuring mocht ontvangen van zijn medestervelingen, van hen die toevallig zijn tijdgenoten op aarde waren, werd het leven in het vlees van Jezus van Nazaret op Urantia door de Universele Vader wel geheel en onvoorwaardelijk aanvaard, als zijnde, op één en hetzelfde moment en in één en hetzelfde persoonlijkheidsleven, de volheid van de openbaring van de eeuwige God aan de sterfelijke mens, en de presentatie van vervolmaakte menselijke persoonlijkheid tot de voldoening van de Oneindige Schepper.
+Zelfs in het vlees als de „Zoon des mensen ” weerspiegelde Jezus op volmaakte wijze zijn hemelse Vader, Jehovah God.
+2:11 Daarom gedenkt, dat gij, die eertijds heidenen waart in het vlees, en die voorhuid genaamd werdt van degenen, die genaamd zijn besnijdenis in het vlees, die met handen geschiedt;
+Het ongezuurde brood herinnert ons aan Jezus ’ vleselijke lichaam, hoe hij „in het vlees heeft geleden ”, hoe hij zijn vleselijke lichaam„ ten behoeve van het leven der wereld ” heeft gegeven, hoe hij „het Lam [is], dat geslacht werd ” en hoe het Wetsverbond„ uit de weg [werd] geruimd door het aan de martelpaal te nagelen ”.
+(2002.4) 186:5.3 Ten tijde van zijn doop had de Meester zich reeds de methode eigen gemaakt van de vereiste ervaring op aarde en in het vlees, die noodzakelijk was om zijn zevende en laatste zelfschenking aan zijn universum te voltooien.
+(1) Door wedergeboren te worden in de gedaante van een mens.
+4:2 Hieraan kent gij den Geest van God: alle geest, die belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God;
+Enige tijd vóór Michaels dood in het vlees, trachtte Satan, de medewerker van de gevallen Lucifer, zulk een conclaaf op Edentia bij te wonen, maar de verharding van de gevoelens jegens de aartsrebellen had het punt bereikt waar de deuren van sympathie zo nagenoeg universeel waren gesloten, dat er voor de tegenstanders uit Satania geen permanente plaats meer kon worden gevonden.
+"Doch gijlieden zijt niet in het vlees, maar in den Geest, zo anders de Geest Gods in u woont.
+En dit is de waarheid van de wedergeborenen, dat Jezus naar deze wereld kwam in de gedaante van een mens om voor onze zonden te betalen door Zijn doopsel en bloed.
+Om te beginnen kon ik door mijn „doorn in het vlees ” de gezondheidsproblemen van anderen beter begrijpen en kon ik met hen meevoelen.
+Als afgevaardigde voor Toulouse kan ik u verzekeren dat de ramp met de AZF-fabriek nu, twee jaar later, nog steeds vers in ons geheugen ligt. De mensen in onze stad zijn die ramp steeds indachtig; velen dragen er op het lichaam de littekens van.
+Toen Jezus Christus in het vlees op aarde was, trachtte hij niet Satans organisatie omver te werpen, en ook zijn volgelingen moeten dit niet trachten te doen, want dit zou op tijdverspilling neerkomen omdat zij hier niet toe in staat zijn.
+Nog een ongerijmdheid is de bewering van de drieëenheidsaanhanger dat Jezus, toen hij op aarde was, God in het vlees was en dat hij, toen hij naar de hemel opsteeg, in een vleselijk lichaam is opgestegen.
+(1045.3) 95:2.10 Het idee dat er in het hiernamaals een oordeel wordt uitgespoken over de zonden die men in het leven in het vlees op aarde begaat, kwam vanuit Egypte in de Hebreeuwse theologie terecht.
+Eén manier waarop het “in het vlees leven” zich manifesteert is zelfzuchtigheid, een andere belemmering voor effectief gebed.
+Maar omdat u eigenlijk niet zonder mij kunt, reken ik erop dat ik nog wel enige tijd in deze wereld zal blijven.
+Op passende wijze zouden zij eerst opstaan en deze gebeurtenis zou voorafgaan aan de herleving van de Koninkrijksverkondigers, die nieuw leven ingeblazen zou worden om gedurende deze „tijd van het einde ” hun werk in het vlees op aarde voort te zetten.
+Na zijn dood als mens en zijn opstanding als geestelijk wezen steeg hij op naar „de hemel zelf, om (...) voor de persoon van God te verschijnen ”.
+En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuidbesneden werd.
+'Uw spraak maakt u openbaar' kan op veel manieren toegepast worden, want of wij in het vlees leven of in de geest, in de natuurlijke of in de geestelijke mens, het zal altijd blijken uit wat wij zeggen en uit de geestelijke uitwerking van de vrucht van onze lippen.
+In het Oude Testament liet Hij onze zonden verdwijnen met de blauwe, paarse en dieprode wol terwijl Jezus in het Nieuwe Testament onze Verlosser werd door naar deze aarde te komen in de gedaante van een mens, met Zijn doopsel dat Hij van Johannes ontving al onze zonden op Zich nam en door Zijn bloed aan het Kruis te vergieten voor al onze zonden en het oordeel voor deze zonden te zorgen.
+Het geldt ook voor de doden die door Jezus en zijn apostelen tot leven in het vlees op aarde werden teruggebracht: het dochtertje van Jaïrus, de zoon van de weduwe van Naïn, Lazarus, de broer van Maria en Martha, Dorkas (Tabítha) van Joppe, en Eutychus van Troas.
+Het leven dat ik nu in het vlees leid, zal beide oordelen, de ware en de valse herders. Indien de valse herder blind was, zou hij niet zondig zijn, maar gij beweert dat ge ziet: gij zegt leraren in Israel te zijn; daarom blijft uw zonde op u rusten.
+Ik zag hem in levende lijve, zoals jij hier voor mij staat.
+De leer geformuleerd Keurvorst Frederik III van de Palts neeg in de kwestie steeds meer naar de gereformeerde opvatting van Calvijn, wat Lutheranen een doorn in het oog was.
+Jouw incompetentie beschadigt mijn reputatie.
+Voor zover ik nog in het vlees leef, is dat omdat Christus in mij leeft.
+Degenen van deze klasse die thans nog in het vlees op aarde verblijven (het overblijfsel), hebben van God de opdracht ontvangen het „goede nieuws van het koninkrijk ” te prediken.
+Maar wel heb ik gezegd dat mijn leven in het vlees een schenking is van het brood des hemels.
+Het meisje van chocola. Men zegt dat ze spontaan ontvlamt in een nacht zonder sterren.
+9 Gij daarentegen zijt niet in het vlees, maar in de Geest, althans, indien de Geest Gods in u woont.
+Ik kan het er niet mee eens zijn dat die boodschap een “doorn in het vlees van de Nieuw-Apostolische Kerk” zou zijn. Allen, die deze tijd bewust beleefd hebben, weten, hoe intensief het wachten op de wederkomst van Christus in stand gehouden werd.
+de voorhuid moet worden verwijderd. Dat zal voor Mij het teken zijn dat u en uw nakomelingen dit verbond accepteren en eerbiedigen.
+De massale deportaties van leden van de Roma bevolking is een daad die ons allen, zonder uitzondering, beschimpt, of we nu Fransen zijn of niet. We vinden het alarmerend dat in een land als Frankrijk, dat gedurende veel jaren het slachtoffer was van Nazi's en heeft gezien wat raciale misdaden (waaronder massale deportaties) betekenen, deze schandelijke daden uitvoert.
+Met u is het anders. U doet niet meer uw eigen zin, maar laat u leiden door de Geest; tenminste als de Geest van God in u woont. Als u de Geest van Christus niet hebt, hoort u niet bij Hem.
+Omdat Christus voor ons geleden heeft en gestorven is, moeten wij ons wapenen met dezelfde innerlijke overtuiging als Hij. Omdat Hij heeft geleden, heeft de zonde zijn macht over ons verloren.
+Nog een doorn in het vlees is vervolging.
+Overlevenden die op de eerste detentie-wereld aankomen, vertonen zoveel uiteenlopende gebreken in hun karakter als schepsel en onvolkomenheden in hun ervaring als sterveling, dat de belangrijkste activiteiten van dit gebied zijn gericht op het rechtzetten en genezen van dit veelvoud van erfenissen van het leven in het vlees op de materiële evolutionaire werelden in tijd en ruimte.
+Die boodschap is, zogezegd een “doorn in het vlees van de Nieuw-Apostolische Kerk”. Kan men het openbarende karakter van de boodschap relativeren – onafhankelijk ervan of zij zich vervuld heeft of niet?
+Doe dat, inplaats van te trachten mijn natuurlijke leven in het vlees, zoals ik dit noodzakelijkerwijs op deze wereld heb moeten leiden, te imiteren.
+Dat wordt niet met een mes gedaan, maar door verkeerde verlangens en trotse gedachten te verwerpen, zoals het geloof dat besnijdenis in het vlees iemand boven anderen verheft.
+In levenden lijve.
+Als je jezelf niks afvraagt, maar wilt zien hoe mysterieus en zorgvuldig de Bron deze tijd heeft gepland en hoe een ware boodschapper van God eruit ziet en klinkt, zich nestelt in het vlees en klaar staat om ieder menselijk wezen te helpen, kijk dan naar deze video.
+Dat Saulus zich op zijn vleselijke werken verliet en op datgene wat hij zelf in het vlees was, telde niet langer.
+De mensheid zou er niets bij winnen als Christus die positie zou verlaten om in het vlees op aarde te verschijnen. — Rom.
+Jezus werd niet eerst gezonden toen hij in het vlees op aarde was, maar hij werd vanuit de hemel gezonden.
+20 Ik ben met Christus gekruist; en ik leef, doch niet meer ik, maar Christus leeft in mij; en hetgeen ik nu in het vlees leef, dat leef ik door het geloof des Zoons van God, Die mij liefgehad heeft, en Zichzelven voor mij overgegeven heeft.
+(2091.11) 196:2.2 Het leven van Jezus in het vlees laat een transcendente religieuze groei zien van de vroege ideeën van primitief ontzag en menselijke eerbied, via jaren van persoonlijke geestelijke omgang, totdat hij ten slotte de gevorderde, verheven status bereikte van besef van zijn eenheid met de Vader.
+Tijdens het sterfelijke leven in het vlees verkeert de ziel in een embryonale staat: zij wordt geboren (opgewekt) in het morontia-leven en maakt groei door via de successieve morontia-werelden.
+17:14 En wat mannelijk is, de voorhuid hebbende, wiens voorhuids vlees niet zalbesneden worden, dezelve ziel zal uit haar volken uitgeroeid worden; hij heeftMijn verbond gebroken.
+De Zoon van God, Jezus Christus, kwam naar de aarde in het vlees van een mens, werd gedoopt door Johannes de Doper, nam de last van alle zonden van de wereld op Zich, stierf aan het Kruis en werd na drie dagen van de dood herrezen, en Hij werd de Heer voor degenen die geloven.
+24 En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuid besneden werd.
+Zoals het gordijn of voorhangsel dat het Heilige van het Allerheiligste van de tempel scheidde, scheidde Jezus ’ volmaakte vlees hem gedurende zijn menselijke leven in het vlees van het geestelijke leven in de onzichtbare hemelen waar God persoonlijk woont.
+Ik begroet hen die mij eens nabij waren in het vlees en spreek mijn vriendschap uit voor mijn broeders en zusters in het koninkrijk.
+Wat de landbouwsector betreft was hij van oordeel dat een prijsbevriezing, gepaard met een mede verantwoordelijkheid van de producenten en een snelle opheffing van de monetaire compenserende bedragen er niet toe zou leiden dat de landbouwers een fatsoenlijk inkomen wordt gegeven.
+Petrus schrijft dat Jezus „ter dood gebracht werd in het vlees, maar levend gemaakt in de geest ”.
+Naarmate de tijd voorbijging, werd hij zich steeds meer bewust van zijn voorbestaan; tegelijkertijd begon hij steeds duidelijker te beseffen dat hij in het vlees en op aarde was met het uitdrukkelijke doel om zijn Paradijs-Vader te openbaren aan de kinderen der mensen.
+Zijn met succes doorstane beproeving gold zijn rechtschapenheid; de beproeving om in het vlees de aanvallen van Satan en zijn vertegenwoordigers tegen zijn vlees, welke beoogden hem van God af te keren, te doorstaan.
+Vat je plichten vlug weer op en leef je leven in het vlees als een zoon van God, een sterveling die zich wijdt aan de veredelende dienst van de mens op aarde en bestemd is voor de verheven, eeuwige dienst van God in de eeuwigheid.’
+In het vlees ligt 40 tot 100 donkere zaden met een harde korst.
+Zijn lijden in het vlees op aarde, zoals bij monde van de profeten met betrekking tot hem was voorzegd, zou dan voor altijd tot het verleden behoren.
+Hieraan leert u de Geest van God kennen: elke geest die belijdt dat Jezus Christus in het vlees gekomen is, is uit God; en elke geest die niet belijdt dat Jezus Christus in het vlees gekomen is, is niet uit God" (1 Johannes 4:1-3).
+"De zonde zit in het vlees, gelijk de spijker in de muur!" zo staat er geschreven.
+Deze man, die in het vlees het bestaan van de hemelse heerscharen poogt te realiseren, tilt zichzelf boven de zorgen van de aarde, en richt zich, de benedenwaartse tendens van de menselijke natuur overweldigend, op de dingen van boven.
+Petrus gaf de raad: „Daar Christus dan in het vlees heeft geleden, zo wapent ook gij u met dezelfde gezindheid, want de persoon die in het vlees heeft geleden, heeft opgehouden te zondigen. ” — 1 Petr.
+Het werk gaf niet direct resultaat, en in het toenmalige religieuze Noorwegen was een overvloed aan charismatische en populaire predikanten die de mensen veel eerder boeiden dan de leer van Christus geopenbaard in het vlees. Smith was echter van zijn kant, noch geïnteresseerd in het afzwakken van de waarheid om velen te winnen, noch om er een grote show van te maken om maar opgemerkt te worden. “God wil graag iemand die staat voor Zijn aangezicht; omdat er genoeg zijn die voor het aangezicht voor het volk staan”, schreef hij aan zijn broer in 1909.
+24 Maar in het vlees te blijven, is nodiger om uwentwil.
+De uitdrukking „doorn in het vlees ” kan ook duiden op valse apostelen en anderen die Paulus ’ apostelschap en bediening aanvochten. — 2 Korinthiërs 11: 6, 13 - 15; Galaten 4: 15; 6: 11.
+Een van de meest interessante was die van een persoon die uit zijn lichaam was getreden en echt gezien werd alsof hij in zijn fysieke lichaam zat door een ander persoon: Mr Landau rapporteerde dat zijn toekomstige vrouw hem in 1955 vertelde van haar BLE's.
+Doordat Jezus Christus toen hij in het vlees was tot de dood toe getrouw bleef, gaf hij er blijk van degene te zijn „die het wettelijke recht heeft ”.
+Moge de Heer Jezus Christus, Wiens geboorte in het vlees wij vandaag vieren, onze vreugde zijn en dat Hij over ons doe neerdalen de genade van de verlossing.
+24 Maar in het vlees te blijven, is nodiger om uwentwil. 25
+Het staat evenwel vast dat we daar niet in zullen slagen, als we van de eenheidsmunt een inhalige en genadeloze Shylock maken die het volle pond van het vlees en bloed van de Europese werknemers opeist.
+Daarna, nadat de apostel indachtig heeft gemaakt dat het zaad van Abraham via Izaks geslachtslijn zou komen, wiens geboorte geschiedde als een vervulling van Gods belofte en die menselijk gesproken onmogelijk anders geboren had kunnen worden, zegt hij vervolgens dat „de kinderen in het vlees niet werkelijk de kinderen van God zijn, maar de kinderen door de belofte worden als het zaad gerekend ”.
 Dat het doen van Gods wil inderdaad de „gehele verplichting van de mens ” is, blijkt duidelijk uit wat Simon Petrus, een apostel van Jezus Christus, aan de vroege christenen schreef:„ Daar Christus dan in het vlees heeft geleden, zo wapent ook gij u met dezelfde gezindheid, want de persoon die in het vlees heeft geleden, heeft opgehouden te zondigen, om de rest van zijn tijd in het vlees niet meer voor de begeerten van mensen te leven, maar voor Gods wil.
-(1880.8) 172:3.2 Jezus had de hele morgen nagedacht over zijn binnengaan van Jeruzalem. Tot dusver had hij altijd getracht alle openlijke hulde die hem als de Messias werd betoond te onderdrukken, maar nu lag het anders: hij naderde het einde van zijn loopbaan in het vlees, zijn doodvonnis was door het Sanhedrin geveld, en het kon geen kwaad meer indien hij zijn discipelen toestond hun gevoelens de vrije loop te laten, precies zoals zou kunnen gebeuren indien hij verkoos een officiële, publieke intocht in de stad te doen.
-Dit leven in het vlees, samen met zijn dood aan het kruis en de daarop volgende opstanding, werd weldra tot een nieuw evangelie over de losprijs die aldus betaald was om de mens vrij te kopen uit de klauwen van de boze – uit de veroordeling van een beledigde God. Maar ook al werd het evangelie ernstig misvormd, toch blijft het een feit dat deze nieuwe boodschap over Jezus ook vele fundamentele waarheden en leringen van zijn eerdere evangelie van het koninkrijk met zich mee heeft gedragen.
-Ik wil niet op het vraagstuk van de bevoegdheid ingaan want daar heb ik geen verstand van maar ik wil alleen opmerken : ieder parlement dat bestaat uit vertegenwoordigers van de Europese landen heeft uiteraard het recht om te discussiëren over datgene wat hem zorgen baart en ook de bevolking zorgen moet baren.
+(2091.11) 196:2.2 Het leven van Jezus in het vlees laat een transcendente religieuze groei zien van de vroege ideeën van primitief ontzag en menselijke eerbied, via jaren van persoonlijke geestelijke omgang, totdat hij ten slotte de gevorderde, verheven status bereikte van besef van zijn eenheid met de Vader.
+Daar Christus ’ „bruid ” zo nauw verbonden is met de moederorganisatie, zou zij stellig in alle opzichten op haar moeder gelijken, evenals dit het geval zou zijn met de nog in het vlees op aarde verblijvende christenen, die aan Christus ten huwelijk zijn beloofd.
+Dal is de reden waarom Ik mij vandaag gioie zorgen maak over de resultaten van de conferentie. Daarom ook moei ons Parlement zijn werkzaamheden intensiveren om. samen met de Commissie en bepaalde lid-stalen. de intergouvernementele conferentie politiek te stimuleren.
+Onthoud dat dit een wapen tegen satan is, als jullie hem er constant aan laten herinneren, dat satan geen claim heeft op jullie gedachte, lichaam, geest of ziel, tenzij jullie, door zonde, hem het legale recht geven. Ben Heilig zoals IK Heilig BEN, streef ernaar om Heilig te leven, in jullie gedachte, en lichaam en wandel meer in de HEILIGE GEEST dan dat jullie wandelen in het vlees, en weet dat legioenen van Hemelse Heilige Engelen vechten aan jullie zijde!
+“Zonde in het vlees moet veroordeeld worden.
+7.Belijden dat Jezus Christus in het vlees gekomen is (4:2).
+Dat zij met „eeuwige banden ” worden bewaard, betekent klaarblijkelijk tevens dat zij zich niet meer zoals voor de Vloed in het vlees mogen materialiseren.
+Dat wil zeggen: de kinderen in het vlees zijn niet werkelijk de kinderen van God, maar de kinderen der belofte worden als het zaad gerekend....
+Ofschoon zij onzichtbaar zijn voor stervelingen, zien zij u wel zoals ge in het vlees zijt, zonder de hulp van transformeerders of vertalers; verstandelijk begrijpen zij de levenswijze van stervelingen, en zij delen al ’s mensen niet-zintuiglijke emoties en gevoelens.
+Toen de apostel Paulus uitlegde dat deze heidense gelovigen medeburgers van deze „heilige natie ” werden, schreef hij:„ Met betrekking tot het vlees [waart gij] mensen uit de natiën...; gij werdt ’ onbesneden ’ genoemd door dat wat ’ besnijdenis ’ wordt genoemd, welke met de hand in het vlees wordt aangebracht — dat gij in die tijd zonder Christus waart, vervreemd van de staat Israël en vreemden met betrekking tot de verbonden der belofte, en gij hadt geen hoop en waart zonder God in de wereld.
+Hij vond vijf volmaakt gevormde ronde parels, die allen diep in het vlees van de oesters begraven lagen in plaats van tegen de schelp.
+Dat is zeker 'n casusverslag waard.
+Dat Jezus, God Zelf, naar deze aarde kwam in de gedaante van een mens, de ongerechtigheden van de zondaars op Zijn eigen lichaam nam door gedoopt te worden, en indirect de vervloeking van alle zonden en vloeken droeg door Zijn bloed te vergieten, is het geestelijke mysterie van de blauwe, paarse en dieprode wol.
+Deze boodschap was hem een grote vertroosting en hielp hem zeer zijn geloof te stabiliseren en zich voor te bereiden op het tragische einde van zijn leven in het vlees, dat zo snel op deze gedenkwaardige gebeurtenis zou volgen.
+De Draak, Satan de Duivel, en zijn demonenleger zijn aan banden gelegd wat hun vermogen betreft zich zichtbaar in het vlees te materialiseren ten einde tegen Jehovah’s hedendaagse christelijke getuigen te strijden.
+Hij redde de leden van zijn overblijfsel, die nog in het vlees waren, en gaf hun de gelegenheid hun eigen redding te bewerken door in dit naoorlogse tijdperk moedige dienst ter hand te nemen als zijn getuigen en afgezanten van het Koninkrijk.
+De RUACH ha KODESH is geen aanziener van geslacht, slechts van gewillige vaten die in onverschrokkenheid van de RUACH ha KODESH vooruit zullen spreken en niet in een schuchtere stem in het vlees, banger om mensen te beledigen dan de wens om hen voor het belang van hun ziel te informeren.
+- Grove hagel. Ik heb meerdere double-oughts in zijn arm gevonden.
+H The National Stud Levende legenden in levenden lijve Er is enorm veel paardenpret te beleven in de Irish National Stud in Kildare.In deze stoeterij werden de winnaars van vijf klassiekers gefokt en je hoort er ook het bijzondere verhaal van kolonel William Walker.
+Dat het overblijfsel van de geestelijke nieuwe schepping tot het einde van de Eerste Wereldoorlog in 1918 behouden bleef en zij in het naoorlogse jaar 1919 nog steeds in het vlees op aarde waren, kwam als een wonderbaarlijke verrassing.
+Nog eentje: De Geest van God herkent u hieraan: iedere geest die belijdt dat Jezus Christus als mens gekomen is, komt van God (Johannes 4:2).De correcte versie is:
+Paulus bijvoorbeeld bad herhaaldelijk aangaande zijn „doorn in het vlees ” — mogelijk een fysiek probleem in verband met zijn gezichtsvermogen.
+China weet al jaren dat deze heropvoedingskampen de Europese Unie een doorn in het oog zijn, omdat ze beslist niet in overeenstemming zijn met de algemene internationale mensenrechten.
+Terwijl Hij de wil van God gehoorzaamde, kwam onze Heer naar deze aarde in de gedaante van een mens, werd gedoopt, offerde Zichzelf aan het Kruis voor ons en heeft ons daarbij de gave van de zaligheid gegeven.
+Johannes herkende Jezus en onderbrak de ceremoniën een ogenblik terwijl hij zijn bloedverwant begroette en vroeg: 'Maar waarom daal je in het water af om mij te begroeten?'
+De Koning zou niet wederom in het vlees in het aardse Sion verschijnen.
+(1942.4) 179:5.5 Ondanks de inspanning van de Meester om dit nieuwe sacrament van de gedachtenis op deze wijze in te stellen, hebben degenen die hem in de tussenliggende eeuwen hebben gevolgd, ervoor gezorgd dat zijn uitdrukkelijk verlangen doeltreffend is verijdeld, in de zin dat zijn eenvoudige geestelijke symboliek van die laatste avond in het vlees is gereduceerd tot nauwkeurige interpretaties en onderworpen aan de haast mathematische precisie van een vaste formule.
+Nadat Adam en Eva hadden gezondigd, door ongehoorzaam te zijn aan JEZUS, de heer GOD, het woord, zou de zonde van Adam voortaan in alle vlees zijn.8 Toen heeft GOD dierenoffers ingesteld, die symbool staan voor JEZUS CHRISTUS, het woord, En het Woord is vlees geworden, en heeft onder ons gewoond (Johannes 1:14).
+’ Verdrukking in het vlees ’
+Hij liet hen in het vlees en daarom waren zij nog steeds „van de Heer afwezig. ”
+Aangezien degenen die het Koninkrijk beërven, naar de hemel gaan, zijn al de sektarische fantasieën over Jezus en de „heiligen ” die in het vlees vanuit het aardse Jeruzalem of Frygië regeren en die zich aan de sensuele genoegens van het vlees overgeven, eenvoudig ongegrond.
+Mensen willen gewoon niet geloven dat Jezus feitelijk God in een menselijke gedaante was (Johannes 1:1,14; 10:30).
+De Bijbel vertelt ons duidelijk dat Jezus de vleesgeworden God was en dat Hij middels Zijn menswording als offer voor onze zonden kon fungeren.
+De apostel Paulus bad vergeefs om bevrijding van zijn „doorn in het vlees ”.
+Paulus heeft er niets op tegen in het vlees te blijven aangezien dat ’ voor u noodzakelijker is ’.
+"” We droegen “"de zaden van de Fyrisvellir"” op “"de bergen van de haviken"” heel Hakons leven lang; nu heeft de volksvijand “"de bloem van Fróðis ongelukkige slaven"” in “"het vlees van de moeder van de vijand der reuzinnen"” verborgen.
+Opdat zij, zelfs hoewel zij nog in het vlees op aarde zijn, onder de verheerlijkte Hogepriester dienst mogen verrichten, geeft Jehovah hun een nieuwe geboorte door zijn heilige geest, waardoor hij hen tot zijn geestelijke zonen maakt en machtigt priesterlijke taken te verrichten.
+Het feit van het Woord van God geschonken in het vlees en het fenomeen van de Zoon des Mensen onderworpen aan de wil van God, vormt een ervaringswerkelijkheid die het equivalent is van het goddelijke levensonderhoud.
+„ Met het oog op de noodzaak die wij hier — buiten het Paradijs van Eden — hebben ”, brengt het echter ’ verdrukking in het vlees ’ met zich.
+Die komst in het vlees belijden bedriegers niet.
+17:24 En Abraham was oud negen en negentig jaren, als hem het vlees zijner voorhuid besneden werd.
+Al deze krachten waren in zekere mate werkzaam toen Jezus in het vlees op aarde was en hij moest de sluwe strikken er van overwinnen, want anders zouden ze hem hebben overwonnen.
+Terwijl zij nog in het vlees op aarde zijn, vervullen zij ondertussen de „bediening ” die hun ten deel valt als ambassadoriale„ gezanten die optreden in de plaats van Christus ”, doordat zij zich bezighouden met „de bediening van het woord ” over Jehovah’s koninkrijk in handen van Christus.
+Desgewenst kunnen we een stereolithografie laten maken, zodat u uw product ook tastbaar kunt beoordelen voordat met de bouw van de matrijs wordt begonnen.
+Zeg tegen mijn man dat je weet wie me verkracht heeft. Dat het Zeus was, vermomd als Amphitryon.
+De oorspronkelijke fysieke vader en moeder die opvoedden en de onrijpe staat bevestigden worden geleidelijk vervangen door vadertje tijd die alles regelt middels overeenkomsten en schematisering en moeder literatuur die de vorm aanneemt van boeken van instructie die altijd beschikbaar zijn voor hulp en steun.
+Houd in gedachten dat zij rechtvaardig worden verklaard in het vlees opdat zij ervoor in aanmerking zouden kunnen komen opgenomen te worden in het huisgezin van Gods geestelijke zonen in de hemel.
+Veel theologen en valse priesters hebben geleerd, "Zij die in Jezus geloven zullen geleidelijk aan geheel geheiligd worden in het vlees en in de geest," en velen geloven hierin.
+Sinds de Vloed heeft God deze demonenengelen niet toegestaan zich te materialiseren in het vlees, zoals zij voordien hadden gedaan.
+Blossom: Ja… White Cloud heeft hier vaak over gesproken en hoe hij weer even terug 'is' in het vlees… zelfs maar voor dat eventjes.
+Jezus heeft Gods wil helemaal tot het einde van zijn dagen in het vlees op aarde ten uitvoer gebracht.
+Deze Zoon van God legde gehoorzaam zijn leven in het vlees af en werd in de geest opgewekt.
+Derhalve is het eeuwig waar dat jullie en ik broeders zijn in de hemelse staat, en te meer sinds wij broeders zijn geworden in het vlees van het leven op aarde. Houd dus op God te vrezen als een koning of hem te dienen als een meester: leer hem te eerbiedigen als de Schepper; eer hem als de Vader van je geest-jeugd; heb hem lief als een verdediger die zich over je ontfermt, en vereer hem uiteindelijk als de liefhebbende, alwijze Vader van je rijpere geestelijke besef en waardering.
+Indien hij in het vlees zou zijn opgewekt, zou er geen vlees zijn opgeofferd.
+Ik vind het ongelooflijk dat God in het vlees over het hele land mensen had genezen en overal onderwees, met hen sprak als Zoon van God zijnde en refereerde naar God de Vader als Zijn Vader, en dat de mensen desondanks zeiden dat Hij een dode profeet was die weer tot leven was gekomen, in plaats van Wie Hij zei dat hij was.
+Ieder die dat ontkent, heeft de geest van de antichrist, de vijand van Christus, waarvan wij weten dat hij komen zou, maar die nu al in de wereld aktief is.
+108.11 En de Heer zei: “Nu zal ik de geesten roepen van de goeden, die zijn van de generatie van het licht, en ik zal degenen die zijn geboren in de duisternis transformeren, die toen ze in het vlees waren niet werden gecompenseerd met de eer die passend is bij hun geloof.
+In het eerste naoorlogse jaar 1919 werd zo’n oproep tot hen gericht, nadat zij waren gaan beseffen dat Jehovah God hen met een uiterst belangrijk doel levend in het vlees op aarde had laten bestaan.
+Eva, geenszins het denkbeeld hebbend dat zij zou sterven, de geestenwereld zou betreden en meer zou weten dan wat zij ooit daarvoor in het stoffelijke paradijs van Eden had geweten, maar het denkbeeld hebbend dat zij met een toegenomen kennis en met een onafhankelijk zelfbeschikkingsrecht in het vlees verder zou leven, luisterde dus naar de Slang in plaats van naar de waarachtige God.
+Ze leek op iemand uit Jane Austen.
+(2016.7) 188:4.2 Jezus wenste het volle leven van een sterveling in het vlees op Urantia te leiden.
+Een telefonisch gesprek kan je oefenen,... maar in levende lijve kan je je echte ik niet verbergen.
+Daarop zei Jezus: 'Indien je mij wilt dienen, dien dan mijn broeders in het vlees zoals ik jullie gediend heb.
+Paulus verhaalt zijn eigen ervaring: “Daarom is mij, opdat ik mij niet te zeer zou verheffen, een doorn in het vlees gegeven, een engel des satans, om mij met vuisten te slaan, opdat ik mij niet te zeer zou verheffen.
+En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuidbesneden werd.
+En daar hij zijn „andere schapen ” pas na zijn wederkomst zou beginnen bijeen te vergaderen, kunnen wij inzien dat het avondmaal des Heren voor Jezus ’„ kleine kudde ” was bedoeld, voor de gemeente, „zijn lichaam, ” van 144.000 leden. — Joh.
+De dieprode wol die geweven is in de poort van de Tabernakel, verwijst naar het offer dat deze Koning der koningen gemaakt heeft toen Hij, nadat Hij naar deze aarde kwam in de gedaante van een mens en onze zonden op Zich had genomen met Zijn doopsel, gekruisigd werd en Zijn bloed aan het Kruis vergoot.
+Jezus deelde hier een beginsel mee en zette een profetie uiteen die bij zijn tweede komst moest worden vervuld, als zij die zijn discipelen beweren te zijn, nog in het vlees op aarde zouden leven.
+Eenvoudig gezegd, een gelovige kan inderdaad zelfmoord plegen, maar het is en blijft een duidelijke zonde. Paulus zegt in Fil. 1:23: “Ik verlang heen te gaan en met Christus te zijn, want dit is verreweg het beste; maar nog in het vlees te blijven is noodzakelijk voor u”.
+Het feit dat je hier levend voor me zit, vertelt me dat mijn zoon nog leeft. Waar is hij?
+De bijbel vertelt ons dat hij ’ ter dood is gebracht in het vlees ’ maar „levend gemaakt in de geest ”.
+Ten eerste was het nederig houden van Paulus het doel van de doorn in het vlees.
+1:16 niet langer als een dienaar, maar, in plaats van een dienstknecht, een zeer geliefde broeder, in het bijzonder voor mij: maar hoeveel zodat er meer aan u, beide in het vlees en in den Heere!
+Paulus schrijft dat in het vlees "geen goed woont", en hoe het vlees van nature in strijd is met gehoorzaamheid aan God (Romeinen 7:18-23).
+(1113.6) 101:6.17 Door zich het geloof van Jezus toe te eigenen, kan de sterfelijke mens reeds in de tijd de realiteiten van de eeuwigheid smaken. Jezus ontdekte in zijn menselijke ervaring de Finale Vader, en zijn broeders naar het vlees in het sterfelijke leven kunnen hem navolgen in deze ervaring van het ontdekken van de Vader.
+Jezus bedoelde niet dat zijn getrouwe apostelen in het vlees zouden blijven leven en nooit zouden sterven.
+Dit is op iedereen van toepassing die YAHUSHUA ha MASHIACH als GOD, HEER, REDDER, de enige Geboren Zoon van YAHUVEH hebben aanvaard, geboren in het vlees van een maagdelijke vrouw, en gaf zichzelf op voor een Heilig zondeoffer, die stierf en herrees op de 3de dag, en nu zit aan de rechterkant van IK, YAHUVEH. Al degenen die ernaar streven te gehoorzamen zijn gevuld met MIJN RUACH ha KODESH, Mijn HEILIGE GEEST in zekere mate.
+Maar de wet gaf geen voorziening aan het vlees voor zulke gehoorzaamheid.
+Aangezien degenen die tot het overblijfsel behoren leden van Gods universele organisatie zijn, raakt alles wat het overblijfsel van de bruid overkomt, die, hoewel nog steeds in het vlees, geestelijke zonen van God zijn, eveneens Gods vrouw, het hemelse Sion ofte wel de universele organisatie.
+Hij waarschuwde over valse profeten: ‘ Elke geïnspireerde uiting die Jezus Christus als in het vlees gekomen belijdt, spruit uit God voort, maar elke geïnspireerde uiting die Jezus niet belijdt, spruit niet uit God voort.
+Deze macht van de nationale ambtenaren die noch controleerbaar zijn door nationale parlementen noch door het Europees Parlement, is een doorn in het oog van de democratie en wij zijn verheugd met deze eerste stap.
+Hoewel degenen die de kruisdood moesten ondergaan gewoonlijk zelfs wel twee of drie dagen in leven bleven, maakte de overweldigende emotionele foltering en het intense geestelijke lijden van Jezus in iets minder dan vijf en een half uur een einde aan zijn leven als sterveling in het vlees.
+13:18 Maar als er een zweer in het vlees en de huid heeft gezeten, en het is genezen,
+Maar, het Ware Zielzelf zal zichzelf KENNEN … in het fysieke … vanuit het fysieke … en daardoor zal er enkel nog een verlangen zijn om de meest Liefdevolle gedachten, woorden en daden 'uit te voeren'.
+Dat wil zeggen: de kinderen in het vlees [op natuurlijke wijze voortgebracht] zijn niet werkelijk de kinderen van God, maar de kinderen der belofte worden als het zaad gerekend ”, net zoals Isaäk een kind van Gods belofte was, daar hij werd geboren toen Abraham en Sara „zo goed als dood ” waren wat het voortbrengen van een zoon betrof.
+Bij zijn dood in het vlees wordt hem door „de handen van de levende God ” de eeuwige vernietiging toegebracht.
+Als uw „doorn in het vlees ” een verdrietige omstandigheid in het leven betreft, zoals de dood van een geliefde, sla dan acht op de bijbelse aansporing:„ Werp uw last op Jehóvah, en hijzelf zal u schragen.
+Maar nu God zich geopenbaard heeft in het vlees en onder de mensen heeft gewoond, kan ik mij het zichtbare van God voorstellen.
+Jezus betwijfelde geen ogenblik ook maar in het minst of hij wel overeenkomstig de wil van de Vader geleefd had, hij betwijfelde nu ook geen moment dat hij zijn leven in het vlees neerlegde overeenkomstig de wil van zijn Vader.
+Dat sommigen [van de heiligen] gedurende ten minste een deel van dit benauwde tijdperk nog in het vleesch zullen zijn, schijnt mogelijk, maar hun toestand zal toch verschillen van dien der anderen, niet zoozeer omdat zij op wondervolle wijze behouden zijn ([ofschoon] het duidelijk beloofd is dat hun water en hun brood gewis zullen zijn), maar omdat zij, onderwezen door Gods Woord, niet dezelfde ongerustheid en hopelooze angst zullen kennen die de gansche wereld vervullen zal....
+Toen Jezus in het vlees op aarde was, was hij een getuige van Jehovah God, en dat waren zijn joodse discipelen eveneens.
+FILOGNOSTISCHE VERTALING Ik mag dan bovenzinnelijk zijn, ongeboren van aard, een onvergankelijke ziel die de Heer over allen is, maar niettemin verschijn ik, vanuit mijn toppositie, in den vleze als een verhulling van mezelf.(Sanskriet & traditie)
+“Of je kunt zeggen dat het afgelopen is met hoe het vroeger was”, vervolgt Schmechel. En wat leidt tot het feit dat ik klaar ben met hoe het eerder gegaan is? Als ik een strijder word. Als ik me wapen met de gedachte dat ik in het vlees moet lijden om vooruit te komen. Om overwinningsvreugde te krijgen.
+En Ismael, zijn zoon, was dertien jaren oud, als hem het vlees zijner voorhuidbesneden werd.
+We kijken vaak naar onszelf terwijl we lichamen uit het puin trekken, alsof het al niet genoeg was om het allemaal met eigen ogen te hebben gezien.
+11 Daarom gedenkt, dat gij, die eertijds heidenen waart in het vlees, en die voorhuid genaamd werdt van degenen, die genaamd zijn besnijdenis in het vlees, die met handen geschiedt;
+Mijn leven hier op aarde leef ik in het geloof in de Zoon van God, die mij heeft liefgehad en zich voor mij heeft prijsgegeven. (Galaten 2:20)
+Daarom moeten we allen in Jezus Christus als onze Verlosser geloven, in de Heer die naar deze aarde kwam in de gedaante van een mens, die met Zijn doopsel al onze zonden op Zich nam, die deze zonden van de wereld naar het Kruis droeg en alle veroordeling van de zonden met Zijn kruisiging droeg en die van de dood herrees en nu leeft.
+Want ik word van deze twee gedrongen, hebbende begeerte, om ontbonden te worden en met Christus te zijn; want dat is zeer verre het beste.Maar in het vlees te blijven, is nodiger om uwentwil.
+De Zoon van God daalde naar deze wereld af in de gedaante van een mens en werd gedoopt om alle zonden van de wereld door Johannes de Doper weg te nemen. Daarna bloedde Hij aan het Kruis om de mensheid voor altijd van al hun zonden te redden (Leviticus 16:6-22, Mattheus 3:13-17, Johannes 1:29, Hebreën 9:12, 10:1-18).
+De duivel, het kind der leugens... de zoon der duisternis leeft onder ons... vermomd in de gedaante van een mens.
+Sommigen zouden zich niettemin kunnen afvragen: Als Jezus als een geest werd opgewekt, gelijk de engelen, hoe kan het dan dat hij na zijn opstanding in het vlees verscheen?
+Nu ik 't zo in werkelijkheid zie... is 't niet zo'n beloning als ik dacht dat 't zou zijn.
+Dit is de reden waarom Jezus als een zondeoffer in de gedaante van een mens kwam en gedoopt werd door Johannes.
+En het doel van onze Heer, die de Koning der koningen was en de Heer van de Hemel, om in de gedaante van een mens naar deze aarde te komen, was om de waarheid van de blauwe, paarse en dieprode wol en het getweernde linnen te vervullen.
+Het gebruik van de dollar en de gewoonte om de waarde van iets uit te drukken in dollar is een doorn in het oog van de regering Poetin.
+Hij zal geen opstanding krijgen, zelfs niet in het vlees op aarde. — Joh. 6: 70, 71; 17: 12, NW.
+In ongeveer het jaar A.D. 107, met behulp van eucharistische leer van de Kerk van de menswording tegen de Docetisten verdedigen, die Jezus ontkende werkelijk was gekomen in het vlees, Ignatius schreef:
+Want later, toen de kerk te Jeruzalem was gesticht, gaf hij inderdaad gehoor aan het bevel van de Meester ofschoon het toen te laat was om lid te kunnen worden van de zeventig, en hij werd penningmeester van de kerk te Jeruzalem waarvan Jakobus, de broer van Jezus, het hoofd was.
+Zij moesten vertrouwen stellen in Jezus Christus, niet in het vlees of in de besnijdenis, zoals sommigen deden.
+Mijn leven hier op aarde leef ik in het geloof in de Zoon van God, die mij heeft liefgehad en zich voor mij heeft prijsgegeven.Už nežijem ja, ale vo mne žije Kristus.
+Hier beneden op de aarde wordt het deze demonische engelen niet meer toegestaan zich in het vlees te materialiseren zoals zij dit vóór de wereldomvattende Vloed hadden gedaan.
+„ Als Christus nu in het vlees zou wederkomen, dan zouden de mensen hem waarschijnlijk weer doden ”, zei een huisbewoner tegen een van Jehovah’s Getuigen.
+“Zo iemand laat zich gedurende de rest van zijn leven niet meer leiden door menselijke verlangens maar door Gods wil” (1 Petrus 4:2; zie ook Kolossenzen 4:5, Jakobus 4:14 en 1 Petrus 1:14-22).
+Ik ben hier onder jullie in het vlees om deze beide ideeën duidelijk te maken in mijn leven en onderricht.' (1590.6) 141:4.3 Jezus trachtte ook het denken van zijn apostelen te bevrijden van de idee dat zij dieren moesten offeren als een religieuze verplichting.
+Slechts een paar maal konden de omstanders enkele woorden opvangen, zoals: ‘Ik weet dat de Heer zijn gezalfde zal redden,’ ‘Uw hand zal al mijn vijanden weten te vinden,’ en ‘Mijn God, mijn God, waarom hebt gij mij verlaten?’ Jezus betwijfelde geen ogenblik ook maar in het minst of hij wel overeenkomstig de wil van de Vader geleefd had, hij betwijfelde nu ook geen moment dat hij zijn leven in het vlees neerlegde overeenkomstig de wil van zijn Vader.
+Tijdens Jezus ’ onzichtbare tegenwoordigheid bevindt zich slechts een klein overblijfsel van zijn 144.000 geestelijke broeders nog in het vlees op aarde.
+Het is gewoon dat vaak over u en Batman gelezen hebt in de pers de ervaring van daadwerkelijk u in eigen persoon te omtmoeten maak me zwak.
+Ja kinderen van God, dat kan u niet anders zijn, de bruiloftskinderen kunnen niet blij zijn, maar moeten treuren, wanneer de bruidegom niet bij hen is, dat is het zuiver blijk van uw genade staat, en een klaar teken, dat de Heere u wel eens goed geweest is, dat gij wel eens iets van die zalige vreugde in God door Christus gesmaakt hebt; want anders zou u het gemis en de ontbering ervan zo smartelijk niet vallen en u zo niet ontrusten.

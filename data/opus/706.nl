@@ -1,500 +1,500 @@
-in het Nederlands „scheerwol”
-- in het Nederlands: biologisch,
-In het Nederlands GATT-certificaat — Voedselhulp
-TitanPoker.com nu beschikbaar in het Nederlands
-In het Nederlands Verordening (EU) nr. 90/2011
-in het Nederlands Verordening (EG) nr. 1204/2004
-in het Nederlands Verordening (EG) nr. 1556/2006
-in het Nederlands Verordening (EG) nr. 1399/2007
-In het Nederlands; boventiteld in het Frans
-Rapport over de vervoersprognoses (2007)
-Dit boek is Nederlandstalig.
-Hij spreekt vloeiend Nederlands, Frans en Engels
-die zich wenst uit te drukken in het nederlands.
-Vlotte service in Nederlands, Engels en Frans.
-spreektaal Frans . boventiteling Nederlands
-Onze verontschuldigingen, dit bericht is alleen beschikbaar in Amerikaans Engels.
-Dinsdag, kan ik je in het Nederlands beschrijven.
-De Groene Amsterdammer, 7 november 2013
-in het Nederlands „Baby beef” (Verordening (EG) nr 2008/2006)
-Deze tekst is slechts in het Engels beschikbaar
-De DVD is op dit moment alleen nog in het Hollands verkrijgbaar.
-Als die Nederlandse nou eens de pijp uitging.
-Ruimtelijke herinrichting Noordzee - Ecofys
-‘Schokkende’ bevindingen van segregatie in Nederlands onderwijs
-Burgemeester Amy opent de Web Expo in het Nederlands.
-Lees hier het artikel op p.
-Meer informatie over locatie en bereikbaarheid.
-'Schokkende' bevindingen van segregatie in Nederlands onderwijs
-(Dit artikel is ook beschikbaar in het Engels: link)
-- Dat is Nederlands grondgebied.
-De kosten zijn aangegeven in euro’s en niet in Nederlandse guldens.
-De Amerikaanse boormossel komt algemeen voor in de Nederlandse kustwateren.
-Amsterdam Centraal Dit is de oude website.
-Introducties en samenvattingen bij Preken die Spreken in Nederlands: Titel:
-DNV/CNV/MHP, Amsterdam. 1990
-Routebeschrijvingen en kaarten (in nederlands, Italiaans of engels)
-in het Nederlands overeenkomstig Verordening (EG) nr. 220/2005 ingediende certificaataanvraag
-Nederlands overeenkomstig Verordening (EG) nr. 1981/2005 ingediende certificaataanvraag
-Zie de volledige recensie in het Algemeen Dagblad.
-De MP3 in het Nederlands auteursrecht
-Hij stond er op volgend commentaar aan het gedicht toe te voegen:
-Beiden series verschijnen meestal in Nederlands en Frans.
-Hij schreef het boek Gods kinderen worden vergeten.
-Dit boek is ook in de boekhandel te bestellen: ISBN: 90-70986-96-5
-Luister naar het fragment op de website van BNR
-Cesar Cascabel juli 2006 60 pagina's Inhoudsopgave 36.
-Ome Laurus Gratis stem voor uw navigatiesysteem in het Nederlands-Nederlands!
-Hongaars Fotoalbum verschijnt in het Nederlands, Engels en Hongaars.
-Moties, Kamervragen en debat in de Tweede Kamer over Dalits: OVERZICHT
-Deze pagina is ook beschikbaar in het Engels en in het Duits.
-Voor meer informatie kunt u terecht op de website van Juridisch PAO.
-Rondleidingen zijn mogelijk in de talen Nederlands, Duits, Engels en Frans.
-Inmiddels maken vele van deze foto's deel uit van Nederlandse collecties.
-Lees het volledige artikel op de website PZC.nl
-Het document is beschikbaar in het Nederlands, Engels, Duits en Frans.
-Deze trainingen zijn goedkoop en toegankelijk en worden in het Nederlands gegeven.
-Nederlands Douanerecht verminderd met 25 % (Verordening (EG) nr. 196/97)
-Jack is verkrijgbaar in het nederlands, engels, frans, duits, italiaans en pools.
-Bovendien worden aardrijkskunde en kunstgeschiedenis volledig in het Nederlands onderwezen.
-Nederlands Verlaging van het GDT overeenkomstig Verordening (EG) nr. 616/2007.
-Verkrijgbaar in het Nederlands en Engels. Isbn voor de Nederlandse versie: 90-450-1542-0
-Universiteit van Amsterdam, Master Privaatrecht: Commerciële Rechtspraktijk LLM (2016)
-Let op: deze webinar zal in het Nederlands zijn.Liever in het Engels?
-Nederlands Boterconcentraat — Verordening (EG) nr. 1898/2005 — Hoofdstuk III
-Het juiste spoor verschijnt in een Nederlandse en een Franse editie.
-In het Nederlands en Frans; boventiteld in het Nederlands en Frans
-Een vergelijking van de schadelijkheid van drugs’, RIVM, 2009.
-(ook beschikbaar in het Engels [English] en het Frans [ Français ])
-Boeren voor Natuur: De ultieme natuurinclusieve landbouw?: Lessen van vier pilotbedrijven en relevantie voor beleid.
-Meer informatie over de aanbestedingsprocedure is beschikbaar via deze link.
-In het Nederlands Vrijgesteld van douanerecht (artikel 4 van Verordening (EG) nr. 2402/96)
-Het zou goed zijn om daar meer over te praten in het Nederlandse onderwijs.
-Artikel in Vrij Nederland met links naar de besproken weblogs (met dank aan Globalinfo).
-MP3, 7 Mb, 14 minuten, opgenomen op 23 mei 2008.
-Na de filmvoorstelling volgde een boeiend debat in het Nederlands en het Spaans.
-Meer informatie over het referendum Nieuws uit Amsterdam ontvangen?
-59 duurder is dan in de buurlanden en dat er bij Nederlandse interconnectoren een congestieprobleem was (
-Met een wijsvinger wijzen is in de Nederlandse cultuur ongepast.
-De info over het vasten is ook in het Nederlands beschikbaar.
-Brussel 27 aug. 1955 • Belgisch prozaschrijver in het Nederlands en het Engels
-In 1884 werd Jan ten Brink hoogleraar in de Nederlandse letterkunde aan de Rijksuniversiteit in Leiden.
-Wij hebben een capaciteit om in het Nederlands, Engels, Frans, en Duits te communiceren.
-Amateurfotografen vormden in die tijd een actieve groep in de Nederlandse fotografie.
-Alleen als het echt nodig is, zal de docent uitleg in het Nederlands of Engels geven.
-Vooral in de Hollandse kassencomplexen werd de T4 ingezet voor frees-, spit- en transportwerk.
-Voor meer informatie zie de website van de Hogeschool Leiden.
-De Rode Jeugd was een communistische beweging in Nederland.
-In het spoor van Keizer Karel, (NL)
-Naar het middelpunt der Aarde december 1994 52 pagina's Inhoudsopgave 1.
-Beide boeken zijn zowel in het Engels als in het Nederlands gepubliceerd door Vrije Zendingshulp.
-Een impressie van ons repertoire, dat veelzijdigheid bied: zowel in Nederlandstalig alsmede
-Helaas werd zijn rapport alleen in het Nederlands gepubliceerd en kreeg weinig bekendheid.
-Persbericht KNBSB 28 april 2010: Nederlandse softbalteams beginnen aan oefenreeks
-Een 400 pagina's tellend nederlandstalig boek met hardcover van Theodor Mebs en Wolfgang Scherzinger.
-==Biografie=====Familie===Couperus was een lid van de Nederlandse patriciaatsfamilie Couperus.
-De Atlantic Dawn, 7 miljoen kg bevroren vis per reis, in Nederlandse handen
-Wijziging van de Nederlandse strafwetgeving kan alleen in overeenstemming met deze internationale wetgevers plaatsvinden.
-De masterclass DVD over de 1-buis versterker is nu beschikbaar.
-Teijin investeert in Nederlandse onderneming Elitac ter uitbreiding van Total Safety Solutions
-Verkopen Nederlandse supermarkten groenten en fruit uit illegaal bezette gebieden in Palestina?
-In het Nederlands gebruiken we de infinitief als we een werkwoord als zelfstandig naamwoord laten functioneren.
-Het evenement vond opnieuw plaats in het RAI Congrescentrum in hoofdstad Amsterdam.
-28 januari 2002: de muntstukken en bankbiljetten in gulden zijn niet langer een wettig betaalmiddel.
-Het was voor mij een groot genoegen Nederlands te spreken bij deze gelegenheid.
-Joye Bulletin, in het Nederlands, is een kwartaallijkse uitgave van de + Joyce Computer Club.
-De app is beschikbaar in de talen Nederlands, Engels, Frans, Duits, Spaans, Italiaans, Japans, Russisch en Mandarijn.
-NRC Next Hier kun je lezen wat de NRC Next schreef over ons aquaponics project.
-Rogier van den Heuvel leidt client team Petrobras in Nederlands-Caribische aspecten van enquêteprocedure
-Samenwerking met musea Studio Kranen/Gille is inmiddels een gevestigde naam in de ontwerpwereld.
-Wanneer dit gat min of meer komvormig is, heet het een 'wiel'.
-En met succes,ondertussen heeft ze gepubliceerd in NRC en AD.
-Engels Rabobank : Koos Moerenhout & Stef Clement tijdens de ploegenpresentatie van de Rabobank
-VNCI - Vereniging van de Nederlandse Chemische Industrie (ook in het Engels)
-Hij fotografeerde in een dynamische stijl die in de Nederlandse fotografie nog niet eerder gezien was.
-Dus dinsdag, kan ik wat ik nu zeg, tegen jou zeggen in het Nederlands.
-Er worden geleide groepsbezoeken georganiseerd voor groepen van 15 tot maximum 50 personen, dit steeds op afspraak.
-Op Nederlandstalig gebied is Rubberen Robbie natuurlijk onsterfelijk geworden met hun bewerkingen van Nederlandstalige evergreens.
-Procedure voor het aanvragen van een wetenschappelijk advies over een sectorgids (PDF)
-Doel is om slimme industriële robots binnen Nederlandse bedrijven te krijgen.
-Voor de aanvraag verzoeken we u een publiekssamenvatting van uw aanvraag (bij voorkeur) in het Nederlands op te stellen.
-Daan Heerma van Voss schreef een tekst over zijn verblijf in Brussel.
-Op deze kaart staat geschreven: "Op deze kaart ziet U de Nederlandsche nederzetting".
-Natuur en biodiversiteit in de biologische markt: Verkenning van de mogelijkheden om natuur en biodiversiteit in de biologische markt te verwaarden.
-Als je enige interesse hebt in de Nederlandse death metal geschiedenis dan hoort deze schijf in je collectie thuis.
-Verslagen van de lessen (2009-2012) zijn te vinden op mijn nederlandse kunstblog Beeld en Wereld.
-Het is ook beschikbaar in het Engels. © Pateo.nl : Deze pagina is voor het laatst bijgewerkt op 2018/10/09.
-Dan zullen we vrij snel de doorwerking ervan gaan zien in Nederlandse investeringen, handel en diplomatie.
-Download hier het eindrapport van deze Commissie Kwaliteit, rol en belang van het NIDI.
-Het boek is toegankelijk geschreven voor een grote doelgroep, van sponsoren tot belangstellenden.
-Het is het zuivere gebouw welk bootste stad hal "tapeind huis" in Dutch Gouda City na.
-Het gesprek wordt in goede banen geleid door AB's artistiek directeur en jazzliefhebber Kurt Overbergh.
-Ook bij deze CD hoort een dansboek, eveneens verkrijgbaar in het Nederlands, Engels of Duits.
-Cornelissen (PPE). - Voorzitter, in het Nederlands ken nen wij een uitdrukking: nu breekt me de klomp.
-Het boek is verkrijgbaar in een Nederlandse, Engelse, Franse en Duitse editie en wordt wereldwijd gedistribueerd.
-Hier is een persbericht van de KNBSB te vinden over het Future Stars Tournament
-Gerelateerd [link] De gratis online Ennea-Gematria-Calculator Het e-boek is ook leverbaar in het Engels.
-Alysa schrijft de teksten (ook in dialect!) en Jimmy speelt alle muzikale partijen in.
-Klik ook hier voor het vooraankondigingd artikel in de NRC door Jochem Valkenburg, 12 maart 2007
-Het hoofd van dit geslacht voert de Nederlandse en Belgische titel "prins van Waterloo".
-Afmeting:23,5 x 20 x 4,3 cm, 528 pagina's, paperback Dit boek is Nederlandstalig.
-Mest van boven: Kunnen maai- meststoffen alleen voldoende stikstof leveren en is dat rendabel?Ekoland. mei, p.
-— Maandblad: • Contacto: Portugees maandblad.
-Zanders is de verantwoordelijke en houdt zich aan de Wet bescherming persoonsgegevens (Wbp).
-In de reeks speciale activiteiten op zondag, geeft Bas Heijne een lezing.
-Kees Kousemaker over strips uit de jaren \'50 in Wordt Vervolgd in 1985.
-Na dat bezoek zijn we onze consumptiebon gaan inleveren bij de Parasol, we blijven natuurlijk wel Hollanders.
-Deze folder verschijnt regelmatig en is gratis verkrijgbaar in het Nederlands, Frans, Duits en Engels.
-Kees Kousemaker over strips uit de jaren \'50 in Wordt Vervolgd in 1985. Stripboeken evenementen
-In vier verslagen die eerst in het IMP-bridge magazine verschijnen berichten wij over deze matches.
-11 oktober 2007 onder meer de pagina over het ontstaan van de aarde gewijzigd.
-Het eerste blad zette de traditie van Het Vrije Woord als verzetsblad in het Nederlands voort.
-Structureel karakterHet KCO verzorgt jaarlijks negentig concerten in het Amsterdamse Concertgebouw en de belangrijkste Nederlandse steden.
-Voorzitter, minister, op Nederlandse scholen heeft vanochtend het nationale voorleesontbijt plaatsgevonden.
-Voorzitter, het lijkt mij niet goed als wij hier een Belgicisme in het Nederlands gaan invoeren.
-Het eerste hiervan, 'Kabaal om een varkensleren koffer', verscheen in albumvorm in het Nederlands, Duits en Deens bij uitgeverij Arboris.
-De man zei dat Ophelia in 't Hollandsch zooveel beduidde als Flora die in vroeger tyd beschermheilige van rozen en vergeetmenietjes geweest was.
-Deze website, vanaf nu in het Nederlands en Engels, geeft informatie over het castreren van mannelijke varkens.
-Opmerkelijk is dat voor iedere taal andere gedichten zijn gekozen. Het eerst opgenomen audiobook was het Nederlandstalige, met de stem van dichter Benno Barnard.
-Het stimuleren van gezonde en zieke hersenen - events - Maastricht University Deze website maakt gebruik van cookies.
-Het Verbond voor Nationaal Herstel (VNH) was een autoritaire, rechtse Nederlandse partij die pleitte voor een krachtig gezag en zich keerde tegen partijpolitiek.
-De bachelor kan wetenschappelijke en journalistieke teksten in het Nederlands, Frans en Engels lezen, begrijpen en analyseren.12.
-Deze Wholly Science-calculator, ontwikkeld door , is ook beschikbaar in het Engels. © Pateo.nl : Deze pagina is voor het laatst bijgewerkt op 2017/10/31.
-U kunt bij hen de volgende rondleidingen boeken: Rondleiding bij een hoofdtentoonstelling in het Nederlands, Engels of Duits.
-Eerst trok ze de wereld rond met theatergezelschappen, later werd ze de eerste zwarte tv-persoonlijkheid in Vlaanderen.
-Deze Wholly Science-methode is ook beschikbaar in het Engels. © Pateo.nl : Deze pagina is voor het laatst bijgewerkt op 2017/01/07.
-In de Nederlandse clubs, vooral de grote, zijn ze erg kritisch en dat neemt het plezier een beetje weg.
-Stout geldt als de meest productieve Drentse schrijver van dit moment, hoewel hij ook, en in toenemende mate, in het Nederlands schrijft.
-Hospers-Brands, A.J.T.M. 2016. Mest van boven: Kunnen maai- meststoffen alleen voldoende stikstof leveren en is dat rendabel?
-zondag 15 maart 2009, 15 uur Rondleiding door de tentoonstelling o.l.v. kunsthistoricus Jaring Durst Britt.
-De restanten van deze door de Spanjaarden in de zeventiende eeuw gebouwde vesting liggen ondergronds in het Nederlands-Belgische grensgebied.
-Omdat ik zowel in het Nederlands als in het Engels schrijf laat ik beide talen vaak met elkaar interacteren.
-Site Omschrijving Informatie over deze jongste studenten roeivereniging. Onder andere informatie over de vereniging, haar commissies, wedstrijden, evenementen en het roeien.
-Meer informatie Op de website van Smart Flanders vind je meer details over het driejarig programma en over het pilootproject.
-Concentraties: Commissie verleent toestemming voor verwerving gezamenlijke zeggenschap door Belgisch overslagbedrijf Sea-Invest over Nederlands overslagbedrijf EMO-EKOM
-De Nederlandsche Fascisten Unie (NFU) was gedurende 1933 een Nederlandse fascistische politieke partij.
-Europese Literatuurprijs Jaarlijkse prijs voor de beste roman die in het voorgaande jaar vanuit een Europese taal in het Nederlands werd vertaald.
-Jitske Dankert heeft een verslag geschreven in haar website met foto’s. Klik hier om het te lezen.
-De Commissie heeft besloten de steunmaatregelen welke vervat zijn in de Nederlandse wetgeving waarbij een energieheffing voor kleinschalige energieverbruikers wordt ingevoerd, goed te keuren.
-Niemand raakt het aan tot we in Dutch Harbor zijn.
-Schakelaars, sensoren en detectoren zijn zeer eenvoudig aan te sluiten op dit model.Deze pagina is ook beschikbaar in het Engels en in het Duits.
-De Opiumwet (Opw) is een Nederlandse wet uit 1919, die sindsdien vele malen is gewijzigd.
-Zeeklitten komen wereldwijd voor tot op wel 250 meter diepte en zijn een algemene soort in Nederlandse wateren.
-22-12-2010 - Bijdrage school - NTC De Eekhoorn is de school voor onderwijs in Nederlandse Taal & Cultuur in Texas.
-Werkt voor Pereira sinds: januari 2011 Studie-achtergrond: fiscale economie en bachelor Nederlands recht, Erasmus Universiteit Rotterdam.
-Dit rapport presenteert enkele feiten over leraren en andere leer krachten in het Nederlandse beroepsonderwijs, anno 1979/1980.
-Tekst: Anneke de Bundel – Beeld: Nicole Franken Dit verhaal is gepubliceerd in De Telegraaf.
-Het is bewerkt door de EG-vertegenwoordiging in België en gepubliceerd zowel in het Nederlands als in het Frans. Contact: De heer Willy Helin. Meer
-Geschiedenis en beelden van lijn 25. Nieuws over lijn 25. Kaart met GVB-lijnen. Afbeelding: Victorieplein, 1962.
-Wilhelmina verklaart, dat de jacht op mensen en de hulp van Nederlandse nazibendes ongehoord, misdadig en ongekend is in de Nederlandse geschiedenis.
-De middeleeuwse handschriften in het bezit van de Universiteitsbibliotheek Utrecht zijn tevens opgenomen in de website Medieval Manuscripts in Dutch Collections (MMDC).
-In het Nederlands bestaat daar niet echt een goed woord voor. Het Engelse drama queen is een optie.
-De investeerdersgroep heeft een sterk netwerk in de Nederlandse industrie, met name waar Interline haar klanten vindt.
-Het jaar 2012 is al aardig op weg, maar de vertalers van Global Voices in het Nederlands kijken nog even terug op 2011.
-Margaretha Geertruida Zelle – zoals Mata Hari's echte naam luidde – is een van de meest iconische vrouwen in de Nederlandse geschiedenis.
-We zoeken iemand die verantwoordelijk en gemotiveerd is en vloeiend Nederlands en Engels spreekt. De diensten zijn van 17:00 tot 0:00.
-Klik op onderstaande afbeelding om naar de online versie van het artikel te gaan.Wij wensen u veel leesplezier!This entry was posted in Geen onderdeel van een categorie.
-=== Save the males ===In juni 2007 werden er Kamervragen gesteld door de Partij voor de Dieren naar aanleiding van een project van TINKEBELL.
-De introductie zal in het Engels worden gegeven, de discussie achteraf zal plaatsvinden in het Nederlands en/of Engels, afhankelijk van het publiek.
-Advies, MEB, Publieke consultatie, Voorwaarden, Aanbevelingen, Monitoring, Jaarlijks uitvoeringsverslag, Bijkomende informatie, Veiligheidsstudie IMDC, Veiligheidsstudie MARIN, Aanvullende studies.
-45 jaar gelden werd in een bovenzaal van Felix Meritis in Amsterdam het Shaffy Theater opgericht.
-Wijsenbeek (ELDR). - Voorzitter, „slim" in het Nederlands betekent in het Engels clever.Slim in het Engels be tekent in het Nederlands „dun".
-Het ligt wel deugdelijk vast en is lekvrij.Het interieur is opvallend netjes en ruim voor een jacht van 34 voet.
-iAmsterdam card Houders van een geldige iAmsterdam card krijgen 25% korting op voorstellingen in Nationale Opera & Ballet.
-Ukkie is ironisch genoeg een monsterlijke raket van 3,6 meter lang en heeft een diameter van 300mm.
-Deze Gematria-calculator, ontwikkeld door Johan Oldenkamp, is ook beschikbaar in het Engels. © Pateo.nl : Deze pagina is voor het laatst bijgewerkt op 2017/11/01.
-Een exemplaar van je masterproef Een journalistiek artikel (max 1000 woorden), in het Nederlands voor Vlaamse studenten, in het Engels voor internationale studenten.
-Sommigen van hen konden de Nederlandse taal spreken en schrijven en werden Rangakusha - letterlijk: Holland-deskundigen - genoemd.
-Hiervoor zijn per 1 juli 2003 in het Arbeidsomstandighedenbesluit (behorende bij de Arbowet), nadere regels (Stb.2003, 268) opgenomen ten aanzien van de inventarisatie van explosierisico's.
-Daniels, L. 2012. Jaarverslag 2011 Louis Bolk Instituut: Gezond vanuit de grond. Louis Bolk Instituut, Driebergen. 16 p.
-Het tarief dekt de kosten van de transportdienst.Er zijn twee tarieven voor transport:het transport-onafhankelijke verbruikerstarief (TOVT) dekt de kosten die geen direct verband houden met de transport van elektriciteit.
-In dat kader is onderzoek naar de bouwgeschiedenis van het bouwwerk uitgevoerd, wat een gedetailleerd rapport heeft opgeleverd.
-Landbouw, natuur en de rol van boer en overheid - een interview met Geert de Snoo. Ekoland. 9-2011, p. 12-13.
-Op de website van ABP vind je meer informatie over een mogelijke uitkering/aanvulling van ABP bij volledige/gedeeltelijke arbeidsongeschiktheid.
-Hendrik van Veldeke schreef een nieuwe vita van Sint-Servaas, een der oudste werken in de Nederlandse literatuur.
-Klik voor korte videoreportage van AT5 over het project op de site van het Amsterdams Fonds voor de Kunst
-Informatie is alleen in het Nederlands beschikbaar, je kan niet ter plekke een fiets huren zonder je eerst te hebben aangemeld en de fietsen hebben geen vering en versnellingen.
-* In 1634 bevond Sems zich in Nederlands Brazilië, waar hij als ingenieur belast was met de aanleg van fortificaties van veroverde steden.
-Bredero (1585-1618) - Elektronische edities van werken van Bredero (Project Laurens Janszoon Coster)* Nieuwe gedichten van Bredero en Starter* Leidsekluchtencompagnie.nl==Referenties==
-In Nederlandse ziekenhuizen is het totale gebruik in 2015 stabiel gebleven, in tegenstelling tot een stijging van antibioticagebruik in het jaar ervoor.
-Campina blijft koploper in Nederlandse supermarkten - FrieslandCampina werken bij Contact Log in English Nieuws Onze organisatie Innovatie Duurzaamheid Onze merken Kwaliteit & veiligheid
-Uniform-Agri is onbetwist marktleider in de Nederlandse melkveehouderij van management software met duizenden gebruikers. Uniform-Agri kenmerkt zich door: "een boerenhart en ICT-verstand".
-Hoe kan voeding een bijdrage leveren om een optimale sportprestatie te bekomen en de vermoeidheid tijdens trainingen en wedstrijden uit te stellen, Huldenbergse sportclubs - oktober 2007
-11 Een overzicht van de aantallen kiesgerechtigden per gemeenten bij de gemeenteraadsverkiezingen van 2012 in Brussel en de Rand.
-Dit boek is niet verkrijgbaar in het Nederlands. De Engelstalige uitgave vindt u onder artikelnummer 65212000 op deze bladzijde.
-Artikel 'Ik wil politie nu' in UK 02-06-2014 Hoe kun je pesten op scholen zoveel mogelijk terugdringen?
-Deze discussie laat uitkomen dat wetenschappers het er ondanks de onenigheden over de voorkeursweergave van Gods naam in het Nederlands over eens zijn dat God inderdaad een persoonlijke naam heeft.
-Als protestante organist spelen in een katholieke kerk is toch wel een belevenis! Gelukkig was de liturgie eenvoudig, in het nederlands en snel onder de knie.
-Zijn werk is verschenen in Nederlandse en internationale tijdschriften, waaronder SEW, German Law Journal, European Constitutional Law Review en Common Market Law Review.
-Aan de bovenkant van de munt ziet men in het Nederlands en het Frans de maand Mei (Mei - Mai) met daarnaast het jaartal 1968.
-Twee alfabetische registers aan het begin vermelden de plantennamen, het eerste register in het Nederlands en het tweede in het Latijn.
-Het Signaal van Botrange (Frans: "Signal de Botrange") in de Hoge Venen is met 694 meter boven TAW het hoogste punt van België.
-Een andere activiteit van Ubo Pakes waarbij hij scholen en kinderen in de Filippijnen stimuleert hun school af te maken door uit Nederland steun in goederen en geld te verzamelen en te verzenden.
-E-mailformulier Sonja Peters naam* e-mail* kruis dit aan, indien u op de hoogte gehouden wilt worden via mail tekstveld * verplicht
-Bij aanneming daarentegen is de aannemer aansprakelijk als het werk afwijkingen of gebreken vertoont behalve als de opdrachtgever het werk heeft geaccepteerd terwijl de afwijking of de gebreken hem bekend of zichtbaar waren; maar de opdrachtgever moet wil hij zich op die aansprakelijkheid kunnen beroepen, op straffe van verlies van rechten, binnen zestig dagen het gebrek aan de aannemer melden, en zijn rechtsvordering verjaart twee jaar na oplevering (art 1667 Burgerlijk Wetboek).
-Ze is een echt schatje. Bij deze openen we ook meteen het nieuwe deeltje van onze website dat we wijden aan Nikita en aan de Engelse Cocker Spaniel in het algemeen.
-Een gratis boekje met tochten verschijnt binnenkort en zal verkrijgbaar zijn op het CS en bij de AKO.
-Binnen het Nederlandse beroepsonderwijs maken leerlingen op z'n vroegst op 14-jarige leeftijd een keuze voor een beroep of beroepssector.
-Ik veronderstel dat men nu toch reeds weet dat het Frans mijn moedertaal
-Lees meer Rembrandt & de Gouden Eeuw Vier het leven en de prestaties van Rembrandt in Nederlandse musea tijdens het themajaar Rembrandt en de Gouden Eeuw.
-Lees meer 10 februari 2014 TBM Highlights 2013 Ontdek alle highlights van de Faculteit Techniek, Bestuur en Management in 2013.
-Omwille van verschillende redenen is de medicinale cannabis, die in de Nederlandse apotheken verkrijgbaar is sinds september 2003, voor patiënten goedkoper dan de cannabis die in de coffeeshop gekocht wordt.
-De MOOC moet vanaf januari 2016 toegankelijk zijn via het MOOC-platform Coursera, waar op dit moment al een Nederlandse MOOC over terrorisme te volgen is. EvR
-_ Both ENDS (print) sluiten Blog / 13 maart 2013 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
-_ Both ENDS (print) sluiten Blog / 23 mei 2012 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
-Listen to a short clip: Website of "Radio Klara" (in dutch) Arenberg Stichting De Arenberg Stichting wijdt zich aan het bevorderen van de belangstelling voor de Europese geschiedenis en cultuur.
-Voorbestellingen We zijn Cuore di cane aan het ondertitelen in het Nederlands, Engels, Frans, Spaans en, voor de eerste keer in ons project, ook in het Russisch.
-[2] In het Nederlands dat in Nederland wordt gesproken krijgen veel woorden op -aar de uitgang -en in plaats van -s.
-"De regels van de Topsport, kwetsbaarheid van een topsporter", Lekker eten lekker sporten – De Olympische Droom, Frank Fol, Lannoo - 2012
-Als we over een actie praten die in de toekomst voltooid zal zijn, kunnen we de voltooid toekomende tijd gebruiken. Het wordt in het Nederlands weinig gebruikt.
-_ Both ENDS (print) sluiten Nieuws / 7 juli 2011 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
-_ Both ENDS (print) sluiten Nieuws / 25 juni 2014 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
-De munten van Euros 1 en Euros 2 : Op deze munten is Koningin Beatrix en profil afgebeeld met de tekst « Beatrix Koningin der Nederlanden » .
-Hennep heeft in de vaderlandse geschiedenis, onder andere in de scheepvaart, een uiterst belangrijke rol gespeeld, en dit zou ook voor de toekomst kunnen gelden.
-'In Dutch' moet je dus wel de ruimte geven maar dan wordt ook duidelijk dat we met Vanderbuyst een hardrock act van wereldformaat hebben.
-Dit blijkt onder andere uit de huidige activiteiten in de bij ELAINE aangesloten gemeenten en kwam ook naar voren tijdens de ELAINE-workshop over beroepsopleidingen voor etnische minder heden in Mannheim (december 1992).
-Website StudentCar AutohuurMedewerkers, studenten en studentenorganisaties van de Universiteit Utrecht kunnen tegen zeer voordelige tarieven een personenauto, personenbusje of bestelauto huren bij Europcar Utrecht.Tel.
-Terwijl mensen van het platteland naar dichter bevolkte gebieden ('vlekken') trokken, bleek er in handel en transport meer en meer geld te verdienen.
-Hierbij gaat het niet alleen om het kopen van (nieuwe) software, maar ook om het aanvragen van software via de webshop van de UT.
-In 2004 zijn in Nederlands Limburg Hells Angels vermoord en meer recent, in 2015, zijn bij een inval bij Bandidosleden wapens, waaronder een raketwerper, aangetroffen.
-Naast praktische aanwijzingen voor het knutselen vindt u in dit boekje vele spelen, liederen en gedichten.Dit boek is niet verkrijgbaar in het Nederlands.
-Positieve en normatieve theorie van budgettaire decentralisatieDoctoraat in de toegepaste economische wetenschappen verdedigd op 20 juni 1986 door Jacques Vanneste onder het promotorschap van Wim Moesen.
-AIM is niet alleen het Engelse woord voor “richten op je doel”, maar spelt omgekeerd ook: MIA: Made In Amersfoort, in onze fabriek aan de rivier de Eem.
-Klik hier voor weergave van een artikel in Haarlems Dagblad (d.d. 26 april2012) over boek en tentoonstelling'Rare Vogels' door Wilma Klaver.
-De prijsdaling was minder sterk dan in mei 2016. Exclusief de aardolie-industrie daalde de prijzen in de industrie in juni 2016 met 4,1%.
-Wilfred Simons van het Leidsch Dagblad wilde meer weten over de geluidsinstallatie van Gabriel Paiuk. Lees het interview hier in Dutch online or here in PDF.
-Vorm a) In de Engelse, de Franse, de Italiaanse, de Nederlandse, de Portugese en de Spaanse tekst worden de overwegingen ingeleid door de uitdrukking «overwegende dat».
-Erisman, J.W., N.J.M. van Eekeren, W.J.M. Cuijpers, J. de Wit. 2014. Biodiversiteit in de melkveehouderij: Investeren in veerkracht en reduceren van risico's.
-Dit mini-plan is verkrijgbaar in het Nederlands, Frans, Engels en Duits voor € 0.50 in alle onthaalkantoren van VISITBRUSSELS vanaf eind augustus 2014.
-" Pim, de pinguïn " en deel 2 " De avontuurlijke reis van Pim, de pinguïn ": prachtige Japanse anime-tekenfilm, in het Nederlands verwerkt door Peter Joosten.
-As we moved beyond a society in which facts and truth are used to prove a point, we… We makeOpen Design Lab22-10-2016 Met een telefoon de wereld veranderenEen potlood is een symbool van wereldharmonie.
-Cock, L. de, P. de Meyer, J. de Wit, L. Lauwers, B. Wolput. 2009. Achtergrondstudie bij de subsidies voor de biologische land- en tuinbouw in Vlaanderen. 126 p.
-Daarbij wijst de KNAW er ook op dat het niet altijd nodig is om een opleiding helemaal in het Engels of helemaal in het Nederlands aan te bieden: allerlei tussenvormen zijn mogelijk.
-“Mariken van Nieuwmegen”is een klassiek stuk van de literatuur in de Nederlandse taal en is gedateerd aan het eind van de Middeleeuwen over de strijd tussen God en de Duivel.
-Lees het in onze tips voor op reis.Reisadvies Buitenlandse Zaken Met een reisadvies van het Ministerie van Buitenlandse Zaken kunt u zich voorbereiden op veiligheidsrisico's tijdens een buitenlands verblijf.
-Ik kreeg er Makkelijk Leven geschreven door Herman Koch en uitgegeven door Uitgeverij Stichting CPNB in 2017, ISBN:9789059654112, het boekenweekgeschenk, er gratis bij.
-EDCR ondersteunt HomePlan 1 augustus 2012 Artikel EDCR in de ondernemer 16 juni 2012 AEO certificaat uitreiking 2 mei 2012 Kerstwensen 2018 Het team van EDCR wenst u prettige kerstdagen en een voorspoedig 2019.
-De Nederlandse vertalingen van 1563 In 1563 werd de Heidelbergse Catechismus in drie talen vertaald en gedrukt: in het Nederlands (Nederduytsche Spraeke), in het Saksisch (Sessische Sprake), en in het Latijn.
-In het Europese spel kan de vraag in het Nederlands, het Engels, het Frans worden gemaakt, het Duits, het Italiaans, Noor, het Portugees, Rus of het Spaans, door op de taal in rode brieven te klikken.
-De vaste inrichting in de nieuwe wereld: een voorbijgestreefd verdragsbegripDoctoraat in de rechten verdedigd op 27 september 2004 door Tim Wustenberghs onder het promotorschap van Bruno Peeters.
-Zoals te lezen is op de FNK-site (persbericht september 2009) is het niet mogelijk voor kittens geboren na 1 december 2009 stambomen (van de NVvK) zonder fokverbod te verkrijgen.
-Beleidsplan 2018-2020 Klik hier voor ons uitgebreide beleidsplan waarin alle benodigde gegevens zijn opgenomen.Bekijk de jaarrekening 2012 2013 2014 2015 2016 en 2017 (NIEUW).
-De Hoge Raad voor Ambachtelijke Lambiekbieren (acroniem HORAL) is een vereniging van producenten van ambachtelijke lambiekbieren.
-Geen contract nodig Zie ook De bindendheid van licenties Bij open source licenties is het niet nodig om expliciet een contract te tekenen met de auteur.
-Lees het verslag van Pro Assistance 3 Tips om je kleding langer mooi te houden Pro Assistance – Kleur bekennen, 7 maart 2018 Schrijf je in voor onze StyleFlash!
-Klik hier om het interview te bekijken.Joods Actueel - Oktober 2013Artikel verschenen in Joods Actueel in oktober 2013 n.a.v. de conferentie "Variation within and across Jewish Languages" (26-28 juni 2013).
-De houting was sinds 1940 niet meer in Nederland gezien, maar vanaf 2005 werden ze weer af en toe gevangen, waarschijnlijk door een herintroductieprogramma in het Duitse riviertje de Lippe.
-Een belangrijke rol is weggelegd voor de CCD. De bevoegdheid voor het verlenen van vergunningen voor dierproeven ligt bij de CCD. De CCD vraagt advies aan een erkende Dierexperimentencommissie (DEC).
-15 september 2002 - M'n "Challenge maat" Harold B heeft ook een webpagina, ik heb zijn pagina toegevoegd aan de linkspagina.
-Download het eBook ‘Hoe onbetaalde facturen voorkomen en aanpakken met een smartphone’ en ontdek hoe Voo, Orange en EDF Luminus geautomatiseerde betalingsherinneringen gebruiken.
-Pensioenfonds Het TNO Pensioenfonds heeft een eigen website Persvoorlichting Wilt u als journalist meer weten over het werk van TNO, neem dan contact op met onze persvoorlichters.
-Deze publicaties, geproduceerd in opdracht van Goebbels' Propagandaministerie, zijn vanaf eind maart 1940 uitgegeven in het Engels, Frans, Italiaans, Kroatisch, Nederlands, Roemeens, Servisch en Zweeds.
-TIJDSCHRITTEN : Kunst, Beroepen en Zaken doon vnouwen. Hd "Notiziado TIDAPA" gepuLliceerd doon de "Tedenazione Italiana Pnofiessiod Afifiad" (Via Domedchino 45, 20149 Cldano) Liedt een udgeLneid overzicht.
-Ongeacht meneer Clerkx' eigen status binnen de Nederlandse stripgeschiedenis kon zelfs hij de faam en bewondering van de man die op 9 juni 2006 door onze straat reed niet overtreffen.
-Hij wist deze organisatie niet alleen in Nederlandse handen te houden, maar zelfs te gebruiken bij het laten onderduiken en vervalsen van persoonsbewijzen van de leden.
-Je kunt nu kunst én wetenschap combineren in de wereldstad Rotterdam. ›Lees meer over Double Degree in Arts and Sciences Geschiedenis Tijdsduur: 3 jarenBij deze bachelor zoek je in het verleden naar antwoorden op de vraagstukken van nu.
-Sprekers Ook in deze tweede editie willen we toonaangevende sprekers het woord geven, die de actuele thema's die spelen op het internet helder kunnen analyseren.
-Delano: "Newpeople focust zich al 11 jaar op het digitale domein als kwalitatieve nichespeler en werd daar binnen de Nederlandse grenzen, voor Nederlandse bedrijven en voor Nederlandse functies ontzettend goed in.
-Ik weet niet veel van academische, taalkundige kwesties. Ik ben dus zeker geen autoriteit. Wel heb ik veel belangstelling voor de Nederlandse taal, vooral voor de grammatica.
-Naar het rapport De essentie van de daling in het aantal verkeersdoden; Ontwikkelingen in 2004 en 2005, en nieuwe prognoses voor 2010 en 2020.
-De masterclass zal in het Nederlands worden gegeven en ook in het Engels, waardoor deze ook toegankelijk is voor internationale studenten, die geen Nederlands spreken.
-Animatiefilm over onderzoeksmethode en resultaten Vraag het aan het kind In hun onderzoek bevroegen Orobio de Castro en zijn collega's kinderen zelf naar pesten en gepest worden."Dat werkte verhelderend.
-Doordat Haaksbergen dichtbij de Duitse grens ligt, is het waarschijnlijk dat bepaalde Nederlandse en Duitse leveranciers en klanten die op deze markten opereren ook in het buurland activiteiten ontplooien.
-Groene Veredeling Aardappel: poster van het Bioimpuls project op de Kick-off bijeenkomst van het Groene Veredelingsprogramma op 5 november 2011 te Enkhuizen. In: Kick-off bijeenkomst BioImpuls. Driebergen. 5 november 2011.
-Het zeer lezenswaardige artikel staat online (zie de bibliografie).Jan Willem werd in 1697 of 1698 in Amsterdam geboren in een kwakersgezin als Jan Willem Claus.
-Hier vind je pagina's over Vixatië: Mantrio Periodiek Post uit Vixatië Een oud interview met mij, uit 1988, getiteld Mark Uwland in wonderland naar het begin van de bladzijde
-Privacy _Copyright Algemene voorwaarden trainingen Adres & route Adres en route Faciliteiten Contactgegevens Misschien iets voor u?Adobe Illustrator Cursussen Adobe Photoshop Cursussen Adobe InDesign Grafisch Vormgeven Webdesign & multimedia
-ECPAT "Stand van zaken" is nu beschikbaar in het Nederlands! 31/03/2016/in Actualiteiten /door ECPAT BelgiqueWelke bescherming krijgen kinderen in België tegen commerciele seksuele uitbuiting?
-Dat hij nu definitief voor Nederland kiest en naar Het Nationale Ballet komt, is grote winst voor de danskunst in Nederland en in het bijzonder voor Het Nationale Ballet."
-'Altijd bijzonder zicht' is de titel van het interview met Han van den Born dat vandaag over het leven in de Red Apple werd gepubliceerd in de Rotterdam uitgave van ...
-Vanuit mijn perspectief appelleerde de bezetter aan bestaande en reeds sterke haatgevoelens tegen Joden bij Nederlanders, welke verder aangewakkerd en geactualiseerd werd door middel van racistische propaganda via de bioscoop, school en media.
-Ze liet zich snikkend boven op me vallen en klampte zich aan me vast. Ik trachtte haar in het Nederlands te troosten maar ze begon mijn kleren uit te trekken en ook die van haarzelf.
-Maak hier direct een afspraak met één van onze verpleegkundigen.Vaccinaties Taiwan: veel voorkomende risico'sIn Taiwan komen verschillende ziektes voor waartegen u normaal gesproken niet bestand bent.
-De Amerikaanse cultuurfilosoof Neil Postman heeft hierover behartigenswaardige dingen geschreven in zijn boek „Amusing to Death", in de Nederlandse taal uitgegeven onder de titel „Wij amuseren ons kapot".
-Op deze manier heeft het stedelijke vernieuwingsbeleid (1997-2014) succes geboekt in het verminderen van sociaaleconomische segregatie in Nederland.Beleidsmakers beschouwen segregatie van etnische minderheden als een belemmerende factor voor integratie in de Nederlandse samenleving.
-Vanaf 1997 tot een recentere periode in 2001 deed Automobiles Peugeot SA gerichte tussenkomsten om bepaalde Nederlandse dealers te ontraden auto's te leveren aan eindgebruikers uit andere lidstaten.
-Kijk op kiezen: stappenplan voor studie- en beroepskeuze'Kijk op Kiezen' is een eenvoudig en gebruiksvriendelijk werkboek, ontwikkeld door de Dienst voor Studieadvies en Studentenbegeleiding van de Universiteit Antwerpen.
-Ze heeft negen niet-wetenschappelijke boeken in het Nederlands uitgebracht, waaronder drie romans en ze schrijft een tweewekelijkse column in de NRC.In 2013 werd de 6-delige documentaire Fresco's Paradijs op TV uitgezonden.
-Tot op de dag van vandaag, word ik achtervolgd door verschillende instanties in Nederland, hoewel ik geen crimineel noch terrorist ben, of iets van dien aard.
-Samen legden we binnen de Waterdriehoek de basis voor de ontwikkeling van de GPM methode. Een methode die in veel andere regio's in Nederland ook zeer goed bruikbaar kan zijn
-De Internationale Luchthaven Oostende-Brugge (ICAO: EBOS, IATA: OST) is een luchthaven in België, gelegen op het grondgebied van de stad Oostende en op circa 25 km van het centrum van Brugge.
-Evenals de fotografie van schilders als George Breitner, Willem Witsen of Philippe Zilcken, bedoeld voor studie en eigen genoegen, staan Apols foto's aan de zijlijn van de ontwikkelingen in de Nederlandse fotografie.
-Sportvoeding en gezonde voeding presentaties gecombineerd met panelgesprek met Frank Fol, Sabine Appelmans, Christine Tobback en Olivier Bisback onder leiding van Phara d'Aguirre, Aalst - 16 november 2010
-(BK200004) (Hiltermann, G.) De geschiedenis van de T-33 "T-Bird" in Nederlandse dienst. Gedetaileerde beschrijvingen van de inzet als trainer, Whiskey Four, ongevallen, serials etc. (15 kleur- & 67 zwart/wit foto's)
-Hij begon in het Nederlands (hij is geboren in Den Haag) maar stapte al snel over op Engels, en hij las ons informatie voor die hij op het internet had gevonden over de Van der Graaf Generator-machine.
-[Meer informatie] Weblog (2007 tot heden) Sinds 2007 houd ik een weblog bij met links naar wetenschappelijke artikelen, onderzoeksrapporten en andere publicaties die relevant zijn voor mijn werkterrein.
-Het hoofdartikel lijkt goed nieuws voor landelijk PvdA-leider Wouter Bos, want buitenlandse inmenging in de Nederlandse politiek heeft vaak een averechts effect.
-Floris-Jan volgde de bachelor Rechtsgeleerdheid aan de Rijksuniversiteit Groningen. Vervolgens rondde hij de master Nederlands recht (specialisaties Privaatrecht en Ondernemingsrecht) af aan eveneens de Rijksuniversiteit Groningen.
-Hier vind je een deel van de 'Gids na een overlijden' van het Landelijk Steunpunt Rouwbegeleiding (LSR). Bevat ook de zeer informatieve Uitvaart Encyclopedie. Je kunt hierin zoeken: Voer één of meerdere woorden in
-Vanaf medio 1995 verschijnen bij Uitgeverij Miklo SA 17 stripalbums in het Nederlands en het Frans in een aparte Biggles-stripreeks, waaronder herdrukken van bovengenoemde vijf.
-Ten eerste: geen verdringing van normale betaalde arbeid, dus geen, zoals we dat in Nederland noemen, " Melkert-banen" op Europees niveau.
-Het vonnis heeft onder andere in het Nederlands in De Ware Tijd gestaan en is in het Saramakaans gepubliceerd op lokale radiostations in Paramaribo en langs de rivieren Tapanahoni en Boven-Suriname.
-Het Noords-Germaanse woord "Yule" vindt men terug in het Nederlands als "joel-feest".1 februari: Imbolc 40 dagen na de kortste dag volgt de (gemiddeld) koudste dag en vanaf nu zal het langzaam weer warmer beginnen worden.
-Zie de volledige recensie in het Haarlems Dagblad. • Mijnsherenland (10-02-2006): De pers schreef hierover: 'De hoogste troeven werden echter uitgespeeld in Ravels sublieme strijkkwartet in F uit 1903.
-De situatie bij pensioenfondsen illustreert het politieke risico. Na kritiek van verschillende Nederlandse academici over de hoge gevoeligheid rond de 20-jaars forward rente, heeft DNB de regels specifiek voor pensioenfondsen aangepast.
-De totale oplage bedroeg 110 100 exemplaren waarvan: 1 4OO in het Deens, 5 400 in het Duits, 33 000 in het Engels, 28 500 in het Frans, 35 950 in het Italiaans en 5 85O in het Nederlands.
-- We mogen niet te veel tijd verliezen. Als we eerste willen worden, moeten we van die engerds af.
-5. Dit alles moet in het Nederlands of Engels geschreven en gepresenteerd worden. Ideeën gepresenteerd in een taal anders dan het Nederlands of Engels kunnen we helaas niet beoordelen en dus ook niet in behandeling nemen.
-We wensen immers dat de KMO's/MKBs in het Nederlands, Duits en Frans kunnen leren en inoefenen hoe zij tegelijkertijd best kunnen omgaan met hun handelspartners, rekening houdend met hun cultuur en bijgevolg andere manier van communiceren, (onder)handelen.
-Met dit in gedachte en onder de voorwaarde dat de unit root voor de Nederlandse korte rente niet verwor­pen wordt, moet als volgende hypothese de coïntegratie van de Nederlandse lange en korte rente getoetst worden.
-Een laatste argument dat ik kort wil behandelen, is de veronderstelling dat door de executie het kwaad zou verdwijnen.
-Wij hebben een spreekwoord dat zegt: vele kleintjes maken een grote.
-26 juni 2007 - Sjeiks uit het Midden-Oosten steken veel geld in Nederlandse moskeeën met als doel om de radicale islam te verspreiden, zo waarschuwde schrijver Fouad Laroui gisteravond tijdens een debat in de Rode Hoed.
-Men moet hierbij in het oog houden dat een letterlijke Nederlandse vertaling van de kwatrijnen 01-01 en 01-02 alleen de vertaling op kan leveren, gemaakt door Houwens Post en weergegeven door Vandervoort op p.73.
-Algemene Voorwaarden voor het vervoer van Reizigers en handbagage van de Nederlandse Spoorwegen (PDF, 231 kB) Bestelwijze Hoe kan ik gebruik maken van dit aanbod?Klik op de knop 'Direct bestellen'.
-De taalgelijkheid gold overigens niet voor alle domeinen en het Frans bleef ook in Vlaanderen en Brussel de taal van de maatschappelijke elite. Nergens in Vlaanderen kon je universitaire studies in het Nederlands volgen.
-Opposantes opwerping dat zij de haar enkel in het Nederlands betekende dagvaarding niet tijdig kon laten vertalen, doet hier­aan geen afbreuk.
-Werving medewerkers OBPOmhoogVoor leidinggevendenWerving medewerkersNLENDEDienstenHuman ResourcesVoor leidinggevendenWerving medewerkers OBP Op deze pagina geven we een overzicht van het proces van werving en selectie voor Ondersteunend en Beheerspersoneel (OBP).
-Een dergelijke re­geling is wel te vinden in het Duits­Nederlandse Executieverdrag van 30­8­1962 (art.
-Bij het invoeren van het kenteken dient men er op te letten dat de tussenliggende streepjes niet worden gebruikt en dat bij Nederlandse kentekens achter het kenteken ook nog NL moet worden geplaatst (met een spatie tussen kenteken en NL).
-Een voorafgaande ruling die wordt afgegeven door een bijzondere rulingcommissie (de Dienst Voorafgaande Beslissingen in fiscale zaken) (hierna „Rulingcommissie” genoemd), is noodzakelijk om in aanmerking te komen voor de vrijstelling van overwinst.
-Informatie in het Engels als wel in het Nederlands en antwoorden op veel vragen in verband met de Waddenzee kunnen worden gevonden op waddenzee.nl, een Nederlandse site met ook veel Engelse teksten.
-Den nieuwen herbarius is opgezet als naslagwerk om remedies tegen allerlei aandoeningen in te kunnen opzoeken.Twee alfabetische registers aan het begin vermelden de plantennamen, het eerste register in het Nederlands en het tweede in het Latijn.
-In de Nederlandse rijksscholen is de raad op schoolniveau eerder een ouderraad dan een gezamenlijke raad; de nieuwe wetgeving is echter zo opgezet dat de hoofdonderwijzer en de vertegenwoordigers van het onderwijzend en het nietonderwijzend personeel er ook in op genomen worden zodat het systeem aangepast wordt aan alle andere.
-In het centrale accoord uit 1982 zijn aan CAO-partijen aanbevelingen gedaan over inlevering van loonafspraken c.q. aanspraken op prijscompensatie door de vakbeweging in ruil voor maatregelen in het kader van de herverdeling van werkgelegenheid.
-Stap voor stap neemt zij je mee op je reis langs de vele spelletjes.Dit boek is niet verkrijgbaar in het Nederlands en Stuks Resultaat 1-1 van 1 1 Do not delete this link
-De conferentie diende als basis voor de ontwikkeling van actieplannen door de Nederlandse overheid en Nederlandse energiebedrijven gericht op het verbeteren van mensenrechten en milieu in de productieketens van Nederlandse energiebedrijven.
+De bijzondere aandacht van prof. Kok gaat uit naar concernregelingen, antimisbruikregelingen en de implementatie van EU-richtlijnen in de Nederlandse vennootschapsbelastingwetgeving.Meer informatieProf.
+Of je nu een complete beginner bent of al een paar zinnen in het Nederlands kent, je zult versteld staan ​​van hoe snel je leert!In winkelwagenVertel me meer PDF Werkboek in het NederlandsMeer dan 20 pagina's met oefeningen in het Nederlands om u te helpen de belangrijkste woorden en zinnen in de taal te leren.
+Taal : Eén taal per groep: Engels, Nederlands, Frans, Duits, Italiaans, Russisch, Chinees, Spaans of Japans.
+Sessie in het Nederlands – dinsdag 7 juni om 10:30 uur CET – klik hier om u te registreren Sessie in het Engels – dinsdag 7 juni om 14:00 uur CET – klik hier om u te registreren Sessie in het Engels – dinsdag 7 juni om 22:00 uur CET – klik hier om u te registreren Welke instellingen kunt u wijzigen?
+De volledig tekst kan u hier lezen.
+Een direct verband is niet hard te maken, maar het is opvallend dat juist sinds die tijd de aantallen bruinvissen in de Nederlandse wateren zijn toegenomen.
+In het Nederlands spreekt men soms over ‘koetjes en kalfjes’.
+De officiële taal is Duits, de tweede taal is Frans. Bovendien beheersen veel mensen het Nederlands en ook het Engels.
+Nederlands Restitutie minder dan 1000 EUR
+Dit modellerend gebruik van licht was in de Nederlandse beroepsfotografie van de jaren negentig nog ^P niet gebruikelijk.Witsen was ook onorthodox in de wijze waarop hij beeldvullend durfde te werken.Portretten liet hij door het kader oversnijden, wanneer hij meende daarmee karakteristieken naar voren te kunnen halen.
+Zoals afgelopen weken bleek, onder andere na uitgebreide berichtgeving in de Volkskrant (14-02), gebruikten ook de zoon en zakenvrienden van de Oekraı̈ense oud-president Viktor Janoekovitsj Nederlandse brievenbussen om corrupte gelden te verbergen en belasting te ontwijken.
+In het Engels worden pinguïns "penguins", in het Spaans "pingüinos", in het Pools "pingwine", in het Zuid-Afrikaans "pikkewyne" terwijl het Franse "pingouin" terugslaat op de alken en zeekoeten en een pinguïn in het Frans "manchot" heet.
+Imago Revisited _ NIMk archief Tentoonstellingen collectie Distributie Artist in Residence onderzoek conservering Educatie faciliteiten organisatie homeImago Revisited printrss projectImago Revisited 2009 In de jaren negentig reisde een Nederlandse tentoonstelling van mediakunst over de wereld: Imago, fin de siècle in Dutch contemporary art.
+Veelvoorkomende combinaties van werkwoorden en voorzetsels in het Nederlands zijn:
+De onderwijsverbetering dient direct ten goede te komen aan studenten in het Nederlandse hoger onderwijs.
+spreektaal Engels . boventiteling Nederlands
+Interview met de Deense schrijver Niels Hav / Poëzie is niet voor watjes _ Galaktika Poetike "ATUNIS"
+Het samenwerkingsproject van Wendelien van Oldenborgh en curator Lucy bevraagt het (inter)nationale beeld van Nederland in relatie tot de veranderende Nederlandse samenleving.
+"Meesters in Leren" Een DVD met een documentaire over verschillende nieuwe ontwikkelingen in het beroepsonderwijs.
+Met meer dan 150 recepten van uiteenlopende oorsprong en smaken is dit boek een onmisbaar naslagwerk voor elke thuiskok.Elk recept kan...€10,15Toevoegen: Basisboek AziatischMet 'Basisboek Aziatisch' haal je 300 recepten (met stap-voor-stap-fotografie en -uitleg) uit de keukens van China, Japan, Thailand en Korea...€15,30... meer info Uitverkocht Chinees KokenKlein handig receptenboekje met meer dan 40 Chinese recepten.
+Na zijn emigratie in 1911 schreef hij voor de Canadese regering twee jaar lang in Nederlandse kranten artikelen ter bevordering van de emigratie naar Canada en gaf hij in Nederland lezingen met lichtbeelden.
+Tevens moet de student de inhoud van deze literatuur kunnen verwoorden in het Nederlands of in het Engels (voor Erasmus studenten).
+Maar de precieze waarschijnlijkheid hangt ook nu weer af van de samenstelling van de 'woordenbak'.Is daarin de herhalingsfrequentie van lettergrepen een getrouwe afspiegeling van de herhalingsfrequentie in het Nederlands (dat zijn denk ik vooral onomatopeeën en oerwoorden als koekoek en mama)?
+Artikel in De Tijd van 26 augustus 2014 gent domeinnaam, pers
+Michiel de Ruyter (bijgenaamd Bestevaêr, ofwel grootvader) is de bekendste zeeheld uit de Nederlandse geschiedenis.
+Terug Safety voor medewerkers en bezoekers Foqus Foqus Food Safety & Quality Veilige productieprocessen Foqus planet HomeNieuwsCampina blijft koploper in Nederlandse supermarkten Campina blijft koploper in Nederlandse supermarkten 21 februari 2011 Campina is ook in 2010 het meest gekochte A-merk in de Nederlandse supermarkten.
+De zojuist verschenen tweede memo van dit jaar 'Duurzaamheid in het Nederlandse Handelsbeleid' richt zich op sociale en ecologische overwegingen in het Nederlandse handelsbeleid.
+De engelen worden duivels en de vlinders gaan ter ziele in het aquarium van Jaap van der Meer. Jaap gaat vlerkslakken bestuderen en vertelt in de video over zijn plan.
+Home Winkelwagen Winkelwagen is leeg Producten Nieuw deze maand Verwacht Speciale aanbieding Cilinders Metalen schijven Hijsblokken Geëtste accessoires Spanstangen/Tuien Hijsmiddelen Schotten Diversen Mobiele hijskranen LTM11200-9.1 modellen en accessoires Rupskranen Mammoet Historische modellen Wegenbouw Boeken Speciaal Algemene Leverings Voorwaarden Montage instrukties YCC Montage instrukties diversen Bedrijfskleuren Contact gegevens Reserveren AVG / GDPR Mobiele hijskranen
+in het Nederlands Bevroren rundvlees (Verordening (EG) nr. 704/2006)
+Originele versie in het Nederlands - Beëdigde vertaling in het Frans
+Sedertdien verscheen van mij in 1992 het boek 'De Spiegel van de Tijd', integraal in te zien op deze website, waarin de ideeën van dit artikel verder zijn uitgewerkt.
+in het Nederlands Verordening (EG) nr. 442/2009.
+Binnen die drie procent valt de rest van de wereld.Het aandeel van Nederland kan dus – net als dat van overige kleine taalgebieden – niet meer zijn dan een paar promille.Toch is er iets gaande: er zijn veel nieuwe initiatieven op het gebied van vertalen; er zijn nieuwe, kleine, onafhankelijke uitgevers die zich exclusief richten op het uitgeven van vertalingen, en bovendien hebben 'we' een heuse New York Times-bestseller: The Dinner van Herman Koch, waarvan in Amerika inmiddels 300.000 exemplaren zijn verkocht (waarvan de helft e-books!).
+In het Nederlands Omloop (Verordening (EG) nr. 748/2008),
+opgelet: participatieve performance voor 8 tot 12 personen die elkaar kennen (enkel groepsreservering) / in het Nederlands
+Een van deze reisverslagen, Zweden en de overblijfselen van een schipbreuk, is reeds in vertaling verschenen in het Nederlandse literaire tijdschrift Tortuca, en werd in de 23e editie van, Juni 2008 gepubliceerd.
+1495, schilderij, SK-A-500 In dit fictieve, middeleeuwse kerkgebouw is Christus' naaste familie bijeen, de heilige maagschap, naar het oud-Nederlandse woord 'maag' voor bloedverwantschap.
+Dit artikel is ook beschikbaar in het Engels (link) en het Duits (link)
+in het Nederlands Verordening (EG) nr. 1233/2006
+Digitalisering is een van de manieren om kwaliteit van de zorg in de Nederlandse ziekenhuizen te verhogen.
+Op de Speciale Jachthondenshow in het Nederlandse Bennekom werd 'Alfa Pogo Joey' vandaag eerste met een U in korthaar reuen tussenklasse.
+Ga naar de homepage.Lees meer over dit onderwerp Blog / 16 juni 2013 Verlaten sawa's Verlaten sawa's Blog / 7 juni 2013 's Werelds grootste pulp- en papierfabriek 's Werelds grootste pulp- en papierfabriek Onze missie Samen met milieu- en mensenrechten-organisaties in het Zuiden werkt Both ENDS aan een duurzame, eerlijke wereld waarin iedereen een stem heeft.
+De schrijver, die zichzelf Themys Anonymous noemt, beweert dat ze vergelding vrezen en niet meer in de Nederlandse media kunnen werken als hun identiteit wordt onthuld.
+Kenmerkend voor de Hollandse kunstenaars uit deze periode is dat zij meestal gespecialiseerd waren in een bepaald schilderij-type: Claesz in stillevens, Frans Hals in portretten, Jan van Goyen in het Hollandse landschap, Pieter de Hooch en Johannes Vermeer in binneninterieurs, Jacob van Ruisdael in wolkenluchten.
+De Monarch I gepubliceerd in Bouwwereld 06-2012 30-05-2012 KCAP's renovatieproject van het kantoorgebouw De Monarch I is in de recente uitgave van Bouwwereld (06-2012) gepubliceerd.
+Zij weten de Vakgroep in Nederlandse handen te houden en zelfs voor illegale activiteiten te gebruiken.
+Met name een aantal oudere fotografen uit de GKf dicht hem een leidende rol toe binnen de Nederlandse fotografie.
+_ Both ENDS (print) sluiten Blog / 20 maart 2013 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+De vermindering van de Nederlandse spamlawine werd bewerkstelligd met behulp van een team van vijf voltijdse werknemers van OPTA (Onafhankelijke Post en Telecommunicatie Autoriteit), de relevante Nederlandse instantie, die beschikten over apparatuur ter waarde van 570 000 € om spam te bestrijden.
+De rol van forensische geneeskunde en psychiatrie in Nederlandse verkrachtingszaken (1811-1920)
+Om in de loop van de procedure met de ontwikkeling van de Nederlandse regelgeving rekening te kunnen houden, heeft de Commissie in juli 2006 een aanvullende aanmaningsbrief gezonden, waarop de Nederlandse autoriteiten niet hebben geantwoord.
+Vanaf de jaren '80 ontstond er herwaardering voor Nederlandstalig zingen in de popmuziek.
+Returns are accepted only in the sole case that the product has proven itself to be defective. ❌ Bestellingsoverzicht Audio Book in het Frans $11,40 Nederlandse grammatica om te downloaden $6,70 Franse Woordenboek $3,90 Totaal $21,90 BTW is reeds in de prijs inbegrepen.
+Kruis dit aan, indien u op de hoogte gehouden wilt worden via mail.
+02-07-2014 .... fotograaf Ronald Tilleman.P+R De Uithof, ontworpen door KCAP & studioSK is een van de projecten in het artikel over zijn werk in de recente uitgave van ArchitectuurNL. [[file:architectuurnl1406]] Volkskrant artikel over sportgebouwen 07-01-2014 "Freerunners en parkoursfanaten wisten het allang: gebouwen lenen zich prima om op te springen/rennen/klimmen.
+Teksten in Nederlands en Duits. 30,5 x 38 cm.
+Waddenkalender Werelderfgoed de Waddenzee vanuit vogelperspectief gefotografeerd. Teksten in Nederlands en Duits. 30,5 x 38...
+Marres Maastricht - Blog Kunst blijft een raadsel Blog Kunst blijft een raadsel Marres home Programma Educatie Over Marres Training the Senses Winkel Archief Nederlands English Marres Kitchen Bezoek ons contact Vrienden Media Films Educatie Stage lopen Groepsbezoek Zintuigen challenges Blog Kunst blijft een raadsel Klik hier om het artikel te lezen Blog Kunst blijft een raadsel Capucijnenstraat
+klimaatverandering Paris Proof fossiele brandstoffen Thema's Lees meer over dit onderwerp Dossier Paris Proof Export Support Tweederde van de exportkredietverzekeringen die Atradius DSB in de periode 2012 en 2015 verleende, ging naar de fossiele-energiesector.Dat staat haaks op de klimaatafspraken van Parijs die Nederland heeft ondertekend.
+2013: Twee DVD-masterclasses over “1-buis versterker” in Nederlandse en Duitse taal
+Het etablissement maakt gebruik van biologische ingrediënten en geeft een eigentijdse draai aan gerechten uit de Nederlandse keuken.U kunt de trendy retrowinkels in de Negen Straatjes verkennen, heerlijk snuffelen in de boekhandels aan het Spui of wat drinken in een van de karakteristieke cafés in de Spuistraat.
+Dus werden de dagen voorafgaand aan Viking Sail 2000 doorgebracht met het oefenen van roeien, de kommando's leren en opvolgen, ook het konings-roeien. De kapitein leerde de bemanning de kommando's in het Nederlands en sloeg op de trommel bij elke slag van de riemen. Er zijn verschillende tradities afhankelijk van wie er aan boord komt. Ik was koningin Aasa, genoemd naar de koningin van het Oseberg schip, en Charles was Leif. Dit waren onze Viking namen !
+De grootste maanvis die in de Nederlandse wateren is gevonden, spoelde in december 1889 aan op Ameland.
+Vanuit die verworvenheid spreek ik u, ook vandaag, toe in het Nederlands.
+Momenteel is het de thuisbasis van het uiterst charmante Strand West een winkel met hedendaagse meubels en accessoires van zowel gerenommeerde als nieuwe (meestal Nederlandse) ontwerpers.'Dutch Design'-trendsStrand West biedt een uniek beeld van de huidige Nederlandse designtrends.
+30 maart 2018Zaaien van preiplanten in volle gang11-03-2018 In de eerste week van maart zijn de eerste vroege preiplanten in Nederlandse grond weer gezaaid.
+Stitou schreef het grootste deel van zijn gedichtenbundels met een beurs van het Letterenfonds.Judith Herzberg ontvangt Prijs der Nederlandse Letteren 1 mei 2018 - Prijzen en Schrijvers De Prijs der Nederlandse Letteren, de meest prestigieuze bekroning voor een schrijversoeuvre in de Lage Landen die eens in de drie jaar, wordt dit najaar uitgereikt aan Judith Herzberg.
+We zoeken woorden die nog niet in de lijst staan, mail ons dus woorden die je hier niet kunt vinden en ik zal proberen de uitleg voor je op te snorren. Woorden die in lijst ontbreken die je wel kent mag je natuurlijk mailen (Engels mag, Nederlands ook).
+De bezoldiging van de beambte wordt normaliter uitge­drukt en betaald ín Nederlandse guldens, behoudens in naar behoren met redenen omklede uitzonderingsgevallen.
+in het Nederlands Douanerecht 0 % op grond van Verordening (EG) nr. 1556/2006
+*Deze film is alleen in het Nederlands.*
+Goed leren is heel belangrijk :-)Engels · NederlandsVertaal deze tekst met Google Translate.Françoise - Bergen23€23€Privélessen in het Nederlands en het EngelsGraduate Teacher biedt een pedagogie aangepast voor studenten in moeilijke situatie en / of falen in relatie tot het onderwerp en die willen motivatie en betere resultaten te vinden.
+Kan ze ons de verzekering geven dat het nieuwe reglementaire kader waar we na 1992 over zullen beschikken op een stelsel van regionale maatregelen voor afvalbeheer gebaseerd zal zijn?
+De voorstelling speelt in de straten in de buurt van het Kaaitheater, waarvan de namen alle refereren aan de Eerste Wereldoorlog, en eindigt in het Kaaitheater.
+De kinderen kwetteren Spaans en Nederlands door elkaar, levendige, rappe kinderen, vlug als water'.
+in het Nederlands „vrijstellingscertificaat”
+de werken uit Lisse, is te zien in het Kunsthaus in Aarau.
+De totale resterende aardoliereserve op Nederlandse bodem wordt geschat op ruim 38 miljoen kubieke meter.
+Aan de bovenkant van de munt ziet men in het Nederlands en het Frans de maand Mei (Mei - Mai) rood en geel met daarnaast het jaartal 1968 zwart gekleurd.
+Sommige volwassen dieren echter hebben een 'haakje' aan de vleugels, vandaar dat de familie in het Engels 'hook-tips' wordt genoemd.
 Hier vind je papieren en materiaal wat tijdens de les gebruikt wordt . Deze tak van de DJAM-website is alleen bedoeld voor DJAM-studenten en daarom voorzien van een gebruikersnaam en wachtwoord.
-De versie die Rudi van Dantzig (1933-2012) in 1988 maakte, was de eerste en tot nu enige Nederlandse productie van dit 'ballet der balletten' en werd algemeen beschouwd als een mijlpaal in de Nederlandse dansgeschiedenis.
-Op 1 april 1949 richtte Jac. Linssen (89) het bedrijf op dat begon als een bescheiden timmer- en scheepsreparatiebedrijf. In de loop der jaren ontwikkelde het bedrijf zich gestaag en werd het een belangrijke speler in de Nederlandse stalen jachtbouw.
-Perfect apperitiefhapje als je ze in de Prosciutto ham wikkelt.Maar ook bij de soep of sla … ZZ taart ®Zalig zurige taart, daarom heeft ze ook ZZ-taart naam gekregen.
-Ze hield tijdens de Eerste Wereldoorlog op te bestaan.Wegner en Mottu en de firma die hun namen voerde hebben bijna zeventig jaar lang, van circa 1850 tot circa 1917, een vaste plaats gehad in de Nederlandse fotografie.
-Dat blijkt...Jojanneke van der Toorn in de Volkskrant over het roze plafond 06 november 2018 Jojanneke van der Toorn over diversiteit en inclusie op het werk: 'Homo- en met name biseksuele werknemers hebben minder vaak een vast contract dan he...
-Je leert onder andere over grammatica en programmeren en hoe dit helpt bij taalkundig onderzoek.Verdiepingspakket Taalvariatie (100% Nederlandstalig)Blok 1: Talen in contact Wat kan er gebeuren als mensen met verschillende talen elkaar ontmoeten?
-15 Burgemeesters Kolff Met de benoeming van Wouter Kolff (CBCB XVIIIp4) telde de familie 15 Kolffen die burgemeester (maire, of andere titels voor dezelfde functie) zijn (geweest); hier staat een overzicht.Rotterdamse Bijnamen
-Mevrouw Dekker. — Ik ben het niet eens met de opmerking van de rapporteur, dus ook niet met uw voorstel, dat amendement nr. 100 uitsluitend als een redactionele wijziging van de Nederlandse taal te be schouwen is.
-Deze algemene voorwaarden zijn in de Nederlandse, Engelse, Duitse, Franse, Italiaanse, Spaanse en Portugese taal gesteld. In geval van geschil over inhoud of strekking van deze algemene voorwaarden zal de Nederlandse tekst bindend zijn.
-Twaalf gevluchte academici aan de slag in de Nederlandse wetenschap 14 januari 2019 Twaalf academici, die hun vaderland zijn ontvlucht door een bedreigende situatie, krijgen een eenjarige aanstelling om hun wetenschappelijke carrière voort te zetten in Nederland.
-Program book U kunt hier het programmaboek voor de voorstelling Orfeo bekijken (PDF, 4.67 MB): Program book Sasha Waltz & Guests wordt voor de productie Orfeo ondersteund door Kulturstiftung des Bundes en de Stiftung Deutsche Klassenlotterie Berlin.
-Deze pagina is ook beschikbaar in het Engels, in het Frans en in het Duits.25 oktober 2017 Nieuw product: Draadloze Paddenstoelknop Deze robuuste, spatwaterdichte industriële paddenstoelknop stuurt zijn toetscode via een draadloze verbinding naar een USB-dongle.
-Een eerste informele ontmoeting is de perfecte manier om erachter te komen hoe ik je kan helpen om vooruitgang te boeken in het Nederlands.NederlandsVertaal deze tekst met Google Translate.Louise - Elsene, Brussel23€23€Cursus Nederlands (beginnend of gevorderd niveau)Betrouwbare leraar: Ik geef privélessen Nederlands voor twee jaar.
-== Elisabethstad onder Belgisch bestuur, 1910-1960 ==Lubumbashi werd gesticht in 1910 onder Belgisch koloniaal bestuur (Belgisch-Congo) en Elisabethstad of Elisabethville (vaak tot Eville afgekort) genoemd ter ere van de Belgische koningin Elisabeth (echtgenote van koning Albert I).
-Omdat het Koninklijk Besluit in pensioenkringen en onder (bijna-) gepensioneerden tot wat onduidelijkheid heeft gezorgd, hierbij de belangrijkste feiten op een rijtje.Lees verder CJEU case law on EU citizenship: normatively consistent?
-Zie ook het artikel in het Leidsch Dagblad 'Leidse hoogleraar op portret van Rembrandt'. Links Rembrandts portret uit de National Gallery of Art en rechts het portret van Van Schooten jr. dat in het Academiegebouw hangt.
-Voor de pers is er zelfs een geschenk: de persmededeling [ in het Duits ], [ in het Engels ] en [ in het Nederlands ]. 30 November 2007 Nieuw is een [ aanmeldings formulier ] om onze planning te vergemakkelijken.
-Oskanian zal tijdens zijn verblijf in Nederland o.a. een gesprek hebben met zijn Nederlandse collega van Buitenlandse Zaken Bot. In de Tweede Kamer zal hij een ontmoeting hebben met de leden van de Vaste Commissie voor Buitenlandse Zaken van de Tweede Kamer.
-Verbindingspunt van België, Nederland en Duitsland, en van 1816 tot 1919 van het oude "Neutral Moresnet" (vandaag Kelmis), de drie stenen die daar aanwezig zijn betekenen alleen het symbool van dit verbindingsoord (een alle drie op Nederlandsgebied).
-Voor bedrijven en organisaties verzorgt het Talencentrum van de Universiteit Maastricht in-company taaltrainingen en workshops.Bekijk het hele programma Writing studio: personal coaching in het Nederlands of Engels EN + NL Beter redeneren, structureren en formuleren?
-Eind maart heeft B & K Projects zijn bedrijfsbenaming officieel veranderd in Atrado. Lees hier het persbericht (en néerlandais)Belgische Nationale Bank - Maandelijkse conjunctuurbarometer - april 2014 De algemene trend blijft stabiel, maar het vertrouwen van de dienstverleners aan bedrijven brokkelt af.
-Ter vermijding van het uittreden van het Verenigd Koninkrijk is na lang onderhandelen een...Lees verderinAlgemeen ITEM Onderzoek ITEM verricht inderdisciplinair onderzoek in het kader van grensoverschrijdende Euregionale mobiliteits- en samenwerkingsvraagstukken, waarbij bijzondere aandacht wordt geschonken aan praktische oplossingen voor deze vraagstukken.
-Ook ontwikkelde Customer Support. Als de speler wil downloaden spel in de Nederlandse taal alles wat hij moet doen is het selecteren van de Nederlandse taal en download het spel. Klantenondersteuning en spel worden gedownload in de nederlands casino online taal.
-Read & Meet is een leesclub met een twist: je krijgt de kans om over een boek te praten met de auteur zelf!Het eerste boek dat we samen bespreken in dit nieuwe seizoen is Rivieren van Martin Michael Driessen, een fel geprezen bundel van drie novellen.
-- La Baroque, Dances for the Dutch Court c. 1765. Swingend gespeelde muziek voor 16 contredances zoals die aan het Haagse Hof werden gedanst. Ook bij deze CD hoort een dansboek, eveneens verkrijgbaar in het Nederlands, Engels of Duits.
-Aanvankelijk zou het alleen maar in het Nederlands worden uitgegeven, maar toen bedachten we dat we het ook best in het Engels zouden kunnen doen. Ik mag het weliswaar niet in de VS verkopen, maar we konden er natuurlijk best een stuk of duizend in het Engels laten drukken.
-De opkomst van de 'Dollarkoningen' Dollarkoningen werden ze in sommige Nederlandse kranten genoemd.Amerikaanse miljonairs die in het laatste kwart van de 19e eeuw dankzij hun investeringen in spoorwegen, scheepvaartmaatschappijen, olie of staal, vermogens hadden vergaard.
-Informatie in het Nederlands: 0032 (0) 70 654 321 (de kosten zijn afhankelijk van de provider).Ma-vr: 8.00 tot 20.00 uur, za-zo en op feestdagen: 9.00 tot 16.30 uur Vragen over het boeken van een onlineticket 0049 (0) 180 6 10 11 11 (20 ct/gesprek vanaf een Duitse vaste lijn, tarief Duitse mobiele telefoon max.
-De Private Equity Real Estate specialisten van Van Doorne werken vanuit onze vestigingen in Londen en Amsterdam en zijn gespecialiseerd in het verstrekken van optimaal fiscaal en juridisch advies op alle rechtsgebieden waaraan vastgoedinvesteerders behoefte hebben in het kader van aankoop, dispositie, financiering en exploitatie van hun Nederlandse vastgoedbeleggingen.
-7.4 Deze Site Voorwaarden zijn oorspronkelijk opgesteld in het Nederlands.Voor interpretatie zal deze Nederlandse tekst dan ook bepalend zijn.7.5 Op de overeenkomst, gesloten met het NBTC, zijn de algemene voorwaarden van het NBTC van toepassing.
-Anderzijds is het zo dat de gebruiker zelf ook op locatie kan zoeken: bij zijn zoekopdracht heeft hij filtermogelijkheid om bijvoorbeeld "Enkel pagina's in het Nederlands" te selecteren, of "Enkel pagina's in België" (voor de Nederlandse gebruiker: enkel pagina's in Nederland).
-Vier soorten opleiding worden onderscheiden van 1 januari 1997: Continue algemeen volwassenenonderwijs (vavo) Opleidingen gericht op breed maatschappelijk functioneren Cursussen in het Nederlands als tweede taal Opleiden opleidingen gericht op het vermogen om sociaal omgaan.
-Er zijn slechts vier exemplaren van deze uitgave in Nederlandse bibliotheken bekend (Nijhoff-Kronenberg p. xxviii en 171-2 §466): één in Amsterdam (Rijksprentenkabinet, 325 E 1), één in Middelburg (Zeeuwse Bibliotheek), en twee in de Universiteitsbibliotheek Utrecht.
-Wat te doen met de sjeik uit Dubai 26 juni 2007 - Sjeiks uit het Midden-Oosten steken veel geld in Nederlandse moskeeën met als doel om de radicale islam te verspreiden, zo waarschuwde schrijver Fouad Laroui gisteravond tijdens een debat in de Rode Hoed.
-Various Gesproken taal: Nederlands Festivaljaar: 2018 In samenwerking met CJP organiseren we een spraakmakende avond met film, theater, muziek en uiteraard bier en bitterballen als toetje! Synopsis We starten de avond met een korte film, gevolgd door het theaterstuk SEXIETY.
-Valorisatie van wetenschappelijk onderzoek staat hoog op de agenda. Werken in Maastricht Initiatieven studenten en het bedrijfsleven Kennis-As Limburg Brainport 2020 17:30 Kwaliteit en streekproducten Maastricht biedt een uitgebreide keuze aan ambachtelijke bakkers, biologische slagers, vishandels, delicatessenwinkels, traiteurs, en patisserieën.
-Hij besluit zijn kennis van afpersing en ontvoeringen, opgedaan bij de geheime dienst, samen met de rest van zijn gezin te gelde te maken door een bende te vormen en rijke landgenoten te kidnappen.El Clan is vanaf 14 april te zien in de Nederlandse filmtheaters.
-Deze site biedt informatie over de werken. Belgisch Instituut voor Verkeerstherapie (BIVT) Het BIVT biedt verkeerspsychologisch advies en verkeerstherapie aan op het gebied van rijden onder invloed van alcohol en drugs, vluchtmisdrijf, risicogedrag en agressie in het verkeer. Mobimix Mobimix.be is een nieuw platform voor vlootbeheerders, aankopers en mobiliteitsverantwoordelijken.
-Aan haar accent merkte ik meteen dat ze Nederlands was en ik heb haar dus in het Nederlands geantwoord ... Grote fout natuurlijk, want nu bleef ze me maar vragen stellen terwijl Christophe haast in slaap viel omdat 'ie er niks van begreep ;-).
-De opleidings­programma's voor hogere managers in Roemenië worden beschreven.
-Die zwemt de fuik in om de vis te vangen.Eenmaal in de fuik kan de zeehond er niet meer uit en verdrinkt dan.In Nederland moeten sinds 1994 alle fuiken in de getijdenwateren uitgerust zijn met een keerwant, waardoor zeehonden er niet meer in kunnen.
-Het debat over kwesties die specifiek Nederlandse justitiabelen aangaan kan prima in het Nederlands worden gevoerd. Tegelijkertijd zal een poging om die kwesties in een breder kader te plaatsen en toegankelijk te maken voor een Engelstalig publiek een eigenstandige meerwaarde genereren.
-Naast de EUR inschrijven bij een andere instellingIndien je aan de Erasmus Universiteit Rotterdam (EUR) collegegeld betaalt en daarnaast aan een andere instelling wilt gaan studeren heb je een Bewijs Betaald Collegegeld (BBC) van de EUR nodig.
-De nieuwe gemeentelijke appellaties komen in de piramide boven de algemene AOC Alsace en > Lees verder … Elzas-topdomein Trimbach gaat nu toch Grand Cru produceren 26/08/2008 Jozef Schildermans 0 Trimbach, een topwijndomein uit de Elzas, gaat nu toch een Grand Cru wijn produceren.
-Vacaturebericht Deadline voor sollicitaties: 08/02/2019 Selectiecommissie: 15/02/2019 Business Developer Intelligente Informatieverwerking (iKNOW) De Universiteit Gent zoekt een ondernemende en dynamische medewerker om de valorisatie van onderzoek in het domein van de video, LiDaR, radar, en sensor-dataverwerking te faciliteren.
-V oor nog onbekende redenen is het verzamelen van HZZ vooral heel populair in Nederland en iets minder in België. Dit is een van de verklaringen voor het feit dat deze homepage, behalve in het Engels en het Duits, ook in het Nederlands gemaakt is.
-Munt die in Dollars, Pond Sterling, of Euro wordt getoond. Speel de 75 aantal Amerikaanse Versie of de 90 aantal Europese Versie. De Europese Bezoekers van de Versie beschikbaar in Nederlandse, Engelse, Franse, Duitse, Italiaanse Noor, het Portugees, Russische, Roman Russisch Cyryllic of Spaans, anderen op speciaal verzoek.
-Gedurende diezelfde tijd, was onze gemeente in Rotterdam bezig predikingen van William Branham te vertalen en te drukken in het Nederlands.Onze voorganger had daarbij het verlangen om enige foto's in deze boeken op te nemen, en om dit te doen met onze drukmachine, moesten de foto's gerasterd worden.
-In een aantal gevallen zoals voor de Nederlandse, Franse en Deense programma's van doelstelling 2 zijn de evaluaties vroeg genoeg uitgevoerd om van invloed te kunnen zijn op de strategische richting en de structuur van de programma's voor 1997-99, inclusief wijzigingen van het strategische perspectief voor de programma's en een reorganisatie van prioriteiten en maatregelen.
-MP3, 7 Mb, 15 minuten, opgenomen op 23 mei 2008.Spits is adviseur voor pensioenfondsen en is een van de oprichters van de Frédéric Bastiat Stichting.Het transcript is verzorgd door Michiel Bezemer. ----Tien procent van die hypotheek… In goud of in zilver.
-Samenstelling Wetenschappelijk Adviescollege 2018 - maart 2021 Het adviescollege, dat momenteel uit 47 leden bestaat, heeft tot taak: 1. het kiezen van de referenten Het beoordelen en selecteren van onderzoeksvoorstellen en het financieren van het beste onderzoek is de centrale taak van NWO.In het beoordelingsproces zijn de verschillende bevoegdheden gescheiden.
-Tijdens de beurs liepen cameraploegen rond van AVRO/Tros voor Kunstuur en de EO voor BlauwBloed. In onderstaande links zijn de items terug te kijken. De link op KunstUur terug te kijken: Item (first item 00.39) over SIERAAD Art Fair;... Lees meer
-Modelleren van bodemtemperatuur uitgebreid met stedelijke factoren Het eerder door KWR ontwikkelde bodemtemperatuurmodel (zie ook BTO 2008.053 Warmteindringing in de bodem+addendum) hebben we in dit project uitgebreid met de stedelijke verdamping, antropogene warmte-uitstoot en de warmte-opslagcapaciteit van de gebouwen.
-Meer informatie Download het rapport op de website van TKI Watertechnologie delen Experts ir. Frank Oesterholt Senior onderzoeker bekijk profiel ir. Frank Oesterholt Senior onderzoeker Frank Oesterholt is senior onderzoeker en projectmanager bij het team Industrie, Afvalwater en Hergebruik.
-Deze kan verschillen van de titel die in (recente) publicaties wordt gegeven.De Heilige Familie Engelse titel The Holy Family Onderwerpstrefwoorden nieuwe testament & apocriefen, os, ezel, stro, stalinterieur, Heilige Familie Iconclass-code Iconclass-codes en tekstcorrelaten bevatten specifieke scènes en namen.
-“Hoe studenten ooit nog hun filosofische wijsheden in het Nederlands zullen kunnen uitleggen is niet eens mijn eerste zorg. Die betreft vooral de vraag wie hen nog ’t kofschip zal uitleggen en ze laten zien hoe de ene welgevormde Nederlandse zin moet volgen op de andere.
-Alcoholvrije wijn in Nederlandse supermarkten _ Wijn en gastronomie in Nederland en Vlaanderen [gearchiveerde website] Taal: Nederlands English Nieuws Proefnotities Colofon Proefstalen WijnIdee Archief Alcoholvrije wijn in Nederlandse supermarkten 02/06/2009 Jozef Schildermans Nieuws 3 De alcoholvrije wijn van Domaine de Fleur zijn nu ook verkrijgbaar in Nederlandse supermarkten.
-Wijsenbeek (ELDR). - Ik wijs de commissaris erop - dit moge een kwestie van vertalingen zijn - dat in mijn vraag in het Nederlands staat „zouden moeten staken", dus would have eventually to stop their operations.
-Nieuws uit Amsterdam Echt alles over de verkiezingen 8 februari 2010 • nuaKandidaten, programma's, peilingen, stemhulpen, locaties van stembureaus, debatten: Amsterdam Centraal heeft een Verkiezingswijzer gemaakt waar werkelijk alle informatie te vinden is over de raadsverkiezingen van 3 maart, uitgesplitst naar gemeenteraad en deelraden.
-Naast stukken waarin hij lyrisch verslag deed van de verrichtingen van het Concertgebouworkest onder Eduard van Beinum en vol enthousiasme sprak over verheugende ontwikkelingen in het Nederlandse componeren (hij roemde de werken van Rudolf Escher), verschenen ook weer felle, polemische artikelen.
-Publicatie Bron: BNR Interviewer: Koos Tervooren Datum: 4 april 2017 Tags Beleid Vertalingen Read in English Nu bij Fox-IT Wachtwoorden honderden Nederlandse bedrijven te koop op het dark web Fox-IT: 'Veel IT-leveranciers brengen hun klanten in gevaar door basis beveiligingsmaatregelen niet in de praktijk te brengen.'
-Het is echter overduidelijk dat de Raad en de Commissie niet geneigd zijn ook iets te doen aan de budgettair interessante aspecten waarmee men deze Europese Gemeenschap een betere economische situatie zou kunnen bieden.
-"Mijnheer de Voorzitter" : deze aanhef zeg ik in het Nederlands, om net zoals collega Miranda in deze taal van wal te steken met mijn bijdrage aan dit oer-Nederlandse debat dat ook goeddeels in de Nederlandse taal wordt gehouden.
-Ik kan vragen over de grammatica te beantwoorden, oefenen mondeling.Mijn doel is in de doeltaal de meest comfortabel mogelijk te zetten ..Engels · NederlandsVertaal deze tekst met Google Translate.(1 recensie)Didier - Brussel25€25€Privélessen in de Nederlandse, Franse en Engelse taalBetrouwbare leraar: Ervaren taaltrainer (3 jaar).
-Om het aangename aan het nuttige te combineren is Hosting-Garage.com opgericht in Spanje. Juan Jose Gonzalez Oubiña, de initiatiefnemer, woonde jaren in België. Hierdoor kan u bij ons steeds terecht met uw vragen in het Nederlands, Frans, Engels en Spaans. Tevens is er speciaal een Belgisch rekeningnummer om de transfers te vergemakkelijken.
-Naast deze horizontale overlappingen heeft de Commissie eveneens onderzocht of de verticale integratie van de twee bedrijven schadelijk kon zijn voor de mededinging en met name voor de in de regio van Londen gevestigde kleine consumenten, waar het LE een overheersende positie heeft.
-Dat is de conclusie van het gezamenlijke rapport van AWTI, KNAW en Rathenau Instituut.Genome Editing (Programmacommissie Genome Editing, 2016) De KNAW neemt de wetenschappelijke, ethische en maatschappelijke aspecten van genome editing bij mensen, dieren, micro-organismen en planten kort door en doet een aantal aanbevelingen.
-De inschrijfprocedure loopt tot en met 14 april 2017 via: maakjestad.amsterdam/meedoen Amsterdammers, Maak je Stad! is een ontwikkel- en leertraject geïnitieerd door de Gemeente Amsterdam, Pakhuis de Zwijger, Kennisland en Waag, met ondersteuning van Amsterdam Economic Board, Amsterdam Smart City en Amsterdam Institute for Advanced Metropolitan Solutions.
-Lees meer 12 september 2018 Ellen van Bueren te gast in BNR nieuwsradio "strijd tegen klimaatverandering" Lees meer 11 september 2018 Verbeterde ultrasound-apparatuur brengt stroming in halsslagader real-time in beeld Onderzoeker Maysam Shabanimotlagh heeft belangrijke verbeteringen in het meten met ultrageluid dichter bij gebracht.
-Hij gebruikte voornamelijk een 6x9 camera en ging verder op zijn gevoel af.Zijn eigen woorden daarover in de catalogus van het Haags Gemeentemuseum, vertaald uit Retrospektive Fotografie, zijn zeer verhelderend: "fotograferen? ... natuurlijk: je neemt een toestel, kijkt door de zoeker en drukt op de knop.
-De toename van de levensverwachting (van 50 naar 70 jaar) in Europa in de twintigste eeuw en in vergelijkbare landen, verklaren demografen aan de hand van verbeteringen in de levensstandaard en sociaaleconomische omstandigheden, naast ontwikkelingen in de medische sector (Joop de Beer, 2017).
-Nieuws uit Amsterdam Minder aandacht voor stadsdeelpolitiek? 23 augustus 2015 • dirkmjkDe stadsdelen met hun gekozen deelraden hebben altijd een belangrijke rol gespeeld in de Amsterdamse politiek, maar sinds de verkiezingen van 19 maart 2014 is hun macht flink ingeperkt (ik hou het even simpel, zie details).
-EEN OPTIMAAL GEBRUIK VAN NATUURLIJKE EN CULTURELE RIJKDOMMEN zich op dezelfde hoogte bevinden als de voormalige spoorlijn, krijgt de bezoeker een goede indruk van het boerenland in de regio.Dankzij de steun van Leader+ voor het project „De uis-terende parels van het Maasland” kunnen 25 etsers tegelijk genieten van deze etstocht en de bijbehorende (Nederlands gesproken) verhalen.
-Van der Werf leerde ook bepaalde technieken van Ralph Raymond, eveneens een legendarisch coach, die was betrokken bij de Brakettes en de Amerikaanse nationale ploeg. Bram van der Werf werd de eerste Nederlandse coach die zich specialiseerde in pitching en ontwikkelde zichzelf in de nummer één pitching coach van het Nederlandse softbal en wellicht zelfs Europa.
-Je docent is (bijna) moedertaalspreker, de voertaal is dan ook Frans.Indien nodig zal de docent uitleg in het Nederlands of Engels geven Na afronding van de zesde module kun je professioneel in het Frans communiceren.Van schrijven en spreken tot en met discussiëren, onderhandelen en presenteren.
-Nieuws Nieuws Zoeken Nieuwsberichten van NWO Er zijn 63 nieuwsberichten gevonden Geselecteerde filters Geen filters geselecteerd Filters aanpassen NWO treedt toe tot internationale coalitie versnelling naar open access 4 september 2018 Vandaag maakt cOAlition S, een internationale groep van onderzoeksfinanciers waaronder NWO, een plan bekend voor de versnelling van de transitie naar open access.
-Lees meer over de Computable Awards op de website Computable.nl Publicatie Bron: Computable.nl Publicatiedatum: 13 juni 2016 Vertalingen Read in English Nu bij Fox-IT Wachtwoorden honderden Nederlandse bedrijven te koop op het dark web Fox-IT: 'Veel IT-leveranciers brengen hun klanten in gevaar door basis beveiligingsmaatregelen niet in de praktijk te brengen.'
-Contact Ruusbroecgenootschap Bibliotheek Stadscampus Bezoek: Grote Kauwenberg 32 Post: Prinsstraat 13 2000 Antwerpen BelgiĆ« Tel. +32 3 265 43 67 erna.vanlooveren@uantwerpen.be De erkende erfgoedbibliotheek Universiteit Antwerpen Een audiovisuele presentatie van de bibliotheek van het Ruusbroecgenootschap en de Bijzondere Collecties van de Universiteitsbibliotheek
-(88 ptn.)Coteaux du Tricastin PreviousNegentigjarige Belgische wijndistributeur in Nederlandse handen NextZuid-Franse wijnbouwers lichten Amerikanen op Taal: Nederlands English Categorieën Activiteiten Artikels Bedrijven en organisaties Hoofdartikel Jargon Nieuws Opinie Oude site Proefnotities Reizen Software Video Websites Wijnkaart van … Winkel Recente reactiesA.
-Overslaan en naar de inhoud gaan Onderwijs Onderzoek UM in de wereld Life@UM Nieuws & agenda Over de UM Support My UM U bent hierHome Algemene cursusinformatie Contact NL Algemene cursusinformatie Cursusaanbod 2018-2019 Het Talencentrum van de Universiteit Maastricht biedt cursussen aan in het Nederlands, Engels en andere moderne talen.
-NWO HCG werkt samen met de volgende topsectoren: High Tech Systemen en Materialen (HTSM) Life Sciences & Health Creatieve Industrie Agri & Food Organisatie NWO-onderdelen Hersenen, Cognitie, Gedrag (NWO-HCG) Organisatie Programma's Onderzoeksagenda's Afgeronde programma's Voorlezen Mail Print Delen Facebook Twitter LinkedIn sluit Copyright 2019, NWO
-De resultaten zijn gepubliceerd in het Britse Journal of Nutrition.Het rapport is samen met de Nederlandstalige samenvatting aan voormalig minister van Landbouw Gerda Verburg overhandigd. Gezondheidseffecten van biologisch onderzoeken is nuttig Consumenten verwachten dat biologische producten gezonder zijn omdat het productiesysteem erachter als gezonder wordt beschouwd.
-Puik betekent 'Voortreffelijk', 'Het beste van iets'. > Lees meer Meer van Puik Art Puik Art Silly kaarsenhouder € 19,95 Karaf Rare € 34,95 Klok Concreto € 74,95 Radiant set van 2 kristal glazen Vanwege het minimalistische en veelzijdige ontwerp kun je de 'Radiant' glazen gebruiken voor bijna elke vorm van drank .
-Maar als je een pseudo-allergie of voedselintolerantie hebt, ligt de lat nog beduidend hoger, Runner's World - november 2008Mediterranean cuisine, the secret of success, Away (everything for international families in Belgium) - mei-juni 2008"Voedselintolerantie, weinig sporters kennen de invloed van intoleranties op hun sportprestatie", Christine Toback en prof. Dr.
-Benamingen - Web Content Tags Afdrukken Benamingen Enkel de exploitanten die onder een categorie geregistreerd zijn, mogen de benamingen gebruiken die voor deze categorie bepaald zijn of gelijkwaardige benamingen. Zo mag een exploitant die geregistreerd is onder de categorie "toerismeverblijven" de benaming "toerismeverblijf" of een gelijkwaardige benaming gebruiken.
-En maak kennis met de leukste studentensteden van Nederland: Leiden en Den Haag!aanmelden Studieprogramma Onderwijsonderwijshonours taal van onderwijs100% enonderwijsopzet70% zelfstudie30% theorieavondonderwijsn.v.t.afstandsonderwijsn.v.t. onderwijsvormencomputer exercise, lecture, individual assignment, literature study, oral presentation, research project, seminar, working group, self studyinstruction modesThe mathematics study advisor is available for questions and suggestions regarding your study programme.
-Fast factspraktijk staat centraal: vanaf dag 1 leer je al vaardighedendelen van het programma kun je in het buitenland doendriejarige, Nederlandstalige, fulltime bachelorer is ook een Engelstalige variant: de International Track in Medicineopleiding met selectie en numerus fixus, start in septemberper week 12 uur onderwijs, 28 uur zelfstudie Een carrière als arts?Meld je nu aan!
-Deze kan verschillen van de titel die in (recente) publicaties wordt gegeven.De prediking van Johannes de Doper in een klassiek ruïnelandschap Engelse titel John the Baptist preaching in a landscape with classical ruins Onderwerpstrefwoorden nieuwe testament & apocriefen, italianiserend, klassieke ruïne Iconclass-code Iconclass-codes en tekstcorrelaten bevatten specifieke scènes en namen.
-Bekijk de beknopte weergave van het visiedocument 'Technologie voor mens en maatschappij'.Technologie voor mens en maatschappij _ visiedocument NWO-domein TTW 2019-2022 Samenvatting visiedocument NWO-domein TTW 2019-2022 NWO-strategie _ ambities 2019-2022 Maatschappelijke problemen oplossen Het NWO-domein TTW voert zijn werkzaamheden uit in een steeds dynamischer en complexer wordend speelveld.
-9 september 2010: Het rapport werd toegelicht door TML en Forum 2020 op een persconferentie in de Management School van Antwerpen (presentatie - samenvatting eindrapport).10 juni 2011: Enkele aanvullende scenario's werden doorgerekend en toegelicht door TML en Forum 2020 op een persconferentie (presentatie - rapport).
-Eind vorig jaar maakte Coen Jacobs al min of meer dezelfde opmerking wanneer hij Brightkite afzet tegen Foursquare en Gowalla. Dit play element maakt van een dienst als Foursquare of Gowalla iets dat men graag blijft gebruiken, het voegt een speels soort competitie toe én het ziet en nog leuk uit ook.
+De uitdrukking in het Nederlands luidt: "Voorkomen is beter dan genezen".
+De Emka Elvström 31 is een onbekend pareltje in de Nederlandse wateren.
+Daarop liet men het idee van een algemene hervorming varen en stelde men zich tot taak de verschillende sectoren van het onderwijs afzonderlijk aan te pakken.
+Hij was zowel in zijn fotografisch oeuvre als in zijn technische experimenten een exponent van wat men achteraf de 'Oude Zakelijkheid' in de Nederlandse fotografie zou kunnen noemen.Het functionele stond bij hem altijd centraal.
+'Profits & principles, het eerste geheel vernieuwde jaarverslag van Shell International, is alleen uitgegeven in het Engels en het Nederlands.
 Het pedagogisch dossier staat online! 08/10/10 – 13:30_ Tagged arbeidsmarkt, seminarie _ Comments Off on Pedagogisch dossier over de Belgische arbeidsmarkt Opvoeden tot wereldburgers in het vak economie Kom op dinsdag 19 oktober naar het Museum en neem er deel aan de focusgroep 'Opvoeden tot wereldburgers in het vak economie, secundair onderwijs'.
-In vier focusgroepen (één over preventie, vroeginterventie en harm reduction; één over behandeling en nazorg; twee focusgroepen in Vlaanderen, twee in Wallonië) bestaande uit verschillende stakeholders (dienstverleners, praktijkwerkers, gebruikers van diensten, …) die vertrouwd zijn met de behoeften en verwachtingen van vrouwelijke druggebruikers, worden de uitdagingen en obstakels bediscussieerd.
-Daarop staan ook de naam en het telefoonnummer van uw aanspreekpunt. Praktische informatie voor patiënten Afspraak maken en second opinion Poliklinieken Verpleegafdelingen Bezoektijden Deel deze pagina Patiëntenzorg Research Onderwijs en opleidingen Over het LUMC Contact Route Parkeren Geef uw mening over deze website LUMC App Vind uw weg in het LUMC.
-In de komende jaren gaat NWO nog intensiever samenwerken met haar partners aan meer evenwicht in de verdeling tussen mannen en vrouwen.Genderbeleid NWO gebruikt diverse instrumenten om de toestroom en doorstroom van vrouwelijk talent in de Nederlandse wetenschap te stimuleren.Denk aan financieringsinstrumenten speciaal gericht op vrouwen zoals Aspasia, Athena, Westerdijk Talentimpuls en NWO Natuurkunde/v Subsidie.
-Basiswoordenschat en -zinnen in het NederlandsMaak je vertaanbaar in het Nederlands met een basiswoordenschat en -zinnen.enige jongensenige jongens enige vriendenenige vrienden enige huizenenige huizen enige kinderenenige kinderen Meer Nederlandse woorden en zinnen PDF Werkboek in het NederlandsMeer dan 20 pagina's met oefeningen in het Nederlands om u te helpen de belangrijkste woorden en zinnen in de taal te leren.
-In deze zesde uitzending van Pateo TV heeft gastheer Johan ook laten zien dat de Tzol'tun staat voor de negen natuurlijke lagen van bewustzijn, van neurofysiologie en van de geschiedenis van de bewustzijnsontwikkeling op onze thuisplaneet. ◄ vorige volgende ► Deze aflevering van Pateo TV is ook beschikbaar in het Engels. © Pateo.nl : Deze pagina is voor het laatst bijgewerkt op 2017/01/03.
-De handel in geneesmiddelen is onderworpen aan strenge regelgeving die berust op in Nederland geïmplementeerde Europese richtlijnen en op rechtstreeks werkende Europese verordeningen. Het College ter beoordeling van geneesmiddelen (CBG) verleent handelsvergunningen voor geneesmiddelen op basis van deze regelgeving op nationaal niveau, het European Medicines Agency (EMA) doet dat op Europees niveau.
-Van de kandidaten wordt verwacht dat zij volledig beschikbaar zijn tijdens de repetitieperiode van 13 december 2016 tot en met 7 februari 2016 (exclusief een kerstvakantie van 24 december 2016 t/m 2 januari 2017) en gedurende alle voorstellingen op 7, 10, 13, 17, 20, 23 en 26 (matinee) februari 2017 in Nationale Opera & Ballet in Amsterdam.
-Johan de Witt (Dordrecht, 24 september 1625 – 's-Gravenhage, 20 augustus 1672), heer van Zuid- en Noord-Linschoten, Snelrewaard, Hekendorp en IJsselvere, was in de Gouden Eeuw tijdens het Eerste Stadhouderloze Tijdperk negentien jaar lang raadpensionaris van het graafschap Holland en daarmee de belangrijkste politicus van de Republiek der Zeven Verenigde Nederlanden.
-De deelnemende auteurs zijn prijswinnaars en bestsellerauteurs in eigen land, schrijven allemaal in het Nederlands, maar komen uit twee verschillende landen – België en Nederland. Twee van Engelands naaste buren die een van de meest opwindende literaturen produceren in Europa en waarover het Engelstalige publiek te weinig weet, net zoals zij weinig weten over elkaar.
+In het Nederlands ACS-product — Verordening (EG) nr. 701/2003.
+Als het eruitziet alsof we het gaan verliezen... ga jij het met veel bravoure ontzetten. in Nederlands uniform.
+Verlichting voor luie mensen geschreven door Paul Smit geschreven in het Nederlands uitgegeven door Samsara Uitgeverij b.v. op juli 2012, ISBN:9789077228890, voor € 1,50. de aki schrijft / gezichtsbedrog met als redacteur Arno Kramer geschreven in het Nederlands uitgegeven door Jan Groen, AKI in 2005 voor € 1,95.
+Drie gegevens tillen deze film naar een uitzonderlijk hoog niveau: Ten eerste het feit dat het een Chinese familie is die hier geïntregreerd wordt in de Nederlandse maatschappij, en dat het een charmante Marokkaanse buurjongen is die Winky doet inzien dat Sinterklaas zijn paard nodig heeft om voor alle kinderen te zorgen.
+I — Verstrekte leningen A — Leningen verstrekt uit opgenomen middelen: — in US-dollars — in Duitse marken — in Italiaanse lires — in Belgische franken — in guldens — in Franse franken — in Luxemburgse franken — in Zwitserse franken — in rekeneenheden — in Europese monetaire eenheden — in Canadese dollars — in Ponden sterling
+Tenslotte zij er op gewezen dat het algemeen en op het beroep gericht onderwijs dat de praktijk opleiding in het leerlingwezen begeleidt, niet is geregeld in de wet leerlingwezen, maar in de wet op voortgezet onderwijs voornoemd in art.
+Hulde!Waarom de hele show in het Nederlands in plaats van het Engels is ontgaat me eerlijk gezegd een beetje.
+Het Gemeentemuseum verzamelt internationale kunstenaars uit de periode 1960-1980, die nog weinig of niet in Nederlandse en zelfs internationale musea te zien zijn.
+De Serra del Cadí is een bergketen in het noorden van Catalonië en maakt deel uit van de Prepyreneeën.
+Ook ontwikkelde Customer Support. Als de speler wil downloaden spel in de Nederlandse taal alles wat hij moet doen is het selecteren van de Nederlandse taal en download het spel. Klantenondersteuning en spel worden gedownload in de nederlands casino online taal.
+Het UMLC bestaat uit een twee en een half jaar durend programma en omvat 36 ECTS, welke studenten volgen naast hun gewone bacheloropleiding Nederlands Recht, Fiscaal Recht of European Law School.
+per reis, in Nederlandse handen
+Hierdoor is men de verschillende historische benamingen door elkaar heen gaan gebruiken voor de verf waar iedereen, bijvoorbeeld op school, mee opgroeit: in het Nederlands plakkaatverf, in het Duits Temperafarbe (met als toevoeging het verduitste "designer" als kwaliteitsaanduiding), in het Spaans colores tempera en in het Frans Gouache.
+De munten van 1 , 2 , 5 , 10 , 20 en 50 cent : Op deze munten is Koningin Beatrix en profil afgebeeld , omringd door de tekst « Beatrix Koningin der Nederlanden » .
+Op dit beslissende moment in de Nederlandse geschiedenis lag mijn vader in stelling aan de oever van de Waal vlakbij Nijmegen.
+Dit unieke beeldmateriaal, met zowel Nederlandse als Zuid-Afrikaanse foto's, illustreert de belangrijke rol die de Zuid-Afrikaanse 'Boere' lange tijd binnen het Nederlands nationalisme hebben gespeeld.
+· dat de primaire verantwoordelijkheid voor het, sinds de Mammoetwet en WUB, uniform, van kleuteronderwijs tot universiteit, krankzinnig slechte onderwijs bij de universitaire docenten ligt: Zij eten ervan; zij weten er het meest van (of zouden dat behoren te doen); zij zouden het belang van goed onderwijs en echte wetenschap voor het behoud en de verbetering van de menselijke cultuur en samenleving het beste moeten kennen; en zij hebben, met heel weinig uitzonderingen sinds de Mammoetwet, de Wub, en de vele andere verachterlijkingen van het onderwijs en onderwijs-bestuur, jaar na jaar god's water over god's akker laten lopen, en gezwegen over een ware zondvloed van verslechteringen van het onderwijs die de laatste 25 jaar ingevoerd zijn en nog steeds uitgevoerd worden:
+Posted in Object van de maand _ Tagged Oudheid, munten, collecties, goederengeld, koper, geld, Rome _ Comments (1) Geld en je leven!: rondleidingen volzet 03/02/11 – 14:42 Door het grote succes van de tentoonstelling Geld en je leven!, kunt u vóór 1 juni geen groepsbezoek met rondleiding meer reserveren.
+Deze kan verschillen van de titel die in (recente) publicaties wordt gegeven.De doop van Christus in de Jordaan (Mattheus 3:15) Engelse titel The baptism of Christ (Mathew 3:15) Onderwerpstrefwoorden nieuwe testament & apocriefen, rivierlandschap, toeschouwers, engel Iconclass-code Iconclass-codes en tekstcorrelaten bevatten specifieke scènes en namen.
+REVAzine verschijnt in het Nederlands en het Frans met een oplage van samen 75.000 exemplaren.
+Zoals in de landschapschilderkunst was de wijziging van het kunstmatig verhoogd gezichtspunt van de schilder naar een laag standpunt een cruciale stap die voor het eerst werd gezet door de grote Nederlandse marinespecialist Hendrik Cornelisz.
+Veel meer moois van Mascha staat op haar site, en dat Thomas een geweldige pianist is weet bijna iedereen.
+Over de kunstenaar: Piet Goethals (geboren te Gent, België) heeft een Master in Kunstgeschiedenis en Kunstfilosofie en een Bachelor Taal-en letterkunde in Nederlands en Engels.
+Mijnheer de Voorzitter, ik heb de Commissie in het Nederlands en in het Engels gevraagd of zij hierin vliegtuigen zal opnemen.
+Vele rederijen zijn in Nederlandse handen, maar ook in het ontwerp en bouw van rivier cruiseschepen hebben de Nederlandse werven een groot aandeel.
+De afgelopen jaren is het gebruik van 3D-programma's binnen de Nederlandse scheepsbouw sterk toegenomen, met name in de engineeringfase.
+In Brussel, alle soorten van het onderwijs zijn gedaan, hetzij in het Frans of in het Nederlands en in openbare scholen de studie van een tweede taal is verplicht vanaf de 3e primaire.
+In het Nederlands Douanerecht: … — Verordening (EG) nr. …/…
+Toch kunnen FinTech bedrijven een belangrijke innovatieve rol spelen door hun specifieke expertise in te zetten.Gevestigde partijen lijken echter moeite te hebben om FinTech te omarmen.Hoe kunnen zij optimaal inspelen op FinTech kansen? Dit artikel is opgenomen in het rapport Innovatie in de financiële sector: wat wil de consument?
+(ook beschikbaar in het Engels [English] en het Frans [Français])
+Een belangrijk deel van hun briefwisseling is bewaard gebleven.
+Ongeveer 15 km rijden we door België, voordat we in Zundert zijn.
+Zijn werk bevindt zich in (inter)nationale particuliere en museale collecties, zoals het MoMa in New York.
+Complementaire zorg in ziekenhuizen, verpleeghuizen en GGZ‐instellingen: Eerste Nederlandse inventarisatie.
+Van de in totaal 24 geïdentificeerde Noord-Afrikaanse en Arabische militairen die in Nederlandse grond begraven zijn, staan aldus twintig namen, soms met een iets andere schrijfwijze, op het monument vermeld.
+Het eerste deel, Deirde en de Zonen van Usnach, was geschreven door A. Roland Holst. Palladium telde ook werken van onder andere J. Greshoff, J. van Looy, J. Luyken, R.N. Roland Holst, A. van Schendel en J. Slauerhoff. Hijman, Stenfert Kroese & Van der Zande NV was ook de uitgever van Geschiedenis der Nederlandse letterkunde (J. Greshoff, J. de Vries, 1925), dat tientallen jaren de toonaangevende Nederlandse literatuurgids was.
+_ Both ENDS (print) sluiten Blog / 9 september 2013 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+De zes genomineerde films kwamen tussen 1 juli 2014 en 30 juni 2015 uit in de Nederlandse bioscoop.
+! Geannuleerd ! Velen vinden verjonging in de politiek noodzakelijk, terwijl anderen het verlies aan ervaring betreuren.
+Dienstmededeling: Al vijftien jaar zijn we op zoek naar een partner die onze wijnen voor de Nederlandse restaurants kan vertegenwoordigen.
+In 1847 werden immigranten uit Nederland in het Nederlands verwelkomd door dominee Isaak Wyckoff bij hun aankomst in New York.
+Toch gebeurde er precies wat velen niet hadden voorspeld: de Universiteitsraad kwam op haar schreden terug en vergadert weer in het Nederlands.
+Nederlands Verlaging van het GDT overeenkomstig Verordening (EG) nr. 616/2007
+Je wil dat verkopen, en je zet wat foto's op het internet...Hiernaast:Indien u verder wil gaan met willekeurig (random) plekken in BelgiŰ te ontdekken, klik op 'Willekeurig'.
+Het programma wordt gegeven in het Nederlands en het Engels en deelnemers moeten een aanvaardbaar vaardigheidsniveau in deze talen kunnen aangeven.
+spreektaal Duits . ondertiteling Nederlands
+Onze mening wordt vaak gevraagd als het gaat om fusies en overnames in de ICT-sector. Zo publiceren wij regelmatig in vaktijdschriften als Computable. Ons marktinzicht zorgt ervoor dat wij als geen ander waarde toevoegen bij transacties en waarderingen in de ICT-sector, zowel nationaal als internationaal.
+Dit stuk is in het bezit van ons lid, Herman ten Have, de uitleg is afkomstig van Holger Belzer, de webmaster van www. Bienenmarken.de, 9 pagina's lang in het Duits. Daarnaast is er nog een uitgebreide discussie, in het Nederlands. Als U geinteresseerd bent hierin, wil ik U ditwel mailen, laat maar even weten.
+Universiteit van Amsterdam, Bachelor Nederlands recht LLB (2013)
+Deze website geeft algemene informatie over Oost-Vlaanderen. Er zijn ook enkele e-mailadressen terug te vinden in verband met beschutte werkplaatsen in Oost-Vlaanderen.
+Het ei heeft zo zijn plekje verworven in de bruine kroeg: traditioneel, democratisch en simpel.
+Speak! vindt plaats in twee zalen met de keuze voor een Nederlands of een Engelstalig avondvullend programma.
+Daan Rijsenbrij heeft meegewerkt aan een groot aantal publicaties, zowel Nederlandstalig als internationaal.
+Uiteraard bevat ook deze editie een overzicht van de belangrijkste prijzen, prijsvragen, tentoonstellingen en publicaties van het afgelopen jaar. Architectuur in Nederland is al meer dan een kwarteeuw een onmisbaar overzichtswerk voor iedereen die zich voor de Nederlandse architectuur interesseert of er vakmatig bij betrokken is.
+Stillevens met alledaagse voorwerpen, portretten, landschappen en zeegezichten die de maritieme macht van Nederland weerspiegelden, waren populair evenals groepsportretten van gildes, stadswachten en andere verenigingen die een belangrijke rol speelden in de Nederlandse maatschappij.'De Nachtwacht' van Rembrandt, die in het Amsterdamse Rijksmuseum hangt, is het beroemdste voorbeeld van zo'n groepsportret.Er zijn echter ook vele andere voorbeelden van te vinden in het museum, evenals in het Hermitage Amsterdam met zijn bijzondere tentoonstelling Hollanders van de Gouden Eeuw.
+Samenwerking met musea Studio Kranen/Gille is inmiddels een gevestigde naam in de ontwerpwereld.
+Meer informatie over de Schrijversresidentie (Engelstalig) Antonio Muñoz Molina in Nederlandse vertaling, website uitgeverij De Geus [de literaire talkshow Letteren & cetera][6] Contact Fleur van Koppen Beleidsmedewerker f.van.koppen@letterenfonds.nl Agenda Nederlands Letterenfonds // Dutch Foundation for Literature post@letterenfonds.nl // Privacyverklaring
+Ik heb ook mijn primair en voortgezet onderwijs in het Nederlands onderdompeling, ik ben perfect in staat om wetenschappelijke ondersteuning te bieden in deze kwestie.
+Ongeacht meneer Clerkx' eigen status binnen de Nederlandse stripgeschiedenis kon zelfs hij de faam en bewondering van de man die op 9 juni 2006 door onze straat reed niet overtreffen.
+In de Nederlandse Rijksscholen zijn de leden allemaal ouders, maar er bestaan plannen om ook leraren en an dere leden in de raden op te nemen.
+Tijdens deze tentoonstelling in Museum Prinsenhof Delft ontdekt u het begin en het einde van deze belangrijke man uit de Nederlandse geschiedenis.
+Zoals overal in de wereldliteratuur gebeurt dat ook in de Nederlandse.
+Zelfs na drie > Lees verder … Negentigjarige Belgische wijndistributeur in Nederlandse handen 22/02/2010 Jozef Schildermans 1 De Belgische distributeur van wijnen en sterke dranken A & F Mampaey Wines & Sprits, gesticht in 1920, is gekocht door de Nederlandse Distilleerderij Dirkzwager.
+Het veroorzaakte in de jaren twintig in Nederlandse kring een terugvallen op de oude conservatieve ideologie.
+Door middel van 'ruilpolitiek' kan getracht worden om de grote ruil te bevestigen, te vernieuwen of daar opnieuw vorm aan te geven.
+Zijn boek Gele sneeuw verscheen in 2001 in Nederlandse vertaling en werd ook gepubliceerd in het Pools en Duits.
+_ Both ENDS (print) sluiten Blog / 3 juli 2013 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+(Tekst in het Nederlands en het Duits, documenten in het Latijn.
+Alcoholvrije wijn in Nederlandse supermarkten _
+- In het Agrarisch Dagblad: “WWF accepteert certificaat voor gentech soja"
+Dan zullen we vrij snel de doorwerking ervan gaan zien in Nederlandse investeringen, handel en diplomatie.
+Abraham Lamertus (Bram of Bob) van der Stok MBE (Pladjoe, 30 oktober 1915 – Virginia Beach, 8 februari 1993) was een Nederlandse piloot die tijdens de Tweede Wereldoorlog eerst voor de Nederlandse Luchtvaartafdeling en later voor de Britse Royal Air Force vocht.
+En met name de heffingen over speciale fondsen die werkelijk een enorme bijkomende barrière vormen voor de export van de Gemeenschap en waarover de Commissie blijft klagen bij de Turkse autoriteiten.
+In het Nederlandse mensenrechtenbeleid is discriminatie één van de prioriteiten.
+_ Both ENDS (print) sluiten Blog / 10 april 2013 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+Maatschappelijk verantwoord ondernemen is de afgelopen jaren uitgegroeid tot een belangrijk onderwerp in het Nederlandse publieke en politieke debat.
+Deze eendaagse workshop zal 6 keer worden gehouden (3 June, 3 juni, 4 June, 4 juni, 5 June, 5 juni)
+Veel bedrijven bieden hun buitenlandse werknemers een cursus Nederlands aan. Soms hebben deze buitenlanders de taal niet eens nodig voor hun werk, maar gaat het erom dat ze zich thuis gaan voelen in de Nederlandse samenleving.
+Op Nederlandstalig gebied is Rubberen Robbie natuurlijk onsterfelijk geworden met hun bewerkingen van Nederlandstalige evergreens.
+De handboeken in de goocheldozen zijn beschikbaar in het Nederlands en in het Frans.
+Over Nederlandse volksliedjes Kort overzicht geschiedenis Nederlandse volksliedjes Een volksliedje is een liedje dat wordt doorgegeven in de mondelinge overlevering en wordt overdragen van ouders op kinderen, onderwijzers op kinderen of van oudere op jongere kinderen.
+Verder biedt het KDC hulp bij wetenschappelijke bestudering en wil het onderzoek naar en publicaties over historische en actuele ontwikkelingen in het Nederlands katholicisme bevorderen.
+Hier een link naar de becommentarieerde, prachtige volledige online editie van Multatuli's Ideeën van filosoof Maarten Maartensz.
+In het Nederlands wordt zelden ook de naam "gluuroog- of antipodenpinguïn" gebruikt.
+De introductie van een nieuwe wet waarmee de afspraken uit het Stabiliteits- en groeipact in Nederlandse nationale wetgeving worden verankerd.
+In het Nederlands ACS-product — Verordeningen (EG) nr. 2286/2002 en (EG) nr. 462/2003.
+In het dagelijks leven is sport belangrijk in de Nederlands samenleving.
+EDCR ondersteunt HomePlan 1 augustus 2012 Artikel EDCR in de ondernemer 16 juni 2012 AEO certificaat uitreiking 2 mei 2012 Artikel EDCR in de ondernemer 16 juni 2012 Artikel de Ondernemer Logistiek dienstverlener EDCR ontzorgt klanten De logistieke sector is sterk vertegenwoordigd in Roosendaal.
+Ik En Den Théo is er voor de kids met nummers in het Frans én het Nederlands. Ze bouwen aan de wereld waar de jonge kinderen in leven: ruimtetuigen, alternatieve superhelden, speelwinkeltjes, in een rockgroep zitten, het internet ontdekken en monsters & spoken opjagen.
+Hoe kan dat ook anders, want hij wordt full-time gestimuleerd.Het lijkt erop dat Alan een slim ventje is, hij begrijpt al bijna alles wat je hem vraagt en daarbij maakt het niet uit of je iets vraagt in het Spaans of het Nederlands.
+Ik stel vast dat in de Nederlandse versie de agenda gaat tot en met donderdag, maar dat vrijdag niet is vermeld, of althans ik kan niet vaststellen wanneer de vrijdag begint.
+Een verticale notitie in het Nederlands is gedateerd in 1534, maar is geschreven in een andere hand en gaat over een pachtovereenkomst.
+Paul is tevens honorair docent contractenrecht aan de Vrije Universiteit in Amsterdam en werkte meerdere jaren als buitengriffier bij het Hof Den Haag. Hij heeft diverse publicaties op zijn naam. Paul rondde zijn master privaatrecht aan de Universiteit Utrechtcum laudeaf en studeerde daarvoor een jaar aan de University of Cambridge.
+De Lange Nacht van het Korte Verhaal is het literaire orgelpunt van Turnhout 2012. Karl van den Broeck en Jos Geysels nodigen (inter)nationale schrijvers uit om kortverhalen voor te dragen in De Warande en op onverwachte plekken in de stad.
+Daarnaast is hij te zien geweest in EénVandaag, SBS6 Shownieuws, het NOS Journaal, RTL Boulevard en andere tv-programma's.
+D de dubbele prijsaanduiding, een belangrijk instrument om de consument bewust te maken van de een heidsmunt, gerust te stellen over de prijsontwikkeling
+Ook verscheen een algemeen werk over de collectie, zowel in het Nederlands als in de Franse taal.
+De cd-rom is al beschikbaar in het Frans maar wordt tegen het einde van 2008 in het Engels en het Nederlands vertaald.
+De Industriële week van 2004 wordt van dinsdag 5 tot en met vrijdag 8 oktober aanstaande gehouden in het Jaarbeurscomplex.In dat kader vinden de beurzen Aandrijftechniek, Macropak 30-06-2004 _ 888x _ Kort nieuws Nieuw Earth-Rite FIBC systeemAardingscontrole voor type C Bigbags Het Earth-Rite FIBC systeem controleert continu of de weerstand van een bigbag laag genoeg is zodat deze de statische ladingen veilig kan afvoeren, via de geleidende onderdelen naar de aarde, en in overeenstemming met Cenelec CLC/TR: 50404.
+Uitgeverij Verloren Uitgeverij Verloren is de specialist op het gebied van Nederlandse en Middeleeuwse geschiedenis.
+Compulsion heeft overigens in het engels – en Lucia was langere tijd in Canada geweest – niet zo'n 'negatieve' bijklank als in het nederlands.
+Embrace Vincent is een tijdelijke aanvulling op de bestaande multimediatour en beschikbaar tot 1 december 2016 in het Nederlands en Engels.
+Over het Nederlands Letterenfonds Het Nederlands Letterenfonds stimuleert, door middel van beurzen en subsidies aan schrijvers, vertalers, uitgevers en festivals, de kwaliteit en diversiteit in de literatuur en draagt bij aan de verspreiding en promotie van de Nederlands- en Friestalige literatuur in binnen- en buitenland.
+Het nakende rookverbod in Nederlandse café's en restaurants wordt niet toegepast op sigaretten die van pure cannabis gemaakt zijn.
+Bij discussie is het huishoudelijk reglement in de Nederlandse taal van toepassing.
+Landelijke Werkgroep Duivenoverlast - Duivenoverlast In English Home Nieuws Duiventillen Duivenoverlast Contact Links Duivenoverlast De Landelijke Werkgroep Duivenoverlast houdt zich bezig met het adviseren van particulieren, bedrijven, gemeenten en andere overheidsinstanties over effectieve en diervriendelijke methoden om schade en overlast van stadsduiven te verminderen en te voorkomen.Niet vangen en doden Een oplossing Ziek van duiven?
+Ze werkte als onderzoeker aan de collectiecatalogus moderne kunst (2004) en voltooide de intermuseale collectiecatalogus US in NL – Amerikaanse kunst in Nederlandse musea, 1945-2002 (2005).In de zomer van 2004 stelde ze de tekeningententoonstellingen Microkosmos en Zwart op Wit samen.
+De partners beogen in Europese context onderzoek te doen naar de rol van erfgoed in identiteitsvorming, sociale cohesie, mediarepresentatie en '21st century skills' (mediawijsheid, zelfexpressie, (media)makerschap, toegang tot digitale tools, etc.) en de onderbelichte positieve kanten van diversiteit in de Nederlandse samenleving hierin betrekken.
+Dat is een gebaar en dat betekent idioot of gek in het Nederlands.
+Het tweede besluit heeft betrekking op algemene tekorten in de Nederlandse wetgeving waarmee uitvoering wordt gegeven aan de richtlijn.
+Het Arbeidshof overwoog dat genoemd art. 10, dat de nietigheid van alle niet in het Nederlands gestelde handelingen en stukken voorschrijft, eveneens van toepassing was op vóór de inwerkingtreding van het decreet opgestelde stukken.
+Dankzij een truc krijgen Wehrmacht-soldaten de strategisch belangrijke spoorbrug van Gennep in handen.Verkleed in Nederlandse uniforms overmeesteren ze de Nederlandse soldaten.Het Nederlandse leger vecht drie dagen lang met het Duitse leger op de Grebbeberg.
+De munten van Euros 1 en Euros 2 : Op deze munten is Koningin Beatrix en profil afgebeeld met de tekst « Beatrix Koningin der Nederlanden » .
+Aardwarmte bijvoorbeeld is mogelijk, dat heb ik vorige week nog gezien in de Nederlandse tuinbouwsector. Financiers en gebruikers komen echter maar niet tot stappen.
+Moties, Kamervragen en debat in de Tweede Kamer over Dalits: OVERZICHT
+Zo wordt het nuttige aan het aangename gekoppeld.OpleidingIk ben van opleiding licentiaat vertaler Nederlands - Engels - Spaans, maar ik ben na mijn studie direct in het onderwijs terecht gekomen.
+Voor het aanvragen van documenten op het gemeentehuis geldt in de taalgrensgemeenten dat ze in het Nederlands worden opgesteld en uitgegeven, waarna de burger na afloop kan verzoeken om een vertaling.
+Hij fotografeerde in een dynamische stijl die in de Nederlandse fotografie nog niet eerder gezien was.
+Nederlands Verlaging van het GDT overeenkomstig Verordening (EG) nr. 616/2007.
+In Nederland hebben we onze liquiditeiten belegd in Nederlandse staatsobligaties, gemeenten en banken.
+Wanneer word je geaccepteerd?Tegelijkertijd gaat deze serie niet alleen over de veranderingen in het leven van het gezin en de Nederlandse samenleving.
+28 november 1943 In de kille barak, gevuld met drie hoog stapelbedden, en met één fatsoenlijke kachel, ontstaat in het Nederlands ruzie tussen de verschillende groepen bewoners.
+We onthullen op oneworld.nl onder andere dat de Eritreeërs die zich in de Nederlandse media nuancerend uitlaten over de vluchtredenen van hun landgenoten ("ze vluchten niet om politieke, maar om economische redenen"), supporters zijn van het regime.
+Over welke Europese kandidaat zou u meer willen weten? 27 mei 2009Nieuws uit Amsterdam heeft profielen gepubliceerd van Amsterdamse kandidaten voor het Europees Parlement.
+Ze hield tijdens de Eerste Wereldoorlog op te bestaan.Wegner en Mottu en de firma die hun namen voerde hebben bijna zeventig jaar lang, van circa 1850 tot circa 1917, een vaste plaats gehad in de Nederlandse fotografie.
+Ook in de Nederlandse politiek heeft men zich er over verbaasd dat de directie van een bank, die met miljarden staatssteun voor een faillissement was behoed, miljoenen aan 'bonus' kreeg.
+Ze letten nu veel beter op hoe ze naar buiten treden', zegt Irene Bloemink van Milieudefensie Earth Alarm. 'Profits & principles, het eerste geheel vernieuwde jaarverslag van Shell International, is alleen uitgegeven in het Engels en het Nederlands.
+Schrijver van ‘Camera Obscura. Deze beschrijving van de levensstijl van de bovenste laag van de Nederlandse bevolking in het begin van de 19 e eeuw is nog steeds een standaard werk.
+Verbindingspunt van België, Nederland en Duitsland, en van 1816 tot 1919 van het oude "Neutral Moresnet" (vandaag Kelmis), de drie stenen die daar aanwezig zijn betekenen alleen het symbool van dit verbindingsoord (een alle drie op Nederlandsgebied).
+We makeOpen Wetlab Het Praktikum: Bioterrorisme - feit of fabel? #2 4-4-17 17:00 - 4-4-17 21:00 Waag, Nieuwmarkt 4, 1012 CR Amsterdam ﻿ Hans Shang (BY-NC-SA) Tijdens deze editie van Het Praktikum ontrafelen we het fenomeen biologische oorlogsvoering: oorlog met gebruik van levensvormen, zoals planten, schimmels, virussen en bacteriën of giftige organische stoffen.Kunnen gemodificeerd insecten hele oogsten ruïneren of epidemieën laten uitbreken?Is zoiets waarschijnlijk?
+Nederlandse instellingen die geen onderneming drijven maar inkomen ontvangen uit een aanmerkelijk belang in Nederlandse vennootschappen of uit schuldvorderingen op vennootschappen waarin zij een dergelijk belang hebben, worden vrijgesteld van de vennootschapsbelasting.
+De kaas wordt in Nederland geproduceerd uit van Nederlandse melkveehouders afkomstige koemelk en gerijpt tot een consumentgereed product in Nederlandse rijpingskamers.
+De zaden voor de planten worden aangekocht in Nederlandse grow shops en worden opgekweekt tot moederplanten die worden gestekt tot een totaal van 576 stekken wordt bekomen.
+Het concept wordt gecreëerd rond het Romeinse cijfer I, dat zowel naar WO I verwijst als naar de eerste letter van de naam Ieper.
+Van der Werf leerde ook bepaalde technieken van Ralph Raymond, eveneens een legendarisch coach, die was betrokken bij de Brakettes en de Amerikaanse nationale ploeg. Bram van der Werf werd de eerste Nederlandse coach die zich specialiseerde in pitching en ontwikkelde zichzelf in de nummer één pitching coach van het Nederlandse softbal en wellicht zelfs Europa.
+Informatiebeveiliging Hall of Fame Vulnerability Reporting Form Contact ›Geschiedenis ›Cultuurwetenschappen ›Media & Communicatie ›Faculteitsbureau ›Education Office ›International Office ›Stagecoördinatoren ›Studieadviseurs ›Examencommissie Werken bij Wissel naar taalEN EnglishNL Nederlands (huidige taal) Zoeken KruimelpadOnderwijs Bachelors Bachelors Zoek een opleiding 6 resultaten Algemene Cultuurwetenschappen Tijdsduur: 3 jarenJe hebt een passie voor kunst en cultuur.
+in het Nederlands Toepassing van Verordening (EG) nr. 950/2006, ACS-/Indiase suiker.
+Dave Coelers is bij Excelsior de eerste studentscout in het Nederlandse voetbal.
+In 2014 verwerkte Worldline alle 220 miljoen SEPA-overmakingen in de iDEAL-regeling. Met de introductie van e-Machtiging op de Nederlandse markt zullen ook SEPA-automatische incasso's voor online transacties snel groeien.
+Bij deze alle vertalers van Global Voices in het Nederlands hartelijk bedankt voor hun bijdragen in 2011!
+De masterclass zal in het Nederlands worden gegeven en ook in het Engels, waardoor deze ook toegankelijk is voor internationale studenten, die geen Nederlands spreken.
+14.14 Betaling geschiedt in Nederlandse courant.
+Dus dankjewel Lietje voor je bijdrage.En Charlotte heeft ook een mooie bijdrage gedaan, ze heeft een flyer gemaakt over slimme meters in het Nederlands en we hebben vandaag een artikel geplaatst met de documentaire "take back your power".
+Keuring van uw boot door Dros Nautic Dros Nautic Rob D. Dros 06 22 48 04 32 Aankoopkeuring Deelkeuring Andere keuringen Taxaties Contra-expertise Algemene voorwaarden Publicaties Fotocollage This page in English Inspectie onderwaterschip Inspectie schroef Beoordeling motor Kiel/romp-inspectie Kiel/romp-inspectie Meetinstrumenten de experts in aankoopkeuringen en taxaties Inhoud bootkeuring Onderdelen van een conditiekeuring Een standaardkeuring van de conditie van een boot bestaat uit een inspectie van de volgende onderdelen.
+Ivanka volgde de bachelor Nederlands recht aan de Universiteit van Amsterdam. Vervolgens heeft zij de master Privaatrecht aan de Universiteit van Amsterdam afgerond.
+Van start tot finish en daarbuiten, goed en vriendelijk advies in het Nederlands / Engels, professioneel en deskundig personeel.
+Keep (it) Swinging: Fred Hersch speelt Jobim Keep (it) Swinging A weekly web log in Dutch and English to share my passion for jazz, jazz-related music, record collecting and other music projects that surprise me. _ Een wekelijkse weblog in het Engels en het Nederlands waarin ik mijn passie voor jazz, jazz-verwante muziek, platenverzamelen en verrassende projecten met anderen wil delen.
+Maria Louise Clara Albertine (Marlous) Fluitsma (Zutphen, 12 december 1946) is een Nederlandse actrice.
+Sommigen van hen konden de Nederlandse taal spreken en schrijven en werden Rangakusha - letterlijk: Holland-deskundigen - genoemd.
+Al onze gekweekte mosselen zijn daarom van A-kwaliteit, herkomst Nederland: Oosterschelde of Waddenzee.Al onze gekweekte mosselen zijn van A-kwaliteitDe mosselveilingZodra de mosselen geschikt zijn voor consumptie – en dat moment wordt volledig bepaald door de natuur zelf – vissen wij ze op.
+Q/A kan in het Nederlands of het Frans.
+Dan Mc. Mahon, agent van de Alaska Handel maatschappij, die hem ontmoet had in Dutch haven en later tusschen de Alentian eilanden groep.
+Ga voor hoogwaardig, vaak abstract onderzoek gericht op wetenschappelijke Angelsaksische toptijdschriften, maar zodra je ook maar enigszins naam hebt gemaakt, vul het aan met Nederlandstalige publicaties, waarmee invloed op het beleid uitgeoefend kan worden.
+De buitengerechtelijke kosten worden berekend op basis van hetgeen in de Nederlandse incassopraktijk gebruikelijk is.
+De Turing Toekenning is een donatie van €450.000 die elke twee jaar zal worden uitgereikt aan één museum om een bijzondere tentoonstelling mogelijk te maken die anders in Nederland... meer
+Zo dragen we bij aan de inclusie van jonge azc-bewoners in de Nederlandse samenleving.
+Zo onderscheiden ze zich als éénzelfde familie met een duidelijk gezicht.Elk icoon bestaat in Nederlands en Engels.
+Groenten en fruit uit bezette gebieden in de Nederlandse supermarkten
+De Commissie heeft besloten steunmaatregelen van de Spaanse overheid ten belope van in totaal 89 104 miljard PTA (557 miljoen ecu) in de vorm van compensatie van de verliezen ten behoeve van de scheepswerven AESA, Barreras, Astano, Juliana en Astander die tot de overheidsholding Agencia industrial del Estado (AIE) behoren.
+Klik hier voor alle veelgestelde vragen over het Amsterdam Light FestivalOfficial Partner Lovers Canal Cruises is officieel partner van het Amsterdam Light Festival Comfortabele Moderne Boten Onze boten beschikken over de laatste technologie voor ultiem comfort Audio Commentaar Audio commentaar beschikbaar in het Nederlands en Engels Amsterdam Light Festival met LOVERS canal cruises Een onvergetelijke er-vaar-ring vanaf het water!
+Zij is een icoon binnen het Nederlandse (dames)schaak. Peng heeft een grote staat van dienst opgebouwd.
+Leesclub met de Nederlandse schrijfster Lieke Marsman over haar veelbesproken romandebuut Het tegenovergestelde van een mens, een onderzoek naar engagement en apathie.
+bij de benaming van voeders voor gezelschapsdieren zijn de volgende begrippen toegestaan: in het Nederlands „samengesteld voeder”; in het Engels „pet food”; in het Hongaars „állateledel”; in het Italiaans „alimento”; in het Pools „karma”; in het Sloveens „hrana za hišne živali”; in het Spaans „alimento”; in het Fins „lemmikkieläinten ruoka”; in het Tsjechisch kan de benaming „kompletní krmná směs” worden vervangen door „kompletní krmivo” en kan „doplňková krmná směs” worden vervangen door „doplňkové krmivo”; in het Bulgaars „храна”.
+De Turing Foundation is hoofdbegunstiger... meer 2006 Uitbreiding openingstijden Museum Belvédère 2007-2009 Museum Belvédère is het eerste museum voor moderne en hedendaagse kunst in Friesland... meer Beeldende kunst De Vijfde Turing Toekenning, 2016-2017 Eén van de doelstellingen van de Turing Foundation is om meer mensen te laten genieten van beeldende kunst in Nederlandse musea.
+In het Nederlands Douanerecht 0 % op grond van Verordening (EG) nr. 1556/2006.
+De huidige routes, in zowel het Nederlands als het Europees luchtruim, zijn overbelast en niet altijd efficiënt, wat leidt tot overbodige CO2-uitstoot.
+De punt (.) en de komma (,) worden in het Nederlands in getallen gebruikt.
+Publicist en Spreker Daan Rijsenbrij heeft meegewerkt aan een groot aantal publicaties, zowel Nederlandstalig als internationaal.
+Talen: Nederlands, Frans, Engels, Duits, Spaans, Italiaans of Russisch (te bevestigen bij reservering)
+Wat denken pastoraal werksters in de Nederlandse bisdommen over het priesterambt voor vrouwen?
+Daarvoor ontwikkelden ze stoffen met de belangrijkste ijkpunten in de Nederlandse geschiedenis.
+Dankzij deze nauwe samenwerkingen blijf je op de hoogte van de meest recente ontwikkelingen binnen de verschillende disciplines.HOOG AANGESCHREVEN OPLEIDINGVolgens de Nationale Student Enquête (NSE), een landelijk onderzoek waarin jaarlijks studenten in het hoger onderwijs worden uitgenodigd om hun mening te geven over hun opleiding, zou 70% van de studenten Advanced Technology aanraden aan familie en vrienden.
+Wilhelmina verklaart, dat de jacht op mensen en de hulp van Nederlandse nazibendes ongehoord, misdadig en ongekend is in de Nederlandse geschiedenis.
+In het Nederlands Leverantie van boordproviand aan platform — Verordening (EG) nr. 800/1999
+Onze M & A adviseurs hebben een lange ervaring in Nederlandse bedrijven.
+Drie programmaboekjes bij de stomme film Mathias Sandorf (1921) Vanaf augustus 1921 werd de film Mathias Sandorf vertoond in de Nederlandse bioscoop.
+In 2017 wist Kjell Knudde de oorspronkelijke Britse tekenaar achter een strip uit de jaren 1920 te identificeren die ooit buitengewoon populair was in Nederlandse vertaling: 'Jopie Slim en Dikkie Bigmans', al was het decennialang onbekend wie het oorspronkelijk getekend had en wat de originele titel was: Harry Folkard's 'Billy Bimbo and Peter Porker'.
+Daarnaast zijn wij gespecialiseerd in het adviseren van Anglo-Amerikaanse beleggers en financiele instellingen die Nederlands vastgoed financieren of daarin beleggen.
+Type object brieven (correspondentie) Collectie Nynke van Hichtum, Nederlands- en Fries kinderboekenschrijfster Instelling Tresoar Bron 084.025.1.64a.1; PPN: 243874936 (brief), Nynke van Hichtum, Nederlands- en Fries kinderboekenschrijfster, Tresoar, Leeuwarden Copyright Tresoar; Voor informatie: Tresoar Dit object downloaden JPG-bestand Klein (0.02 MB) Groot (0.14 MB) Permalink Link tonen De permanente URL zorgt ervoor dat ieder digitaal object vindbaar blijft op internet, ook al verandert de naam van de website of het object.
+in het Nederlands Douanerecht verminderd met 25 % (Verordening (EG) nr. 1002/2007)
+In 2013 verscheen de familieroman Wij & Ik (Prometheus, 2013), waarvoor de Coster de Opzij Literatuurprijs 2014, de jaarlijkse prijs voor de beste roman van een Nederlandstalige schrijfster, in ontvangst mocht nemen.
+_ Both ENDS (print) sluiten Blog / 7 juni 2013 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+In die flarden zijn vaak op mensen lijkende vormen te herkennen en dat zijn, dat weet iedereen in dergelijke gebieden, de witte vrouwen, de witte wieven die ook nevelheksen worden genoemd..De handelaar die de weg kwijt was .Niet ver verwijderd van het Noordduitse plaatsje Georgsdorf bevondf zich een hele diepe kuil, maar alleen de mensen in de directe omgeving wisten precies waar dat was.
+Hij voelde zich het prettigst in intieme vertrekken zoals die in Nederlandse huizen.
+Deze richtlijn had op uiterlijk 17 januari van dit jaar in een Nederlandse wet vertaald moeten zijn.
+Keelband- of stormbandpinguïns zijn in het Nederlands alternatieve namen voor kinbandpinguïns.
+Deel 7: Hoe bouw je de versterker van Het Vanderveen Project HomeAboutResearch & DevelopmentPublicationsMasterclassesBooksProductsTransformersValve ElectronicsValve Power TransformersTubeSocietyTubeSociety 2018LesprogrammaProjecten TubeSocietyAanmeldenNews & EventsContact x Show Cart Please wait Deel 7: Hoe bouw je de versterker van Het Vanderveen Project Read in English Natuurlijk is iedereen vrij om de versterker van het Vanderveen project te bouwen zoals men wil; ik vertel hier over hoe ik het heb gedaan.
+Dat stelt ecoloog prof. Peter Herman, die op woensdag 9 mei zijn intreerede houdt aan de TU Delft.Afsluitdijk 'Als je terugkijkt naar grote waterbouwkundige projecten in de Nederlandse geschiedenis, dan is de oorspronkelijke hoofdreden voor de aanleg, vaak al snel achterhaald', stelt prof. Peter Herman in zijn intreerede als hoogleraar Ecological Hydraulic Engineering.
+Mechelen ligt in het hart van het Heuvelland.
+Roos van den Bekerom (1992) masterstudent Nederlands Recht met als specialisatie Privaatrecht.
+Hieronder de aankondiging van de Balie, te vinden op de website van de Balie:
+Een nieuw bedrijf dat zich op Nederlandse gebouwen richt is Tilly models.Ook de meer bekende merken zoals Pola en Kibri hebben Nederlandse modellen in hun assortiment, al hoewel deze moeilijk verkrijgbaar waren.
+(16 pagina's, 19 afbeeldingen in kleur, ISBN 90-7-402-14-9) Het ideale misverstand Op het moment dat ik schrijf dat de naam van De Vrede vrede betekent, realiseer ik me dat ik Nederlands schrijf, maar Engels denk.
+De man zei dat Ophelia in 't Hollandsch zooveel beduidde als Flora die in vroeger tyd beschermheilige van rozen en vergeetmenietjes geweest was.
+Aan de bovenkant van de munt ziet men in het Nederlands en het Frans de maand Mei (Mei - Mai) met daarnaast het jaartal 1968.
+Nobel-lezing in het Nederlands Tijdens de eerste helft van de avond gaf Feringa de Nederlandstalige versie van zijn Nobellezing.
+Er zijn slechts vier exemplaren van deze uitgave in Nederlandse bibliotheken bekend (Nijhoff-Kronenberg p. xxviii en 171-2 §466): één in Amsterdam (Rijksprentenkabinet, 325 E 1), één in Middelburg (Zeeuwse Bibliotheek), en twee in de Universiteitsbibliotheek Utrecht.
+Communicatievaardigheden De opleiding stelt de studenten in staat hun taalcompetentie te versterken op het vlak van professionele communicatie in het Nederlands en in minstens één en mogelijk twee vreemde talen.
+Je bezit goede mondelinge en schriftelijke communicatieve vaardigheden in zowel de Nederlandse als de Engelse taal.Wat mag je van je werkomgeving verwachten?TNO is een onafhankelijke onderzoeksorganisatie die op basis van haar expertise en onderzoek een belangrijke bijdrage levert aan de concurrentiekracht van bedrijven en organisaties, aan de economie en aan de kwaliteit van de samenleving als geheel.
+Als een maniak speurt hij in kunstboeken naar afbeeldingen van in het bijzonder de Hollandse en Vlaamse stillevenschilderkunst uit de zestiende en zeventiende eeuw.
+Theo Ringeling is de site van een modelbouwer met modellen (en voorbeelden) van Nederlandse militaire voertuigen
+Maar we konden zingen. Groepjes vrouwen zongen populaire liederen in het Nederlands of in het Engels.
+Er zijn zes site-specific werken van Serra en enkele vroege werken met rubber en neon, tekeningen en films in Nederlandse openbare collecties.
+Uit onderzoekresultaten gepubliceerd in 2011 blijkt dat er veel meer paddenstoelen aanwezig zijn in Nederlandse bodem dan ooit werd gedacht.
+In deze tijd verschenen 24 drukken van hem, waarvan tien in het Nederlands en veertien in het Latijn, en, heel opvallend, 22 geestelijke werken en twee wereldlijke.
+De verslagen verschenen eerst in het IMP-bridge magazine.
+In deze roman beschreef Last inderdaad de homoseksuele verhouding tussen de Urker vissers Theun en Auke. Last moet in 'Zuiderzee' (1934) één van de eersten in de Nederlandse literatuur zijn geweest die de homoseksuele liefde zo openlijk en vanzelfsprekend beschreef.”
+'Blauwe matrozen', een boek van Begga Dom 22.11.2007 De Belgische uitgeverij Clavis heeft onlangs een Nederlandstalig boek gepubliceerd met de titel "Blauwe Matrozen".
+Dit profiel is bedoeld voor mensen die aan het eind staan van een opleiding Nederlands als Vreemde Taal of aan het begin van een loopbaan als docent Nederlands als Vreemde Taal. Zij moeten kunnen omgaan met mondelinge en schriftelijke teksten op academisch niveau.
+Zij heeft een interessant onderzoek uitgevoerd naar het reilen en zeilen van Coba Baca met betrekking tot de acht Millenium Doelstellingen van de Verenigde Naties. Haar verslag van dit onderzoek is te vinden op de welkompagina van onze website cobabaca.org.
+De HSN-database bevat individuele levensgeschiedenissen en vormt daarmee een uniek instrument voor onderzoek op het gebied van de Nederlandse geschiedenis en demografie.
+Op de munten van e1 en e2 staan de woorden „Beatrix , Koningin der Nederlanden » rechts van de beeltenis , terwijl op de munten van 1 , 2 , 5 , 10 , 20 en 50 cent dezelfde woorden rond de beeltenis staan .
+wat er interessatnt is een je moet eerst een stuk vertalen en dan verder doen
 Als je aan één of meer van de onderstaande voorwaarden voldoet, voldoe je automatisch aan de taaleis voor deze opleiding: je hebt een havo- of vwo-opleiding afgerond je hebt een Nederlandstalige hbo- of wo-opleiding afgerond je hebt een vooropleiding buiten Nederland afgerond met Nederlands als tweede taal.
-Kosten Prijs Nederlandstalige algemene rondleiding: 55 euro (excl. museumentree en tot maximaal 20 personen)Prijs anderstalige algemene rondleiding: 60 euro (excl. museumentree en tot maximaal 20 personen) Annuleren is mogelijk tot 10 dagen van te voren.Daarna worden de kosten voor de rondleiding in rekening gebracht.Reserveren Laat ons weten wanneer je komt!
-Zo kunnen nieuwe coaching technieken getest worden om iemands levensstijl actiever / gezonder te maken, stress te beheersen, roken af te leren, enz. Zo wil imec een steentje bijdragen aan preventieve gezondheidszorg en de ontwikkeling van chronische ziektes voorkomen.Meer weten? Je kan het volledige rapport met alle cijfers opvragen door een mail te sturen naar imecmagazine@imec.be Meer info over het imec.icon project WONDER kan je vinden op deze website.
-Bekijk het hele programma SpecialisatiesPsychopathologie van volwassenen Psychopathologie van kinderen en jeugdigen Politiek en Samenleving NL + EN Als je de master Politiek en Samenleving volgt, krijg je meer kennis van de hedendaagse politiek en vooral meer inzicht in de professionele rol die je zelf kunt vervullen, niet alleen in de politiek, maar ook bij de overheid, media en in onderwijs en wetenschap.
-Lees het volledige artikel op Zorg & ICT Publicatie Auteur / Fox-IT expert: Martin Zandvliet Bron: Zorg & ICT Publicatiedatum: 22 augustus 2016 Tags Business continuity E-crime Ransomware Vertalingen Read in English Nu bij Fox-IT Wachtwoorden honderden Nederlandse bedrijven te koop op het dark web Fox-IT: 'Veel IT-leveranciers brengen hun klanten in gevaar door basis beveiligingsmaatregelen niet in de praktijk te brengen.'
-Internationale presentaties Aanvragen Presentatie Buitenland Activiteiten Biënnale van Venetië Bezoekersprogramma Mapping International Activities Contact Kalender Nieuwsbrief Mijn Fonds Faq nl en Internationale presentaties Aanvragen Presentatie Buitenland Bijdrage Presentatie Buitenland algemene voorwaarden aanvraagformulier Deze toelichting is bedoeld voor kunstenaars uit Nederland die een Bijdrage Presentatie Buitenland willen aanvragen.Buitenlandse platforms kunnen de Engelse toelichting raadplegen.
-Cheatsheet meldplicht datalekken Met de Cheatsheet meldplicht datalekken van Fox-IT kunt u snel en eenvoudig een eerste inschatting maken van security-incidenten.U krijgt snel inzicht in de technische aspecten van een datalek.Door de flowchart te volgen, weet u welke vragen u in ieder geval moet beantwoorden om te bepalen of de meldplicht datalekken mogelijk van toepassing is op het incident.
-Nogmaals, ik heb niet de doos, maar ze zijn meestal kleiner dan onze, bijna de grootte van de cartridge, omdat ze niet onder andere de beroemde stuk van polystyreen, dat werd gevonden in onze games en wiens aanwezigheid blijft een mysterie (maar ik denk dat het is meer ruimte op de achterbank te schrijven in het Frans + in het Nederlands).
-Deze werden gebouwd op de plaats van de tweede reeks van de stadsmuur (XIVe eeuw) en (XVe eeuw) en dat alleen werd overschreden in acht beroemde deuren: Namen, Halle, Anderlecht, Flandre, Rivage, Laken, Schaarbeek en Leuven. de R21 (grande ceinture in het Frans, grote ring in het Nederlands) is gelegen aan de oostelijke kant van de stad, tussen het Pentagon en de R0.
-SpecialisatiesHandels- en Ondernemingsrecht Privaatrecht Staats- en Bestuursrecht Algemeen Programma Politiek en Samenleving NL + EN Als je de master Politiek en Samenleving volgt, krijg je meer kennis van de hedendaagse politiek en vooral meer inzicht in de professionele rol die je zelf kunt vervullen, niet alleen in de politiek, maar ook bij de overheid, media en in onderwijs en wetenschap.
-Hoewel uit tabel 3 zou kunnen worden opgemaakt dat er een uitruil bestaat tussen de schepping van werkgelegenheid en de produktiviteitsgroei, is deze schijnbare tegenstelling tussen produktiviteit en banenschepping voornamelijk het gevolg van de voortdurende verdere specialisatie van de Nederlandse economie in de dienstensector.
-Met het Staatsexamen NT2 Programma II op taalniveau B2 (zie taalniveaus CEFR) en ONA heb je aan je inburgeringsplicht voldaan en mag je een permanente verblijfsvergunning of naturalisatie aanvragen.Bovendien spreek en schrijf je voldoende Nederlands om sociaal te functioneren en al je zaken te kunnen regelen.Je hebt bovendien toegang tot een Nederlandse hbo of universiteit om daar een Nederlandstalige studie te volgen.
-Voeg de producten toe aan de winkelmand Nee Boeken 1 product(en) gevonden Sorteren op: ArtikelnummerOmschrijving ArtikelnummerOmschrijvingBeschrijvingEenheid 55180800 Meeting the Lyre Choroi _ Engels Meeting the Lyre - van Gerhard BeilharzDeze methode voor volwassenen die lier willen leren spelen is ook zeer geschikt als zelfstudieboek.Dit boek is niet verkrijgbaar in het Nederlands.taal: 0 Engels ¦ 1 Duits Stuks Resultaat 1-1 van 1 1 Do not delete this link
-Marres Maastricht - Recensie Ko van Dun in het L1 Cultuurcafé Recensie Ko van Dun in het L1 Cultuurcafé Marres home Programma Educatie Over Marres Training the Senses Winkel Archief Nederlands English Marres Kitchen Bezoek ons contact Vrienden Media Films Educatie Stage lopen Groepsbezoek Zintuigen challenges Recensie Ko van Dun in het L1 Cultuurcafé Klik hier om naar de recensie te luisteren Recensie Ko van Dun in het L1 Cultuurcafé Capucijnenstraat
-Lees het volledige nieuwsbericht op de website van Eindhovens Dagblad Publicatie Auteur: Eindhovens Dagblad Fox-IT expert: Ronald Prins Bron: ED.nl Publicatiedatum: 20 april 2016 Tags Ronald Prins Vertalingen Read in English Nu bij Fox-IT Wachtwoorden honderden Nederlandse bedrijven te koop op het dark web Fox-IT: 'Veel IT-leveranciers brengen hun klanten in gevaar door basis beveiligingsmaatregelen niet in de praktijk te brengen.'
-Deze kan verschillen van de titel die in (recente) publicaties wordt gegeven.Portret van Johanna de Visscher (1604-1676) Engelse titel Portrait of Johanna de Visscher (1604-1676) Onderwerpstrefwoorden wapenplaats (rechtsboven), ten halven lijve, hoofd naar links, lichaam naar links, aanziend, vrouwenportret Voorgestelden IB nummer Nummer gerelateerd aan de colletie portret-iconografie RKD.23892 Johanna de Visscher 1604-12-27 - 1676 Naam Visscher, Johanna de VoorlettersJ.
-Bij het Gemeenschappelijk Hof van Justitie van Aruba, Curaçao, Sint Maarten en van Bonaire, Sint Eustatius en Saba mag naast Nederlands ook Engels en Papiaments gesproken worden.Bron: nua _ Categoriën: Geen Colofon Volg Nieuws uit Amsterdam:Twitter, RSS Oudewebsite Verkiezingen Colofon Follow News from Amsterdam:Twitter, RSS Oldwebsite Find apolitician Colofon Volg Nieuws uit Amsterdam: Twitter, RSS Oude website Verkiezingen Colofon Follow News from Amsterdam: Twitter, RSS Old website Find a politician
-Bij Andriessen gaat het daarbij om werken voor muziektheater, maar ook om instrumentale en instrumentaal-vocale composities.' Julia Kursell, hoogleraar Muziekwetenschap en erepromotor, voegt daaraan toe: 'Andriessen heeft een essentiële rol gespeeld in het muziekleven in Nederland en wereldwijd, als compositiedocent aan het Koninklijk Conservatorium en in de ontwikkeling van de ensemblecultuur.' Inspiratie Karen Maex, rector magnificus van de UvA: 'Louis Andriessen is een inspiratie voor velen.
-Ein Weg zur Leier Artikelnummer 55180801 Grotere afbeelding Ein Weg zur Leier Artikelnummer 55180801 Meeting the Lyre - van Gerhard BeilharzDeze methode voor volwassenen die lier willen leren spelen is ook zeer geschikt als zelfstudieboek.Dit boek is niet verkrijgbaar in het Nederlands.taal: 0 Engels ¦ 1 Duits Afdrukvoorbeeld Specificaties Merk: Choroi Taal: Duits Recent bekeken producten Alles bekijken Wissen Meeting the Lyre Artikelnummer 55180800 Pentat. + intervalfluiten v...
-te koop bij Surplus Select Homogenisator, GEA Niro Saovi, Ariete NS3006L, 2-traps, sanitaire uitvoering, max. viscositeit 10.000 cP, max druk 1.000 bar, max. volume 120 liter/h, max. producttemp. 90 graden Celsius, max. CIP/SIP temp. 140 graden Celsius, Monoblock VHP drukkop, keramische plunjers, 32,6 draaiuren, documentatie aanwezig, gebruikt in pilotplant in de levensmiddelenindustrie Surplus Select is partner voor de procesindustrie in MVO / hergebruik.
-OK Lees meer over ons cookiebeleid.Overslaan en naar de inhoud gaan Onderwijs Onderzoek UM in de wereld Life@UM Nieuws & agenda Over de UM Support My UM U bent hierHome Nieuws & agenda Het stimuleren van gezonde en zieke hersenen Contact NL EN 7 feb 2019 UM Star Lecture in AmsterdamHet stimuleren van gezonde en zieke hersenenWe kunnen tegenwoordig elektromagnetische pulsen gebruiken om de hersenen te stimuleren, non-invasief en zonder bijwerkingen.
-2,7 KB 09/06/1999) Als de tewerkstelling in België langer dan drie maanden duurt, moet u de volgende documenten indienen: Formulier Aanvraag tot toelating tot arbeid voor een periode langer dan drie maanden in het kader van een vrijstelling voor een werknemer van vreemde nationaliteit - Werkgever in België - Gecombineerde vergunning Geneeskundig getuigschrift van de Dienst Vreemdelingenzaken voor werknemers van vreemde nationaliteit Andere in te dienen documenten
-Sterke winstgroei Friesland Foods 6 maart 2008 Jaarcijfers 2007 Friesland Foods Kievit van start met nieuwe Filtermat droger in Indonesië 25 februari 2008 Sproeidroog- en encapsulatie specialist Campina opnieuw favoriet bij Nederlandse consument 21 februari 2008 Voor zesde jaar op rij bezorgen Campina-producten supermarkten de meeste omzet Campina is voor het zesde jaar achtereen het merk in de Nederlandse supermarkten dat consumenten het meeste kopen.
-De Belgische rechter wenst van het Hof te vernemen of het Vlaams taaldecreet inbreuk maakt op het vrije verkeer van werknemers binnen de Europese Unie, voor zover het een in het Nederlandse taalgebied gelegen onderneming verplicht om, op straffe van nietigheid, alle documenten over de arbeidsrelatie op te stellen in het Nederlands wanneer zij een werknemer voor een internationale baan in dienst neemt.
-Het Arbeidshof oordeelde evenwel dat de Duitse ven nootschap zich niet kon beroepen op het bevoegdheidsbeding, op grond dat de arbeidsovereenkomst krachtens artikel 10 van het decreet tot regeling van het gebruik van de talen voor de sociale betrekkingen tussen de werkgevers en de werknemers, aangenomen door de Cultuurraad van de Nederlandse cultuurgemeenschap op 19 juli 1973 (Belgisch Staatsblad, blz.
-Hij promoveerde in 1985 aan de University of Chicago.Hij is sinds 1987 verbonden aan de University of Minnesota, en sinds 2008 aan de Universiteit Leiden.Curriculum vitae (met o.a. een volledig overzicht van alle publicaties) Oratie Paul van den Broek (uitgesproken op 2 november 2009) Research Paul en zijn medewerkers onderzoeken de cognitieve en neurologische structuren en processen die van invloed zijn op leren en lezen, bij zowel kinderen als volwassenen.
-De ontwerpen zijn subtiel, vernieuwend en onconventioneel, met duidelijke roots in de Dutch design traditie. > Lees meer Meer van Pols Potten Pols Potten mand Flipflop Small € 42,50 Pols Potten Undressed theekopjes porselein - set van 4 € 62,90 Pols Potten schaal Bark bowl € 179,00 Waterglas gekleurd glas Set van 6 verschillende Elk fraai waterglas in deze set van 6 heeft een ander patroon en een andere kleur glas.
-Met dit besluit wil de KNAW bijdragen aan een betere vertegenwoordiging van vrouwen op belangrijke posities in de wetenschap. Directe aanleiding voor het initiatief is de aanstaande viering van het Westerdijkjaar: op 10 februari 2017 is het honderd jaar geleden dat Johanna Westerdijk bij de Universiteit Utrecht haar oratie uitsprak.De plantenziektekundige, oud-directeur van het Centraalbureau voor Schimmelcultures van de KNAW, werd daarmee de eerste vrouwelijke hoogleraar van ons land.
-Maar in deze context liep de kunst in mijn ogen hetzelfde gevaar, om nooit alarmerend te worden. Daarom voegde ik een passende geluidsinstallatie aan op het gebouw en liet ik mijn oproep tot overgave ieder uur over het terrein schallen: een gedicht over afhankelijk zijn van zoiets kwetsbaars als inspiratie en de overgave die er bij mij en de bezoeker voor nodig is om haar op waarde te schatten.
-Deze centrale is bedoelt voor montage in bijv. ee... € 449,00 € 414,00 Sale PowerMaster 30 PG2 centrale De Visonic PowerMaster 30 losse alarmcentrale bestaate uit een modern vormgegeven centrale met geïntegreerde keypad met LCD, ingebouwde spraakbegeleiding in het Nederlands, ingebouwde sirene en backup accu. € 449,00 € 414,00 PowerMax Pro alarmcentrale De Visonic PowerMax Pro losse alarmcentrale is een compacte professionele draadloze beveiliging en persoonlijke veiligheid.
-Mijn naam is Lisa Dacosta, een native speaker van het Engels uit Birmingham in het Verenigd Koninkrijk. Ik woon al bijna twintig jaar in Nederland en in die tijd heb ik het begrip taalprofessional eigen gemaakt. Dit heb ik gedaan door onder anderen een bacheloropleiding Vertaler Engels te volgen en als in-house vertaler bij een vertaalbureau te werken. Ik heb nu een eigen taaldienstenbureau dat vertalingen van het Nederlands naar het Engels en Engelse redactie biedt.
-16 september 2015 BPRC directeur Bontrop in het AD In het Algemeen Dagblad van 27 augustus 2015 vertelt BPRC directeur Ronald Bontrop over het apenonderzoek dat binnen het BPRC wordt gedaan. 26 augustus 2015 Een therapeutische antistof tegen experimentele MS in marmosets toont twee tegengestelde effecten In een muismodel voor multiple sclerose (MS), was een therapeutisch antilichaam tegen een stof van het immuunsysteem, IL-7, 100% effectief in het voorkomen van ziekte.
-De ontwerpen zijn subtiel, vernieuwend en onconventioneel, met duidelijke roots in de Dutch design traditie. > Lees meer Meer van Pols Potten Pols Potten mand Flipflop Large € 62,50 Pols Potten kandelaar Twiggy S € 128,50 Pols Potten Bubbles & Bottles Chic flessen set € 249,00 Wijnglas gekleurd glas Set van 6 verschillende Elk fraai wijnglas in deze set van 6 heeft een kelk met een ander patroon en een andere kleur glas.
-Om in aanmerking te komen voor een vergunning voor permanent verblijf moet in Nederland nog een keer een inburgeringsexamen gedaan worden, het inburgeringsexamen binnenland.In december 2003 kreeg een consortium bestaande uit het CINOP, LTS en Ordinate van het Ministerie van Justitie de opdracht om een examen te ontwikkelen voor toetsing van mondelinge taalvaardigheid in het Nederlands. Deze toets was in eerste instantie bedoeld voor het inburgeringsexamen buitenland, maar werd ook ontwikkeld om ingezet te kunnen worden voor het inburgeringsexamen binnenland.
-Bij maatregel van instructie van 10 maart 1992 heeft het Gerecht de Commissie verzocht, "een voor gelijkluidend gewaarmerkt afschrift over te leggen van de beschikking van de Commissie van 21 december 1988, zoals deze door het college van commissarissen is vastgesteld tijdens zijn vergadering van 21 december 1988 en is geauthentiseerd op de wijze als voorzien in het Reglement van orde van de Commissie", in de taalversies waarin die beschikking is vastgesteld.
-1999 noodzakelijk is geworden, alleen op het jaar 2000 drukt, heeft de Raad bij een verordening van september 2000 de verlaging over vier jaar gespreid en aldus over 2000 tot en met 2003 verdeeld (30 % verlaging in 2000, 2001 en 2002 en 10 % in 2003). Oostenrijk vecht deze verordening aan.
-Wederom een aanvulling op de Franse Kasteel Serie: een sidetable. Een eenvoudig te maken kit, in slechts 5 stappen is deze kit al klaar! Instructies in het Nederlands, Engels en Duits, compleet met stap-voor-stap foto's. Afm: 115 mm breed x 35 mm diep x 62 mm hoog. Op de foto's van de bloemenwinkel, kunt u zien dat wij 1 tafel binnen hebben gezet en op exact dezelfde plaats 1 tafel buiten. Hierdoor wordt een bijzonder effect verkregen.
+Ook zijn meerdere traktaten uitgegeven in het Nederlands en is er een film gemaakt van William Branham in zeven talen, met zijn levensgeschiedenis.
+In sommige vakgebieden, eisen universiteiten de lezing van de kennis in het Nederlands. Vaardigheid in het Nederlands zal uw kansen vergroten om toegelaten tot de universiteit.
+Shalten haalde zijn Master Nederlands Recht aan de Erasmus Universiteit Rotterdam in Nederland. Shalten spreekt Nederlands, Engels, Spaans en Papiamento.
+Sinds het begin van de jaren zestig was Van der Werf de eerste Nederlandse coach die zich specialiseerde in pitching en hij werd de nummer één pitching coach in het Nederlandse softbal en waarschijnlijk zelfs Europa. Bram van der Werf was de pitching coach van het Nederlands Softbal Team in 1979-1987 en behoorde 21 jaar tot de coachingstaf van Jong Oranje in 1975-1995.
+Het Vlaamse gewest is eentalig, hoewel er administratieve punten zijn in het Frans, hier, hier en hier.
+Die etiketjes zie je echter zelden of nooit in de Nederlandse supermarkten.
+"De gecroonde leerse" is de De Swaens enige klucht en een van de voornaamste werken uit de Nederlandse literatuur.
+Ook internationaal gezien zijn de uitgaven per student in het Nederlandse hoger onderwijs hoog in vergelijking met de andere onderwijsniveaus.
+Helaas zijn lessen in het Nederlands op dit moment niet beschikbaar.
+Campina behoudt zijn koppositie voor het 9e jaar op rij (sinds 2002).In de top 100 van grootste A-merken die het marktonderzoekbureau IRI jaarlijks samenstelt voor het vakblad Foodmagazine is FrieslandCampina vertegenwoordigd met acht merken.
+Het boek is uitgegeven door 010 Publishers, telt 192 pagina's en is voor € 39,50 verkrijgbaar.
+Boek een combikaartje voor de treinreis naar Amsterdam en toegang tot het museum Meer informatie Rembrandt & de Gouden Eeuw Vier het leven en de prestaties van Rembrandt in Nederlandse musea tijdens het themajaar Rembrandt en de Gouden Eeuw.
+Aan de vooravond van de negentiger jaren: Imago: Fin de Siècle in Dutch Contemporary art was een reizende expositie gefinanceerd door Rijksdienst Beeldende Kunst (inmiddels Instituut Collectie Nederland) en georganiseerd door Montevideo.
+SBMK en NIMk hebben met het Virtueel Platform een projectplan ontwikkeld voor de volgende fase in de toekomst van de mediakunst in Nederlandse museumcollecties.
+'Darwin comes to town - how the urban jungle drives evolution' kwam in februari uit in het Engels en zal binnenkort ook in het Nederlands verschijnen.
+De in dit boek aangereikte teamspelen hebben hun waarde bewezen op dá­e plaatsen waar zowel kinderen, pubers, jonge volwassenen (in school, in de vrije tijd, op feesten) als volwassenen (bij opleiding, tijdens congressen, op de zaak of privé) bijeen zijn.Dit boek is niet verkrijgbaar in het Nederlands en Engels.Taal: DuitsMichael Birnthaler (1963 Regensburg) is gediplomeerd pedagoog met specialisaties kunst, sport en aardrijkskunde.
+Vertalen van Macedonisch MK = > NL Vertaling Nederlands Omkeren!
+Naast stukken waarin hij lyrisch verslag deed van de verrichtingen van het Concertgebouworkest onder Eduard van Beinum en vol enthousiasme sprak over verheugende ontwikkelingen in het Nederlandse componeren (hij roemde de werken van Rudolf Escher), verschenen ook weer felle, polemische artikelen.
+Tijdens het toernooi 1903/04 won HFC met 25-0 tegen VVV uit Amsterdam, nog altijd een record in de Nederlandse bekercompetitie.
 Landelijke Werkgroep Duivenoverlast - Duiventillen In English Home Nieuws Duiventillen Duivenoverlast Contact Links Duiventillen in Nederland Op de Bijenkorf in Amsterdam In het centrum van Rotterdam In de stad Zutphen Een plek voor duiven: hoe leven ze in zo'n til?Herkomst van de "duiventillenmethode"De duiventil op de Bijenkorf in Amsterdam Voor het eerst werd de plaatsing van een duiventil in Nederland internationaal aangekondigd: op 13 oktober 2004 vond de feestelijke opening plaats van de eerste duiventil in Amsterdam .
-Sommige foto's zijn eerder gepubliceerd, maar minstens zo vaak doken ze, ook tot verrassing van hun maker, op uit zijn archief - foto's die hij even uit het oog was verloren of die, achteraf, toch meer lieten zien dan ze in eerste instantie wilden prijsgeven.Gezamenlijk geven ze een overzicht van Cocks fotografische ontwikkeling.En: soms op de achtergrond, soms op de voorgrond, weerspiegelen ze iets van de veranderingen die zich in de loop van de tijd hebben voltrokken in de Nederlandse samenleving.
-Cineast Alex Roosdorp fietste samen met zijn vrouw 1000 kilometer door Nederland. Hij filmde onderweg de gevolgen van de Duitse bezetting: woningen gebouwd in kippenhokken, kinderen spelend met achtergelaten munitie en wapens, maar ook voorzichtige tekenen van herstel van schade aan huis en haard. Roosdorp & rsquo;s documentaire lag ruim 50 jaar onopgemerkt in de archieven van filmmuseum EYE. Het NMM heeft er, in combinatie met historische objecten uit de eigen collectie, een bijzondere tentoonstelling van gemaakt waarin filmbeelden, muziek en objecten een uniek moment uit de Nederlandse geschiedenis tot leven brengen. < /p >
-Nu heeft géén mens z'n talenten voor het kiezen, al was het vijfentwintig jaar lang mode aan de UvA om dat te ontkennen: "alles is keus"; en wie ook maar suggeréérde dat er énige menselijke ongelijkwaardigheid zou kunnen zijn tussen, zeg, Einstein en Eichmann, was "een fascist, een terrorist", want "alle mensen zijn gelijkwaardig" - maar zoals u (wellicht) begrijpt geloof ikzelf dat niet, omdat Cruyff beter voetbalt dan ik, Hazes beter zingt dan ik, en Brood oneindig veel meer spoot dan ik, om welke reden zij allen véél bekender en rijker zijn dan ik, in Neerland, zodat we inderdaad niet "gelijkwaardig" zijn.
-Thursday, July 03, 2008 René Didi Duprat ( To the English translation) In de jaren dertig en veertig van de vorige eeuw bevonden zich tussen de vele manouche gitaristen een "gadjo" die geprezen werd om zijn fijne begeleiding - René Didi Duprat.Hij was o.a. de vaste begeleider van Tony Muréna, maar speelde ook met diverse andere beroemdheden.George Lankester schreef een bijdrage over deze onbekend gebleven gitarist, met als ondertitel Een gitarist die meer bekendheid verdient.Tijdens een briefwisseling met zijn vrouw, de weduwe Denise Duprat, heb ik, zo schrijft George, aanvullende informatie gekregen en foto's over deze bijzondere gitarist.Ensemble Tony Murena met Didi Duprat."Didi" wordt op 12 oktober 1926 te Parijs geboren.
+Het losgeld nota is in het Nederlands en heeft de Nederlandse politie en Buma Stemra logo's erin.Distributie MethodeExploit Kits.
+Niet echt vertrouwd met de reggaewereld, maar wel goed in Nederlands en Frans.
+Een tekst in het Engels heeft meestal minder woorden nodig dan de overeenkomstige tekst in het Nederlands. Het aantal woorden in het Duits en in het Nederlands verschilt niet veel.
+Nederlands Overeenkomstig Verordening (EG) nr. 1982/2005 ingediende certificaataanvraag
+Zo werden tijdens de hittegolf van 2006 in Nederland extra sterfgevallen geregistreerd door het UHI-effect.SatellietenLeyre Echevarría Icaza onderzocht tijdens haar promotie-onderzoek wat de beste manier zou zijn om in Nederlandse steden het UHI-effect te temperen. Zij pleit voor het gebruik van satellietbeelden om UHI-effecten in kaart te brengen en te analyseren.
+Zinnen en woorden in het Nederlands en het Nederlands
+Voor kinderen is er een animatieprogramma in het Nederlands.
+Van dit werk verschenen er verschillende drukken in het Nederlands (GW M43052, druk van 1479; druk van 1483 (GW M43050): ) en in het Latijn (GW M 43002) (zie de links naar een Latijns origineel en een ander Latijns origineel).
+Les 14 - Dagen van de week in het Nederlands
+HomeHome (Nederlands)Home (English)ArticlesArtikelenArtikelenArchiefOnline firstInternationale tijdschriftenLiteratuurbulletinNieuwsInternationale PublicatiesCongresOpiniestukkenAankondigingenHet TijdschriftHet TijdschriftRedactieKoos Slob PrijsDebutantenprijsPrivacyverklaringAuteurs en ReferentenInformatieProcedureAanwijzingenAbonnement Mijn TVS StartArtikelenToon items op tag: seksuele grensoverschrijding Attitudes tegenover seksueel grensoverschrijdend gedrag met mannelijke slachtoffers en vrouwelijke daders Auteur(s) Anneloes Huitema, Ine Vanwesenbeeck Show to public Yes In dit vignetonderzoek werden de verschillen onderzocht in attitudes over seksuele grensoverschrijding met een mannelijke dader en een vrouwelijk slachtoffer versus een vrouwelijke dader en een mannelijk slachtoffer.
+Willy Alberti (artiestennaam van Carel Verbrugge; Amsterdam, 14 oktober 1926 – aldaar, 18 februari 1985) was een Nederlands zanger, acteur en televisiepresentator.
+Wij delen — ik wil het fonduit zeggen — het veriangen naai liberalisatie, zoals wij ondubbelzinnig de wil hebben ondeischteven om pei 1992 de ene matkt tot stand te brengen.
+_ Both ENDS (print) sluiten Nieuws / 25 juni 2014 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+Hij schrijft cannabis voor aan patiŽnten sinds 18 maanden en zij krijgen hun middel (Bedrocan, Bediol) in Nederlandse apotheken.
+In winkelwagen Media Horen Lezen En Spelen Deel 1 Voor Dwarsfluit 27,95 Levertijd op aanvraag Lesmethode voor blaasinstrumenten, inclusief Cd met begeleidingspartijen.Uitgave voor dwarsfluit.In winkelwagen Media Tim Van Roy - Impro Course 30,- Levertijd op aanvraag Heb je je ooit al afgevraagd hoe het komt dat sommige gitaristen solo's zomaar uit hun mouw lijken te schudden?
+Alcoholvrije wijn in Nederlandse supermarkten _ Wijn en gastronomie in Nederland en Vlaanderen [gearchiveerde website] Taal: Nederlands English Nieuws Proefnotities Colofon Proefstalen WijnIdee Archief Alcoholvrije wijn in Nederlandse supermarkten 02/06/2009 Jozef Schildermans Nieuws 3 De alcoholvrije wijn van Domaine de Fleur zijn nu ook verkrijgbaar in Nederlandse supermarkten.
+Tentoonstelling:Nederlandse krantenartikelen van begin vorige eeuw
+De Nederlandse survey heeft de beloningssystemen die in de Nederlandse industrie worden toegepast, in de volgende rubrieken verdeeld:
+Beluister het interview bij het Oog
+Er is geen een schrijver in de Nederlandse historie wiens leven zo hecht gerelateerd was aan zijn werk als Multatuli. Hij werd uitgezonden naar wat heden Indonesië is; een voormalige kolonie van Nederland. Hij werd aangesteld voor in bestuurlijk werk.
+_ Both ENDS (print) sluiten Blog / 30 september 2011 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+Vreemd detail: de afdrukbreedte valt tussen 60 en 220 cm in het Nederlands, maar tussen 61 en 200 cm in Frankrijk.
+Ik ben bijvoorbeeld blij met het be sluit van de Ierse regering, van de afgelopen week, om ge volg te geven aan het voorstel een gevangeniscommissie in te stellen.
+Deze werpen geen enkel probleem op ten aanzien van de in tentie ervan.
+in het Nederlands „Toe te passen restitutiebedrag: …”
+De bachelor kan wetenschappelijke en journalistieke teksten in het Nederlands, Frans en Engels lezen, begrijpen en analyseren.11.
+Privélessen voor Nederlands in Leuven Publiceer een LesAanmelden Privélessen voor Nederlands in LeuvenVind je perfecte nederlands leraar in Leuven.Leer nederlands met onze leraren bij u thuis of bij de leraar.PrivélessenNederlandsNederlands in Leuven11 nederlands leraren in LeuvenBij de leraar?Thuis?
+1992 Voeten treedt in het huwelijk met Charlotte Zwemmer, neerlandica en filosofe uit Leiden.
+Zijn werk is verschenen in Nederlandse en internationale tijdschriften, waaronder SEW, German Law Journal, European Constitutional Law Review en Common Market Law Review.
+Stralende beelden in Scheveningen (Telegraaf) Ossip Zadkine in Beelden Aan Zee De Vijfde Turing Toekenning, 2017 Eén van de doelstellingen van de Turing Foundation is om meer mensen te laten genieten van beeldende kunst in Nederlandse musea.
+Indien mogelijk bericht in Nederlands/Engels en met foto aanleverenUT MagazineBoodschapEen magazine met verhalen, interviews en columns over het onderzoek en onderwijs dat de Universiteit Twente te bieden heeft, portretten van alumni, en artikelen over spin-offbedrijvenDoelgroepAlumni en relatiesContactAlumni OfficeHoofdcategorie: Nieuws en events aanleverenType informatie: Aanvraag, ToelichtingBetrokken diensten: Marketing & CommunicatieLaatst gewijzigd: do 15 dec 2016...Diensten ABCNieuws en events voor alumniDeel deze paginaUniversiteit TwenteDrienerlolaan 57522 NB Enschede053 489 9111info@utwente.nlRouteDisclaimer & CopyrightPrivacy & CookiesLaatste update 09-11-2016
+In een nieuw design verschijnt de gids voor het eerst behalve in het Duits en Engels ook in het Nederlands en Frans. Bezoekers van Aken kunnen met de handige folder op eigen houtje de keizerstad en haar bezienswaardigheden, monumenten en fonteinen verkennen.
+Commissie legt geldboeten op aan zeven ondernemingen in Nederlands kartel op het gebied van industriële gassen
+spreektaal Engels . boventiteling Nederlands
+Wekker schreef in 2016 het veelbesproken en urgente boek White Innocence: Paradoxes of Colonialism and Race, waarin ze de centrale paradox in de Nederlandse cultuur onderzoekt waarin ras passie en agressie oproept, terwijl het bestaan van ras en racisme tegelijkertijd in alle toonaarden wordt ontkend.
+Van alle gouverneurs-generaal is een karakteristiek opgenomen.Dit boek is Nederlandstalig.
+We zagen dit al voor België en ook dat was in Nederlands Limburg niet anders.
+Belgische restanten in Congo van nu Door Hans Hoekstra - Het Parool
+140.000 kilometer afgelegd In totaal hebben we 33 nieuwbrieven (deze laatste meegerekend) gemaakt, zowel in het Nederlands als in het Engels, die we verstuurden naar maximaal 6038 ontvangers. We willen toch nog één laatste verzoek doen: de geefmaand is weer in aantocht en hoe mooi zou het zijn als we los van de bedragen die ik hierboven al heb genoemd, eind december nog voor een allerlaatste keer wat geld naar de projectpartners zouden kunnen overmaken?
+Deze is afkomstig van restanten van offerkaarsen afkomstig uit Nederlandse kerken.
+Femke's eerste roman verschijnt dit najaar bij Ambo_Anthos Hallo Femke,
+/ Ook uitgegeven in het Nederlands
+Ons laatste voorbeeld is interessant omdat we twee versies hebben, een Nederlandse en een Franse (nr 8 en 9).
+Nederlands Bergrassen (Verordening (EG) nr. 659/2007), invoerjaar: …
+­ Deelname van ACS­staten en ongeassocieerde ontwikkelingslanden aan de partners­in­progress­beurs te Berlijn 10/2.2.20 ­ Deelname van Afrikaanse producenten aan de „Afrikaanse houtdagen" te Brazzaville 10/2.2.43
+Om een echt onderscheid te maken tussen de sociale groepen in de Nederlandse gemeenschap is ingewikkeld.
+Meer info € 33,95 Tijdelijk uitverkocht Zuidam - Rogge Genever, 1 Y - American Oak Zuidam bestaat al sinds 1974 en heeft de standaard gezet voor kwaliteit in Nederlands gedistilleerd.
+In de nieuwe paragraaf 13­2 wordt op een meer precíese ma­nier de omrekeningsmethode bepaald van de tijdvakken ver­vuld krachtens de wetgeving van een andere Lid­Staat dan het Verenigd Koninkrijk, voor het bedrag dat werkelijk ver­schuldigd is krachtens artikel 46, lid 2, onder b) van de veror­dening.
+> Uitgebreide geschiedenis van Café-pub Soho
+Spinozapremie 16 juni 2017 De NWO-Spinozapremie is de hoogste onderscheiding in de Nederlandse wetenschap.
+Zuidam - Rogge Genever, 3 Y American Oak Nederland Zuidam bestaat al sinds 1974 en heeft de standaard gezet voor kwaliteit in Nederlands gedistilleerd.
+Dit blijkt onder andere uit de huidige activiteiten in de bij ELAINE aangesloten gemeenten en kwam ook naar voren tijdens de ELAINE-workshop over beroepsopleidingen voor etnische minder heden in Mannheim (december 1992).
+Keep (it) Swinging: Sonnymoon for all Keep (it) Swinging A weekly web log in Dutch and English to share my passion for jazz, jazz-related music, record collecting and other music projects that surprise me. _ Een wekelijkse weblog in het Engels en het Nederlands waarin ik mijn passie voor jazz, jazz-verwante muziek, platenverzamelen en verrassende projecten met anderen wil delen.
+Zij zijn beide geworteld in de Nederlandse samenleving en voelen zich hier nauw mee verbonden.
+De meeste boeken zijn in het Nederland met uitzondering van enkele Engelse boeken.
+Titus Rivas Deze recensie werd geschreven voor Terugkeer, 2012.Contact: titusrivas@hotmail.com
+Scholing voor werkzoekenden is grotendeels in handen van de overheidssector, die het grootste deel van het budget voor de Centrale en Regionale Arbeidsvoorziening beschikbaar stelt en een groot deel van de financiering verzorgt van 'tweede kans'onderwijs en opleidingstrajecten voor integratie van nieuwkomers in de Nederlandse maatschappij (bijvoorbeeld etnische minderheden en vluchtelingen).
+Concentraties: Commissie keurt deelneming ABN AMRO en Rabobank in Nederlandse kledinggroothandel HVEG goed
+Koninklijk besluit houdende de procedure tot vergunning en machtiging van bepaalde activiteiten in de zeegebieden onder de rechtsbevoegdheid van België (PDF, 10 pp., 90 KB)
+En wat dat betekent voor groente en fruit in onze supermarkten
+Deze kan verschillen van de titel die in (recente) publicaties wordt gegeven.Portret van Leendert Alexander Johannes Burgersdijk (1828-1900) Engelse titel Portrait of Leendert Alexander Johannes Burgersdijk (1828-1900) Onderwerpstrefwoorden borststuk, hoofd naar rechts, lichaam naar rechts, en profil, mansportret Voorgestelden IB nummer Nummer gerelateerd aan de colletie portret-iconografie RKD.27151 Leendert Alexander Johannes Burgersdijk 1828-03-11 - 1900-01-15 Naam Burgersdijk, Leendert Alexander Johannes Academische titeldr.
+in het Nederlands Douanerecht „0” — Verordening (EG) nr. 828/2009
+Both ENDS zet deze dynamieken heel scherp op de kaart en laat zien wat nodig is in Nederlands en internationaal beleid om de zeggenschap en rechten van lokale gemeenschappen te versterken.
+Lennard is sinds 2013 werkzaam bij Van Diepen Van der Kroef Advocaten en houdt zich voornamelijk bezig met het arbeidsrecht, ondernemingsrechten het procesrecht.
+Ik krijg het Spaans benauwd van die Grieken.
+In dat jaar werd ook een prototype van de FSO Polonez sedan (later geproduceerd als Atu of Celina) gepresenteerd, met wederom een nieuw dashboard, nieuwe bekleding en een gewijzigde achterwielophanging met schroefveren.
+De informatie die u zoekt, is nu nog beschikbaar in het Nederlands en in het Engels.
+Wij leerden getuigenis geven in het Nederlands en het Maleis, en wij predikten zowel in de huizen van de welgestelden als in de groepjes dicht op elkaar staande hutjes die kampongs worden genoemd.
+Ook voor middelbare scholieren mbt huiswerk en examens of bijvoorbeeld internationals gericht op het leren van Nederlands.Engels · NederlandsVertaal deze tekst met Google Translate.Anja - Affligem, België$30.69$30.69Solliciteren met succes en in correct Nederlands voor je droomjobBetrouwbare leraar: Je leert vacatures doornemen in het Nederlands en een gepaste vacature selecteren.Je formuleert onder de begeleiding van de docent een schriftelijke en mondelinge motivatie voor jouw droomjob.
+De master kan op een zelfstandige en nauwgezette manier experimenten plannen, uitvoeren, wetenschappelijke data verzamelen en op een statistisch correcte manier analyseren, evalueren en rapporteren.De master kan accuraat wetenschappelijk rapporteren en communiceren in het Nederlands en het Engels.7.
+Krisis publiceert dan ook in het Nederlands en het Engels.
+In Nederlandse schilderijen uit die tijd wees een open vrouwenmond op seksuele beschikbaarheid.
+Attac streeft niet naar veranderingen van onderop, integendeel, men pleit voor "versterking van de ruimte van nationale/regionale overheden om eigen financieel en economisch beleid vorm te geven". 1 Of die staten in eniger mate "democratisch" zijn, lijkt daarbij voor Attac pas op de tweede plaats te komen. Zo zegt Attac-medewerkster Jantien Meijer in Dusnieuws over de politiek van een aantal dictatoriale staten in Azië om zich af te sluiten voor buitenlands kapitaal: "Nou is het niet zo dat dat vanuit allemaal mooie democratische en gelijkheidsprincipes voortkwam, slechts ter bescherming van de elite...
+1. Schrijf elke dag wat in je doeltaal .
+In 2010 bracht Roeland het boek '100 x creatief met taal' uit (ook beschikbaar in het Frans en Engels).
+Deze kan verschillen van de titel die in (recente) publicaties wordt gegeven.Portret van een onbekende vrouw Engelse titel Portrait of an unknown woman Onderwerpstrefwoorden kniestuk, zittend, vrouwenportret Voorgestelden IB nummer Nummer gerelateerd aan de colletie portret-iconografie RKD.22531
+Naast programmeren werden de studenten ook getraind in projectmanagement, in zelfstandigheid en werden ze vertrouwd gemaakt met de Nederlandse bedrijfscultuur.
+In 2009 werd Steijn Schothorst 2e bij het Nederlands Kampioenschap Karten met een RK1 in de RK1-Junioren klasse.
+In het Nederlands (en niet meer in het Engels!).
+_ Both ENDS (print) sluiten Nieuws / 17 juni 2010 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+Rogier van den Heuvel leidt client team Petrobras in Nederlands-Caribische aspecten van enquêteprocedure
+Melk, boter en kaas zijn belangrijke producten in de Nederlandse cultuurgeschiedenis.
+Het is zelfs zo dat de stukken die nu nog bestaan vrijwel geheel overeen komen met een originele inventaris van de Cochin - archieven die hoogstwaarschijnlijk is opgesteld in of rond 1795 toen Cochin werd overgegeven aan de Britten.
+­ Toepassing van aanvullende maatregelen voorbehouden aan hen die opslagcontracten hebben afgesloten voor tafelwijn verordening C 4/2.1.49
+Het werd in 1958 in de Nederlandse krant De Stem herdrukt met Thé's bijdrage.
+Sterke winstgroei Friesland Foods 6 maart 2008 Jaarcijfers 2007 Friesland Foods Kievit van start met nieuwe Filtermat droger in Indonesië 25 februari 2008 Sproeidroog- en encapsulatie specialist Campina opnieuw favoriet bij Nederlandse consument 21 februari 2008 Voor zesde jaar op rij bezorgen Campina-producten supermarkten de meeste omzet Campina is voor het zesde jaar achtereen het merk in de Nederlandse supermarkten dat consumenten het meeste kopen.
+_ Both ENDS (print) sluiten Nieuws / 14 juli 2011 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+HomeHome (Nederlands)Home (English)ArticlesArtikelenArtikelenArchiefOnline firstInternationale tijdschriftenLiteratuurbulletinNieuwsInternationale PublicatiesCongresOpiniestukkenAankondigingenHet TijdschriftHet TijdschriftRedactieKoos Slob PrijsDebutantenprijsPrivacyverklaringAuteurs en ReferentenInformatieProcedureAanwijzingenAbonnement Mijn TVS StartArtikelenToon items op tag: vrouwelijke daders Attitudes tegenover seksueel grensoverschrijdend gedrag met mannelijke slachtoffers en vrouwelijke daders Auteur(s) Anneloes Huitema, Ine Vanwesenbeeck Show to public Yes In dit vignetonderzoek werden de verschillen onderzocht in attitudes over seksuele grensoverschrijding met een mannelijke dader en een vrouwelijk slachtoffer versus een vrouwelijke dader en een mannelijk slachtoffer.
+Het orkest Het Radio Filharmonisch Orkest, opgericht in 1945, is een onmisbare schakel in het Nederlandse muziekleven.
+Bij het toeristenbureau is een stads- en streek plattegrond in het Nederlands te verkrijgen voor een leuke stadswandeling met beschrijvingen o.a. langs het vrouwenmonument, het beeld van de krijsende oorlogsvrouw, dat de waanzin van de oorlog uitbeeldt.
+Daarnaast is er een digitale expositie ingericht over het thema opstand in de Nederlandse literatuur.
+In Dutch Mountains (2011) doet ze verslag van haar leven als internationaal werkend architect aan de hand van acht bijzondere projecten.
+OKLAHOMA CITY, Oklahoma (USA) - Zondag 30 oktober 2011 is een memorabele dag geworden in de historie van het Nederlands softbal, want vandaag heeft de International Softball Federation (ISF) de organisatie van het Wereldkampioenschap Dames 2014 toegewezen aan Nederland!
+De mate waarin deze maatregelen succes hebben, hetgeen de komende jaren moet blijken, zal ook een meer algemene indicatie zijn van de waarschijnlijke structuur van de effecten handel in de Europese Unie op lange termijn, als financiële integratie en grensoverschrijdende financiering zullen toe nemen en de nog resterende barrières tussen de financiële mark ten van de Lid-Staten van de Europese Unie tot een minimum zullen worden gereduceerd.
+in het Nederlands Watergehalte hoger dan het EG-maximum
+Factoren die hierop van invloed zijn, zijn onder meer de groeiende meertaligheid in de Nederlandse samenleving, diplomatieke, militaire en handelsmissies naar alle continenten, nieuwe vormen van migratie en een veranderende wereldeconomie.
+Hier staat bijvoorbeeld een zin die in het Engels is geschreven en dezelfde zin die in het Nederlands is geschreven met dezelfde letters van het alfabet.
+Maar eigenlijk begint het avontuur pas goed daarna: samen met Vlaamse studenten in het Nederlands studeren.
+Van interconfessionele liefdadigheidsvereniging tot protestantse vakvereniging Het ORGEL 111 (2015), nr. 1, 14-21 [samenvatting] De De Nederlandsche Organisten-Vereeniging (N.O.V.) werd in 1890 opgericht aan de vooravond van een periode waarin religie in de vormgeving van de Nederlandse samenleving een steeds grotere rol ging spelen.
+Faculty of Health, Medicine and Life Sciences UNS40 Universiteitssingel 40 6229 ER Maastricht De Experience Day Gezondheidswetenschappen wordt in het Nederlands aangeboden Alle FHML Experience Days Add to calendar Meld je aan voor deze Experience Day Lees ook:
+Sinds een jaar of tien, tenslotte, kent de Nederlandstalige literatuur bovendien een aantal nieuwe stemmen, afkomstig uit andere delen van de wereld. Ze zijn afkomstig uit Iran, Irak, Somalië, Libanon of elders, maar in de verreweg meeste nieuwe literaire stemmen zingt een Marokkaanse origine mee.
+U zult zich wellicht de schok herinneren die in 2002-2003 veroorzaakt werd toen een aantal handelaren in zogenaamde blue chips Euronext Amsterdam onder druk zette om de prijzen te verlagen en de dienstverlening te verbeteren, door met de Deutsche Börse en de LSE de mogelijkheden voor een alternatieve handelsmarkt te onderzoeken.
+Aanvankelijk werd slechts een selectie van de Nederlandstalige artikelen vertaald, maar inmiddels verschijnen bijna alle artikelen tweetalig.
+Hij moet mensen aanspreken, naar ze luisteren en ze begrijpen en vragen om informatie en zelf informatie geven in het Nederlands (of het Pools, het Deens of het Tsjechisch)!
+Zijn advies: bekijk de vacaturetekst heel goed. “Een Nederlandstalige vacaturetekst betekent niet altijd dat die taal ook een vereiste is.
+Ik bied remediëringscursussen in deze twee talen aan voor primaire / secundaire studenten en iedereen die wil verbeteren.DeboraPrivélessen in het Nederlands Engels secundairHallo, Ik ben onderwijzeres en bied privélessen aan in Binche-Estinnes-La Louvière.
+De arkvaarders, verscheen in 2001, en is een gepsychologiseerde hervertelling van het zondvloedverhaal in de bijbel.
+Wij hebben als Nederlandse douane heel bewust gekozen voor het systeem van risicoanalyse (n)."
+Sperziebonen in de Nederlandse supermarkt komen vaak uit Marokko, waar ze onder slechte arbeidsomstandigheden worden geplukt en ingepakt.
+Vandaag in AD: Heropening Nieuwe Park Rozenburgschool 11-09-2013 Vandaag in het AD een artikel over de heropening van de Nieuwe Park Rozenburgschool: een gemengde buurtschool in Rotterdam Kralingen. [[file:ad130911]] Nieuwe Park Rozenburgschool gerealiseerd 10-09-2013 De uitbreiding van de Nieuwe Park Rozenburgschool in Rotterdam is gereed.
+15:00 Vertellingen van de Kleine Prins, in Nederlands en Frans. ouders zijn toegelaten.
+Het hoofdartikel lijkt goed nieuws voor landelijk PvdA-leider Wouter Bos, want buitenlandse inmenging in de Nederlandse politiek heeft vaak een averechts effect.
+De komkommer is een klimplant en wordt in de Nederlandse kassen meestal langs een binddraad omhoog geleid.
+2000 Stiller asfalt Geluidsreductie speelt een steeds grotere rol in de Nederlandse wegenbouw.
+Het juiste spoor verschijnt in een Nederlandse en een Franse editie.
+Hard To Get bestond uit drie monologen en een eindscène, over een onopgeloste driehoeksrelatie tussen de midtwintigers Aaron, Julie en Daniël. Het publiek was verdeeld in drie groepen, elke groep hoorde twee verhalen, twee versies van de ‘waarheid’ en was dan getuige van een confrontatie op scène. De voorstelling was in het Nederlands en toerde uitgebreid in Vlaanderen.
+Deze cursus duurt vier maanden (maart - juni), en wordt eveneens in het Nederlands en het Frans onderwezen.
+'Onbehagen' is het woord dat wordt gebruikt als het gaat om kwesties waaraan de direct betrokkenen liever niet denken, hoewel het goede fatsoen verbiedt dat ze dit al te duidelijk laten merken.
+Alle documenten moet je in het Nederlands of het Engels meenemen.
+25 januari 2007 pagina gigdates voltooid, en een vertaling in het Nederlands toegevoegd van de pagina over Arthur Brown in Verviers.
+Naamgeving: Keelband- of stormbandpinguïns zijn in het Nederlands alternatieve namen voor kinbandpinguïns.Volgens een Engelse benaming worden ze soms ook "Steenkrakers" (stonecrackers) genoemd omwille van hun schrille kreten.
+Het staat aan de nationale rechter te beoordelen, of de arbeidsverhouding van Bozkurt een voldoende nauwe aanknoping met het Nederlandse grondgebied heeft, waarbij met name de volgende omstandigheden in aanmerking zijn te nemen: Bozkurt was tewerkgesteld bij een Nederlands bedrijf, de arbeidsovereenkomst was in het Nederlands gesteld en werd beheerst door Nederlands recht; hij was chauffeur van in Nederland geregistreerde vrachtwagens; hij viel onder het Nederlandse sociale-zekerheidsstelsel en na blijvend arbeidsongeschikt te zijn geworden, geniet hij thans een Nederlandse uitkering; in de perioden tussen zijn ritten in en tijdens zijn vakanties verbleef hij in Nederland.
+Het doel: leren terwijl je plezier hebt.Engels · Nederlands · WiskundeVertaal deze tekst met Google Translate.Hier enkele andere suggesties die je kunnen helpen om de juiste activiteit te vinden:Delphine - Frameries25€25€Privélessen in de Nederlandse en Engelse Germaanse talenBetrouwbare leraar: Privélessen gegeven tijdens het weekend en vakanties voor kinderen en tieners.
+Op stopisds.org onder 'what can I do' staat hoe je dat kunt doen. Voor meer informatie Burghard Ilge / Sinde de Strijcker ISDS BITs OESO-richtlijnen TTIP fossiele brandstoffen Thema's Partners Madhyam SEATINI Uganda Seattle to Brussels Network Lees meer over dit onderwerp Dossier Investeringsverdragen Investeringsverdragen moeten inclusief en duurzaam en gelijkwaardig zijn.
+De collectie bevat materiaal dat ten tijde van bijzondere gebeurtenissen is vervaardigd, maar ook latere verbeeldingen van bepalende momenten uit de geschiedenis.
+07 09 2011 Interview met Wilfried van Winden over smaak in de Volkskrant. Met mooie tips!
+Hoogtepunt van deze Geheugencollectie vormt een ruime keuze van circa 250 brieven uit de correspondentie van Vincent van Gogh.De totale bewaard gebleven correspondentie bestaat uit 902 brieven, in het Nederlands en het Frans geschreven, waarvan het Van Gogh Museum er zo'n 800 bezit.
+Op de TV-opnames is dat letterlijk te horen en te zien. “Het is de verdachte die dit leven in de kiem gesmoord heeft, het is de verdachte die het vertrouwen in de Nederlandse ziekenhuizen heeft geschonden.”
+Hij wordt dan ook gesteund door de Moral Majority in de VS.Hetzelfde morele thema is terug te vinden bij premier Balkenende.
+Op grond van de buitenlandse belangstelling voor het Nederlandse aardgas, is er echter reden om te veronderstellen dat ook ná het jaar 2000 exportopbrengsten uit aardgasleveranties de Nederlandse economie ten goede zullen komen.
+IAAF GP Indoor Gent, 23 februari: Hicham el Gerrouj grijpt juist naast wereldrecord op 2 mijl, Patrick van Balkom wint 200 meter in Nederlandse recordtijd, en kwalificeert zich voor WK in Lissabon
+Zijn deze 'romans' in het Nederlands en/of Engels vertaald? Zijn er meer schrijvers die dit genre beoefenen?
+In het kader van Lezingen op Zondag en het Antwerpse tekenfestival The Big Draw nodigen we Ger Luijten, de directeur van een van 's werelds belangrijkste tekeningencollecties, uit voor een lezing over Frits Lugt en zijn immense collectie.
+Boventiteld in het Nederlands en Frans
+Cornelissen (PPE). - Voorzitter, in het Nederlands ken nen wij een uitdrukking: nu breekt me de klomp.
+Onderzoek naar microplastic in Nederlands water 07 september 2017 — The Guardian berichtte 6 september over onderzoek naar plastic vezels in kraanwater, uitgevoerd door Orb...
+De meesten volgden cursussen Nederlands als Tweede Taal (65 % hoofdzakelijk op de lagere niveaus), die onderdeel zijn van deinburgeringscursussen voor immigranten.
+_ Both ENDS (print) sluiten Blog / 2 april 2013 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+De hond moet wel in nederlands eigendom zijn anders mag je niet meedoen.
+Haar werk hing tussen foto's van grote namen als Ed van der Elsken en Anton Corbijn en Laura werd gebombardeerd tot de 'nieuwe Diane Arbus'.
+U wilt ons lezen: in het Frans in het Nederlands
+Eindhoven Airport terminal uitbreiding en hotel gepubliceerd in De Volkskrant 22-07-2013 De Volkskrant publiceerde zaterdag 20 juli een artikel over de terminal uitbreiding en hotel nieuwbouw voor Eindhoven Airport, ontworpen door KCAP De Bever.Klik hier voor het artikel.
+Ik heb mot met m'n baas.
+Bij het invoeren van het kenteken dient men er op te letten dat de tussenliggende streepjes niet worden gebruikt en dat bij Nederlandse kentekens achter het kenteken ook nog NL moet worden geplaatst (met een spatie tussen kenteken en NL).
+Het beantwoordde aan een behoefte die hij met andere vernieuwers in de fotografie, zoals Hans Aarsman, deelde, namelijk aan een meer afstandelijke en verstilde vorm van fotografie, waarin de bedoeling en de boodschap van de fotograaf naar de achtergrond waren verdwenen.
+• het coördineren en (mede) verzorgen van onderwijs (waaronder ook postacademisch onderwijs) in het Nederlands en in het Engels alsmede verantwoordelijkheid nemen voor de kwaliteit en vernieuwing van het onderwijs op het terrein van het recht van de Europese Unie
+Deze kan verschillen van de titel die in (recente) publicaties wordt gegeven.Portret van Jan van Male Engelse titel Portrait of Jan van Male Onderwerpstrefwoorden kniestuk, hoofd naar links, lichaam naar links, staand (houding), aanziend, mansportret Voorgestelden IB nummer Nummer gerelateerd aan de colletie portret-iconografie RKD.26506 Jan van Male Naam Male, Jan van VoorlettersJ.
+De colleges en lessen wor den in het Nederlands gegeven en een groot deel van de voorgeschreven handboeken is in het Nederlands, zodat men zonder een werkelijk goede kennis van deze taal niet met enige kans op succes kan studeren.
+De eerste week van maart 2015 is Theater aan het Spui in Den Haag in samenwerking met deBuren het huis van de Vlaamse dichter, romanschrijver, toneelauteur en regisseur Peter Verhelst. In de Haagse binnenstad is een stille omgeving geschapen. Een plek waar tijd geen rol speelt, waar nagedacht kan worden en genoten.
+in het Nederlands Douanerecht: … % — Verordening (EG) nr. 1864/2004,
+Het genre van de kleinkunst, het chansonneren in het nederlands, werd in Vlaanderen geïntroduceerd door Kor Van der Goten, Miel Cools en Hugo Raspoet, zo wil het de legende.
+De meest voorkomende bevaks beleggen in vastgoed, maar er zijn ook bevaks die in aandelen beleggen. bevek Bevek is de afkorting van 'Beleggingsvennootschap met Veranderlijk Kapitaal'.Een Bevek is een ICB van het statutaire type, is een rechtspersoon en is meestal een naamloze vennootschap.
+Het meest nijpend is de situatie in de geesteswetenschappen en het Nederlands recht, maar ook de zuivere wiskunde en de plantkunde staan onder druk.
+Deze kan verschillen van de titel die in (recente) publicaties wordt gegeven.Portret van een onbekende man Engelse titel Portrait of an unknown man Onderwerpstrefwoorden borststuk, lichaam naar rechts, mansportret Voorgestelden IB nummer Nummer gerelateerd aan de colletie portret-iconografie RKD.22541
+Met de eerste twee delen van zijn romantrilogie, WIJ en WINST, maakte hij een rentree in de Nederlandse letteren.
+Les 29 - Vragen in het Nederlands
+Dit artikel is ook beschikbaar in het Engels: link
+Koop een ticket Tickets Catalogus Naast de publicatie 'Rinus' met bijdragen van o.a.Peter Struycken, Dick Matena en Wim Beeren, was ook het biografisch essay 'Flarden van een stem: Rinus van den Bosch (1938 - 1996)' door Willem Otterspeer vanaf 19 september te koop in de museumwinkel.
+In proza en poëzie, zowel in het Nederlands als in het Sranantongo, getuigen schrijvers van het leven in de Surinaamse maatschappij en van de hedendaagse migrantencultuur.
+In Nederlandse ziekenhuizen is het totale gebruik in 2015 stabiel gebleven, in tegenstelling tot een stijging van antibioticagebruik in het jaar ervoor.
+In 2000 heb ik de studie Nederlands recht voltooid aan de Rijksuniversiteit Leiden, met als specialisatie staats- en bestuursrecht. Door deze studie kan ik putten uit een uitgebreide achtergrondkennis voor de vertaling van juridische, economische en politieke teksten.
+NIMk Imago Revisited 2009 In de jaren negentig reisde een Nederlandse tentoonstelling van mediakunst over de wereld: Imago, fin de siècle in Dutch contemporary art.
+Je praat en schrijft vlotjes in het Nederlands en het Engels.
+Tijdens de lunch, die het gezelschap kreeg aangeboden, las Yasmine Teeuwen een prachtig, eigen geschreven gedicht voor in het Nederlands en in het Engels.
+In 1989 hebben 4 838 bezoekers 160 voordrachten bijgewoond; 12 daarvan vonden plaats in het Spaans, 9 in het Deens, 33 in het Duits, 48 in het Engels, 36 in het Frans, 4 in het Italiaans, 17 in het Nederlands en 1 in het Portugees.
+Hij heeft tevens de opleiding Master of Management and Organizations (MMO) aan de Tias Universiteit in Tilburg voltooid.Nico spreekt vloeiend Nederlands en Engels.
+50.000 toezeggingen Het Inspire Tomorrow Fund is de eerste in zijn soort in de geschiedenis van Dutch Lady Maleisië.
+In de Nederlandse fotografie was het een nog niet eerder aangedurfd onderwerp.
+Artikel: Globalisering in Nederlandse kunstinstellingen, door Vincent van Velsen – Framer Framed Over de rol van kunst in een globaliserende samenleving Framer Framed Agenda Magazine Exposities Contact EN Artikel: Globalisering in Nederlandse kunstinstellingen, door Vincent van Velsen Al geruime tijd is er kritiek op de gesloten houding van Nederlandse kunstinstellingen voor ontwikkelingen in de kunst van buiten Europa.
+_ Both ENDS (print) sluiten Blog / 27 februari 2014 Deze pagina heeft geen tekst en is mogelijk alleen beschikbaar in het Engels.Ga naar de homepage.
+Ook beschikbaar in het Engels en Kroatisch
+In 2004 vond bij 76.000 personen opgenomen in Nederlandse ziekenhuizen onbedoelde gezondheidsschade plaats.
+Uit een onderzoek uit 1999 bleek bijvoorbeeld dat 80 procent van de vrouwen in de Nederlandse bordelen het slachtoffer was van de seksslavenhandel.
+Sinds 2014 heb ik mijn bedrijf opgericht, terwijl ik deel uitmaakte van een school en een bedrijfshogagogisch team of medewerkers in professionele reconversie voor native Frans, Nederlands, Engels en Spaans.GuillaumePrivélessen in het Nederlands en / of Engels - Alle niveausIk stel voor om in alle niveaus (primair en secundair) te remediëren of te slagen in het Engels of Nederlands.
+Deze aanbiedingen worden regelmatig gesignaleerd in landelijke kranten.
+E-mailformulier Sonja Peters naam* e-mail* kruis dit aan, indien u op de hoogte gehouden wilt worden via mail tekstveld * verplicht
+De ontwerpen zijn subtiel, vernieuwend en onconventioneel, met duidelijke roots in de Dutch design traditie.
+In Nederlandse ziekenhuizen is het totale gebruik van antibiotica ook afgenomen.

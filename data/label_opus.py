@@ -51,8 +51,8 @@ def main():
                 if label == "none" or prd_label == "none":
                     continue
 
-                tgt = " ".join(nltk.word_tokenize(tgt.lower()))
-                prd = " ".join(nltk.word_tokenize(prd.lower()))
+                tgt = tgt.lower()
+                prd = prd.lower()
                 prd_par.append(prd)
                 data[(label, prd_label)].append((prd, tgt))
                 counter[(label, prd_label)] += 1

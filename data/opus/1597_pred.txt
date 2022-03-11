@@ -1,10 +1,2 @@
-Een zenuw aanraken ?	-0.4817487895488739
-Raak ik daar een zenuw aan ?	-0.6182759404182434
-Heb ik een zenuw aangeraakt ?	-0.3602200746536255
-Maar ik ben nieuwsgierig , hebben Peter en Dakota misschien een zenuw aangeraakt ?	-0.27947601675987244
-Laat me met rust , Isaac .	-0.2973891794681549
-Het raakte een zenuw .	-0.5073348879814148
-Als je een zenuw probeert aan te raken , dan raak je me op de verkeerde plaats aan .	-0.3464798331260681
-Henry , als we genoeg agenten hebben om het met ons eens te zijn ...	-0.4566236734390259
-Het spijt me als ik een zenuw aanraak , maar ik denk dat het zal helpen met de zaak .	-0.3404267430305481
-In debatten in het Europees Parlement spelen fracties , burgers van verschillende landen en uiteenlopende belangen en vooroordelen een rol en dit maakt het ons mogelijk om ons bewust te zijn van wanneer we een zenuw aanraken en wanneer het nodig is dat we bijzondere aandacht besteden aan wat we doen .	-0.5411471128463745
+Raak ik daar een zenuw aan?
+In debatten in het Europees Parlement spelen fracties, burgers van verschillende landen en uiteenlopende belangen en vooroordelen een rol en dit maakt het ons mogelijk om ons bewust te zijn van wanneer we een zenuw aanraken en wanneer het nodig is dat we bijzondere aandacht besteden aan wat we doen.

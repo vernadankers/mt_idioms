@@ -1,500 +1,250 @@
-Onder vuur ?	-0.2282990664243698
-Onder vuur !	-0.39079079031944275
-Onder vuur !	-0.39079079031944275
-Blackbird onder vuur .	-0.24860599637031555
-Vriendschap onder vuur	-0.1325649619102478
-We liggen onder vuur .	-0.38025128841400146
-We liggen onder vuur .	-0.38025128841400146
-Moed onder vuur .	-0.3339456021785736
-Niemand staat onder vuur .	-0.44327518343925476
-Agenten onder vuur .	-0.29292118549346924
-- Onder vuur !	-0.40450912714004517
-Politieagenten onder vuur	-0.4476354718208313
-Ja , onder vuur !	-0.2957957684993744
-Ik lig onder vuur .	-0.2143610715866089
-We liggen onder vuur .	-0.2860853970050812
-We liggen onder vuur .	-0.38025128841400146
-We liggen onder vuur .	-0.38025128841400146
-`` Surgery under Fire . ''	-0.22947776317596436
-- Onder vuur .	-0.26769623160362244
-Het ligt onder vuur .	-0.3680907189846039
-We liggen onder vuur .	-0.2860853970050812
-Je lag niet onder vuur .	-0.3040756285190582
-- `` Grace under fire . ''	-0.4733698070049286
-We liggen onder vuur .	-0.31117308139801025
-We liggen nog steeds onder vuur .	-0.2603428363800049
-Je lag onder vuur .	-0.2979201376438141
-Konvooi kwam onder vuur .	-0.42824941873550415
-En ook onder vuur .	-0.27330973744392395
-Steunuitgaven in het kader van de brandbestrijding	-0.8053802251815796
-We worden beschoten .	-0.42606258392333984
-Cool onder vuur houden	-0.4312790632247925
-Wat een genade onder vuur !	-0.40417808294296265
-We liggen onder vuur .	-0.4070171117782593
-3 Mozes onder vuur	-0.23198895156383514
-We lagen onder vuur .	-0.2247980833053589
-Gentherapie onder vuur	-0.11527136713266373
-Kan niet uitbreiden onder vuur .	-0.40157780051231384
-Je houding onder vuur .	-0.6834444999694824
-Hun optreden onder vuur .	-0.3336653411388397
-- Zet je schrap .	-0.5379613041877747
-Agenten onder vuur .	-0.2945064306259155
-Herhaal ... agenten onder vuur !	-0.407278835773468
-Maar we liggen onder vuur .	-0.3056291937828064
-Ik kom onder vuur .	-0.2772960960865021
-Ik lig onder vuur .	-0.32068362832069397
-Michael , er wordt geschoten .	-0.5869114398956299
-Onder vuur van burgers .	-0.24302005767822266
-Eerste keer onder vuur ?	-0.33057621121406555
-Maar we lagen onder vuur .	-0.23319776356220245
-Ik herhaal , we liggen onder vuur !	-0.3554704785346985
-We zitten vast .	-0.49245744943618774
-Zei je onder vuur ?	-0.2724737226963043
-Ja , hij ligt onder vuur .	-0.28352800011634827
-- Jack , Chloe ligt onder vuur .	-0.33677244186401367
-Ik lig nu onder vuur .	-0.42861208319664
-- Onder vuur , natuurlijk .	-0.38150984048843384
-- We zijn onder vuur geweest ...	-0.5150479078292847
-Gisteren lagen we onder vuur .	-0.25922784209251404
-Onder vuur !	-0.554111123085022
-Mijn vrienden liggen onder vuur .	-0.3045680522918701
-Onder vuur , doelwit aanvallend .	-0.6797723770141602
-Op dit moment liggen ze onder vuur .	-0.3633077144622803
-`` Baracus toont moed onder vuur . ''	-0.25701797008514404
-- We liggen onder vuur , meneer .	-0.43767571449279785
-Niet iedereen is cool onder vuur .	-0.24609296023845673
-Onder vuur van lokale bendes .	-0.294010728597641
-Onder vuur in de sector .	-0.2835318446159363
-Hou hem onder vuur .	-0.3608300983905792
-Automobilisten staan ook onder vuur .	-0.4953601062297821
-Waarom Advocaten onder vuur staan	-0.44864732027053833
-We liggen overal onder vuur .	-0.4675705134868622
-- Het konvooi werd beschoten .	-0.4912523329257965
-Ik lig hier onder vuur , Ruvi .	-0.26647815108299255
-Het gaat over genade onder vuur .	-0.31084388494491577
-Grace onder vuur is belangrijk .	-0.28763842582702637
-De `` Times , '' `` Prime Minister onder vuur . ''	-0.5376366972923279
-Maar we lagen onder vuur , meneer .	-0.4822773337364197
-Ik heb mijn mannen in de steek gelaten .	-0.39357250928878784
-We liggen onder vuur op het dek .	-0.298194944858551
-Op een nacht kwamen we onder vuur .	-0.2933686673641205
-We hebben een eenheid onder vuur !	-0.4340767562389374
-Je hebt dit allemaal onder vuur genomen .	-0.440139502286911
-Mijn schip , we kwamen onder vuur .	-0.5026109218597412
-Maar het komt onder vuur .	-0.34703537821769714
-En wij zijn degenen die onder vuur liggen .	-0.386089950799942
-Europese Commissie : Duitse uitvoer onder vuur	-0.3456115424633026
-Je kunt zelf onder vuur komen te liggen .	-0.5287140607833862
-4 WAAROM DE WETGEVINGIGERS ONDER BRAND ZIJN	-0.6695786714553833
-Ik lig onder vuur .	-0.2844545841217041
-Op Home Farm , onder vuur .	-0.30771487951278687
-De hoofd bypass ligt onder vuur .	-0.540373682975769
-De paddenstoel blijft koel onder vuur .	-0.24220594763755798
-We lagen onder vuur , meneer .	-0.39525914192199707
-En ik ben nog nooit onder vuur geweest .	-0.3006643056869507
-Het is moeilijker als je onder vuur ligt .	-0.29064616560935974
-We liggen onder vuur vanaf de bovenste verdiepingen .	-0.36904624104499817
-We liggen onder vuur .	-0.5235517024993896
-Eerst lagen we niet meer onder vuur .	-0.42357203364372253
-Agenten onder vuur .	-0.3300454616546631
-Als ik degene was die onder vuur lag .	-0.24107018113136292
-Je jongens kwamen onder vuur in 2010 . Basra .	-0.4556526243686676
-Ooit onder vuur geweest , Commander ?	-0.4704921543598175
-We liggen onder vuur - herhaal , onder vuur .	-0.3555169105529785
-Hij negeerde een hogere officier die onder vuur lag .	-0.45375311374664307
-De burgemeester wil antwoorden , de commissaris staat onder vuur .	-0.30506184697151184
-Q is neer , en we liggen onder vuur .	-0.4632699191570282
-We liggen onder vuur van twee mannen , blank .	-0.4536895751953125
-Ook onder vuur stoppen is John Ehrlichman .	-0.38802221417427063
-We liggen onder vuur , eenheid één onder vuur .	-0.6398860216140747
-Zelfs de ratten hielden het onder vuur .	-0.4247852861881256
-Ik ga ervan genieten om hem onder vuur te zien liggen .	-0.4244031310081482
-Stabiliteitspact en Ierland - Commissie in brand	-0.4612814486026764
-Je bent vindingrijk en vindingrijk ... heel cool onder vuur .	-0.2969125807285309
-Waarom klinkt het alsof je onder vuur staat ?	-0.32322078943252563
-Misschien kom je zelf wel onder vuur .	-0.6028617024421692
-Zowel dorpen als vredeshandhavers worden nu beschoten .	-0.4020161032676697
-`` Haar kalmte en concentratie onder vuur waren opmerkelijk . ''	-0.3618707060813904
-Agenten zijn getraind om dekking te zoeken onder vuur .	-0.35797119140625
-Wat we graag genade noemen onder vuur .	-0.481076180934906
-Verlaat zijn positie tegen bevel en onder vuur .	-0.594484806060791
-Ik neem nu het escort fregat onder vuur .	-0.3186675012111664
-Leiding geven aan mannen die onder vuur liggen . Daar gaat het om .	-0.53116375207901
-We hebben twee agenten neergeschoten , één onder vuur .	-0.45471498370170593
-Dat verklaart waarom mijn shuttle onder vuur kwam .	-0.234924778342247
-Zo koel onder vuur als een bergmeer .	-0.267638623714447
-Begrepen , FBI nummerplaat , 7-4-3-6 uniform-sierra onder vuur .	-0.3975338339805603
-Basis , we hebben een patrouillewagen onder vuur .	-0.44780606031417847
-De eerste keer onder vuur is nooit eenvoudig .	-0.27850425243377686
-De grens is doorbroken , we liggen onder vuur .	-0.47749724984169006
-Meneer , de luitenant nam een beslissing onder vuur .	-0.3427867889404297
-Het centrum van Berlijn ligt onder vuur .	-0.3141534924507141
-Dan kun je zeggen dat je onder vuur lag !	-0.3906666934490204
-Aros Energy verklaringen onder vuur op meer locaties	-0.4161754548549652
-De toekomst onder vuur , onze veiligheid in gevaar .	-0.3044077157974243
-Ze zaten maanden samen onder vuur .	-0.47956568002700806
-Ze kwamen een half uur geleden onder vuur .	-0.3333044648170471
-Ik heb je onder vuur gezien .	-0.48863187432289124
-Terwijl Mako zijn handelsmerk cool onder vuur stijl toont .	-0.4346967041492462
-Je weet hoe het is om onder vuur te liggen .	-0.26999321579933167
-Het Verenigd Koninkrijk kwam onder vuur voor een inci ...	-0.5674454569816589
-Vuur tweeling , onder vuur tweeling vind je de weg .	-0.5569185018539429
-Ze is nog nooit echt onder vuur geweest in een debat .	-0.4115684926509857
-We kunnen elk moment onder vuur komen te liggen .	-0.4084700644016266
-De vredeshandhavers zijn aan de grens onder vuur gekomen .	-0.5023569464683533
-Neem jullie posities in , we worden beschoten .	-0.562813937664032
-Het is niet mogelijk om ze onder vuur te nemen .	-0.3938370943069458
-Het nominale=Normaal principe van de Erasmus Universiteit staat onder vuur .	-0.34483304619789124
-Ik wil niet dat je dat vervelende feit leert ... onder vuur .	-0.36360859870910645
-Pennell moet leren een rivier over te steken onder vuur .	-0.2737555205821991
-We hebben er minstens twee die ons onder vuur hebben .	-0.33720389008522034
-Dan leer je het onder vuur , Stensland sluit je af .	-0.4756293296813965
-Verenigd Koninkrijk : Cameron onder vuur terwijl MI5 terrorisme blunders tevoorschijn komen	-0.5518938302993774
-Aros Energy verklaringen onder vuur op meer locaties _ Holmbygden.se	-0.17129355669021606
-Mevrouw de Voorzitter , ik ben niet op een andere manier onder vuur gekomen .	-0.34974411129951477
-02-76 1918 : Parijs onder vuur door middel van langeafstandskanonnen	-0.303917795419693
-Elk van onze outreach programma 's staat onder vuur .	-0.40385696291923523
-Vanaf dat moment werd Scebrenica regelmatig onder vuur genomen .	-0.2395048588514328
-Je hebt dit hele gebeuren met zoveel gratie onder vuur genomen .	-0.714059054851532
-Rechters onder vuur ?	-0.5348824262619019
-Het is niet goed voor je gedrag onder vuur ...	-0.4915630519390106
-Hij lag onder vuur en ze kwamen hem aflossen .	-0.3413446843624115
-Je naaide soldaten onder vuur , je veegde niet op .	-0.4133538603782654
-Het Griekse systeem wordt door het hele land onder vuur genomen .	-0.47407981753349304
-Als we Duitsers waren , zouden we onder vuur liggen van sluipschutters .	-0.294979453086853
-Ik wil weten hoe ik onder vuur zal staan .	-0.3773660957813263
-Ik zag iets in haar toen we onder vuur kwamen .	-0.22479033470153809
-Het Rode Kruis en de overheidsinstanties zijn onder vuur gekomen .	-0.4860866665840149
-Als we onder vuur komen , komt dat achterraam naar buiten .	-0.5291031002998352
-17/10 Holmbygden.se : Aros Energie verklaringen onder vuur op meer locaties	-0.14876750111579895
-In beide landen liggen de werken van Boelgakov onder vuur .	-0.2121928185224533
-`` Veel van jullie , mannen , hebben Chardonnay nooit onder vuur geopend . ''	-0.3499656021595001
-Een zeer gevaarlijke beproeving toen de tank onder vuur lag .	-0.3266583979129791
-Ze is kampioen Rolodexer en ze blijft kalm onder vuur .	-0.23327381908893585
-toen hij onder vuur kwam van de Firefly uit Lockwood	-0.3850749731063843
-DHS is onder vuur gekomen voor slecht beheer van personeel en budgetten .	-0.46889108419418335
-De interne organisatie van de landen staat echter ook onder vuur .	-0.4592972993850708
-Ben je altijd zo cool onder vuur ?	-0.301239937543869
-Toen kwam het ministerie onder vuur te liggen voor zijn eenzijdige landbouwbeleid .	-0.5445951819419861
-Maar dode mannen worden niet bang of bevriezen niet onder vuur .	-0.2968680262565613
-Ik zorgde voor een gewonde piloot , we kwamen onder vuur .	-0.36130473017692566
-Hoofdstuk 1 , clausule 1 , `` Niet aantonen van een ruggengraat onder vuur . ''	-0.5632296204566956
-Dislocatie ; breuk , hersenschudding ; verbrijzeling ; snijwonden ( zie ook onder vuur en explosie )	-0.3536677658557892
-Sinds mei/juni 2005 staat de uitbreiding als geheel onder vuur .	-0.3469480872154236
-Niet alleen democratie , maar ook de Democratische Partij staat onder vuur .	-0.3186010420322418
-Er was geen maan , we waren verspreid , we lagen onder vuur .	-0.29207849502563477
-Ook kleine dorpen in de nabije aria werden onder vuur genomen .	-0.3504609167575836
-We waren op de terugweg toen we onder vuur kwamen .	-0.32062992453575134
-Sir , we volgen een Special Ops team onder vuur in Qatar .	-0.3912374675273895
-We halen het hek , maar we liggen onder vuur .	-0.45595815777778625
-Dislocatie ; breuk , hersenschudding ; verbrijzeling ; snijwonden ( zie ook onder vuur en explosie )	-0.3536677658557892
-Luitenant Beller 's eenheid werd beschoten toen ze Phu An binnenkwamen .	-0.28322094678878784
-Als een goede soldaat , moet een hond stabiel zijn onder vuur .	-0.4209711253643036
-Vlak voordat we bij Amiens kwamen , kwamen de vrachtwagens onder vuur .	-0.3780321776866913
-We worden beschoten en hebben ernstige slachtoffers .	-0.5560693740844727
-Je bent competent ... en je houdt je verstand onder vuur .	-0.43440431356430054
-Er staat een officier onder vuur en er is een gewapende overval aan de gang .	-0.39320477843284607
-Justin trok talloze mannen en vrouwen uit het veld onder vuur .	-0.3245323896408081
-Onder brandpreventie regels hier is het onmogelijk om houten staven toe te passen .	-0.4354437589645386
-We hebben gereageerd op het rapport van rechters onder vuur vanuit dit blok .	-0.6087964177131653
-Rashid 's V-Skills liet hem door de lucht gaan en rolde onder vuurballen .	-0.3393169045448303
-Liefde is tegenwoordig dapperheid onder vuur en de compensatie is medailles .	-0.42455312609672546
-De volgende keer dat we onder vuur komen , ren je in een rechte lijn .	-0.39510291814804077
-We zagen jonge kerels onder vuur zwemmen op het strand .	-0.4679112434387207
-En het is ook niet alleen de traditionele jacht die onder vuur ligt .	-0.41811150312423706
-Net als de rest van de troepen , stond ik onder vuur .	-0.4186379611492157
-Ze hadden een oproep gekregen van een patrouille onder vuur achter vijandelijke linies .	-0.3481656014919281
-Meer dan de inhoud van het museum , zijn de kosten van het museum onder vuur gekomen .	-0.29305583238601685
-Je eenheid werd beschoten , je werd gescheiden van je groep .	-0.513474702835083
-Omdat , soldaat Rivera , bij Chosin Reservoir ... je grote moed toonde onder vuur .	-0.5020691752433777
-RENCH , Duitse en Britse ministers kwamen onder vuur voor het plaatsen van onderzoeksbanen	-0.5574187636375427
-We hebben dit uit de eerste hand ervaren omdat onze groep onder vuur kwam te liggen .	-0.4927292466163635
-Bronco Wine Co. kwam weer onder vuur in mei van vorig jaar .	-0.2722302973270416
-Je bent nog niet klaar om andere agenten te laten vertrouwen op jou onder vuur .	-0.4958733022212982
-De Israëlische troepen komen onder vuur in de Mitla Pass .	-0.40478450059890747
-De buitenboordhandelsbeperkingen kwamen ook om dezelfde redenen onder vuur te liggen .	-0.5459545850753784
-De president staat ook nog onder vuur vanwege de zaak Bulog en Brunei .	-0.40808337926864624
-Hoeveel dagen staan jij en je mannen onder vuur ?	-0.3967576026916504
-Ik vraag me af hoe ik zou reageren onder vuur .	-0.4059678614139557
-Naast de diversiteit in nieuwsvoorziening staat ook de feiten van het nieuws onder vuur .	-0.5025572776794434
-Wat is de behoefte aan advies van lafaards , die beven en verbleken onder vuur ?	-0.41123923659324646
-De stembureaus staan onder vuur , maar de vraag is of dit wel gepast is .	-0.5110661387443542
-Hoewel Lieb onder vuur ligt , lijkt zijn privéleven niet te lijden .	-0.31249964237213135
-Maar de effectiviteit en de loyaliteit ervan zijn onder vuur gekomen door natuurbeschermingsgroepen .	-0.7115657925605774
-De vermiste personencel werd onlangs beschoten voor geklungel in het onderzoek .	-0.5954704880714417
-Maar in de afgelopen decennia zijn de evangelische verslagen onder vuur gekomen door critici .	-0.417280912399292
-Je was echt cool onder vuur .	-0.4537654519081116
-Je kunt een groep geweren oppakken die we onder vuur hebben .	-0.5832529664039612
-Ierland : Kenny onder vuur omdat ze geen volledige excuses heeft aangeboden aan Magdalena-vrouwen .	-0.5702819228172302
-Hij liet zijn mannen in de steek en liet mijn zoon achter om te sterven .	-0.34763452410697937
-Duisenberg kwam ook onder vuur te liggen omdat hij weigerde zijn salaris bekend te maken .	-0.4038202166557312
-Om 21:32 uur kregen we een bericht van een Deense eenheid die onder vuur lag .	-0.45315369963645935
-Voor alle duidelijkheid , 1 Para ging naar binnen en kwam onder vuur .	-0.4950045347213745
-Troepen zullen onder vuur komen te liggen met meer dan een mijl om te lopen .	-0.5057687759399414
-... kwam onder vuur te liggen in de felle vuurgevechten van de verdachten ... tussen twee rivaliserende bendes .	-0.4766336679458618
-We konden ontsnappen , maar ... we lagen onder vuur van de Duitsers .	-0.39381247758865356
-We waren er om de hack te onderzoeken , en toen lagen we onder vuur .	-0.3079611361026764
-De Militaire Medaille erkent daden van moed en toewijding aan plicht onder vuur .	-0.38168877363204956
-Het beginsel van de financiering door de lidstaten van de Europese Unie staat dus onder vuur .	-0.42255863547325134
-Hij zei dat ze onder vuur kwamen en het ontmoetingspunt moesten verlaten .	-0.29792994260787964
-Soldaat Bozz toont de juiste manier om een gat onder vuur te graven .	-0.2882709205150604
-Lees wat Teal ' c en Daniel schreven over je gedrag onder vuur .	-0.2841300070285797
-Pre-pack onder vuur als gevolg van de bevindingen van de advocaten-generaal	-0.5333539247512817
-Verdedigingseenheid en medisch team naar de poortkamer .	-0.49518659710884094
-Zonder onze eigen schuld , is Progeia onder vuur gekomen van de SEC .	-0.5089275240898132
-Alle eenheden , twee schoten , paramedici onder vuur in North Side magazijn .	-0.5265948176383972
-Het kanaal lag naast de spoorlijn , die onder vuur lag door de geallieerden .	-0.37714913487434387
-Dat ben ik , inclusief het feit dat sergeant Mallory met moed onder vuur optrad .	-0.5096568465232849
-Als je onder vuur ligt en blind schiet , dan daalt die slagsnelheid tot ongeveer nul .	-0.561536967754364
-Wat zeiden we over de hele nacht opblijven ?	-0.3752710223197937
-Ze is echt een ongelooflijke vrouw met een grote waardigheid en gratie onder vuur .	-0.3812447786331177
-We zullen het verrassingselement niet hebben en kunnen onder vuur gaan .	-0.5347257852554321
-We hebben een 10-24 van dit blok , 2 rechters onder vuur , verzoeken om dringende hulp .	-0.4686225950717926
-Onder vuur graaf je een gat met je tanden als het moet .	-0.34015312790870667
-Een man die z ' n hoofd houdt , niet onder vuur wordt genomen ... alsof ze je niet vermoorden .	-0.6345097422599792
-Maar : 'Opeens waren we niet meer aan het lachen onder vuur ' , zegt luitenant-kolonel Deskins .	-0.3733775019645691
-Topher en ik hebben alles gedaan wat je hebt behalve onder vuur vallen .	-0.32523757219314575
-Op 11 september werd gesimuleerd dat het Amerikaanse luchtverdedigingssysteem onder vuur lag .	-0.37756359577178955
-Ze gaan onder vuur liggen , wat betekent dat ze niet terug kunnen bellen .	-0.45850759744644165
-Maar ... er is vandaag iets gebeurd ... een ernstige medische fout ... en mijn praktijk staat onder vuur .	-0.3261977434158325
-Ik was gewoon luitenant Thompson , de veelbelovende jonge officier die niet te vertrouwen was onder vuur .	-0.2835838198661804
-Toen ik u voor het eerst ontmoette , sir ... probeerde u een gewonde man te redden die onder vuur lag .	-0.3289388120174408
-Ik ben niet zo goed onder vuur als Claudia Joy als het gaat om ontevreden echtgenoten .	-0.22342976927757263
-Maar de Koptische Kerk kwam ook onder vuur voor haar geest van haat , bitterheid .	-0.34948599338531494
-Deze soldaat hield zijn post onder vuur ... om coördinaten door te geven ... die een artilleriereactie mogelijk maakten .	-0.3379380702972412
-In veel opzichten was onze grote Onafhankelijkheidsverklaring een werkopdracht die onder vuur lag .	-0.49870914220809937
-Obama behoudt het Bush-programma om Iran te ondermijnenMaar Iran bevindt zich eigenlijk al onder vuur .	-0.3620348870754242
-In april 1950 toonde de Poolse katholieke hiërarchie haar idee van vaste eenheid onder vuur .	-0.4233250617980957
-Het lot van een hele divisie hangt af van hoe goed deze mannen reageren onder vuur .	-0.2224048376083374
-Captain Roberts toonde uitstekend leiderschap onder vuur ... als Compagniecommandant , hij gedroeg zich heel galant .	-0.6024203896522522
-Je moet met iemand onder vuur liggen , hij is de man die je wilt in je schuttershol .	-0.4340656101703644
-Onder vuur van de Britten , probeert de Garde een laatste aanval , die eindigt in een mislukking .	-0.4360119700431824
-Nu waren ze onder vuur van boven zonder duidelijk plan om vooruit te gaan of terug te gaan .	-0.5665178298950195
-Een signaal 13 op de radio , alsof hij onder vuur lag van een sluipschutter .	-0.43625909090042114
-Zoals de heer Christensen al zei , komt de Gemeenschap steeds meer onder vuur voor haar uitgaven .	-0.4571630358695984
-Ze kon elk schip in een konvooi laten zinken zonder ooit onder vuur te komen .	-0.33747804164886475
-Dierenvalovereenkomst onder vuur was `` geen reden voor iemand om defensief te zijn over de prestatie . ''	-0.46700507402420044
-Een korte tijd later merkte Will dat er nog een peloton onder vuur lag van twee Duitse machinegeweren .	-0.4136785566806793
-Op dat moment werd Pearl Harbor onder vuur genomen en bedreigd door de tweede golfaanval .	-0.31103673577308655
-En sergeant First Class Anderson 's buitengewone moed onder vuur , was in overeenstemming met de hoogste tradities .	-0.42021507024765015
-Je gelooft het misschien niet , maar onder vuur , Animal Mother is een echt fijn mens .	-0.5411466360092163
-Onder vuur liggen in een hitte van 120 graden in het midden van de woestijn is een moeilijke plek .	-0.4107845425605774
-Mainstream mode staat onder vuur nu onze portemonnees dunner zijn geworden en onze kasten overvol zijn .	-0.41686639189720154
-Ze ging de slagvelden op om de pijn van de stervenden te verlichten .	-0.3926614224910736
-Materialen die bij blootstelling onder brand geen gevaar opleveren buiten dat van gewoon brandbaar materiaal .	-0.5257367491722107
-Ik kan een lift regelen , maar ik rijd liever niet onder vuur weg .	-0.4128209352493286
-We hebben Gabriel , maar Shioma 's mensen raken het gebouw en we liggen onder vuur , we liggen onder vuur .	-0.32721877098083496
-De afgelopen twee jaar is de WTO herhaaldelijk en terecht onder vuur genomen .	-0.5575354695320129
-Het zou een zwakke munt zijn , die onder vuur zou komen te liggen en dus zou leiden tot een ramp .	-0.44912034273147583
-Er zijn al pogingen ondernomen om Macedonië en Montenegro te destabiliseren en Albanië is ondertussen onder vuur gekomen .	-0.44314640760421753
-Ze hebben 500 meter open terrein om over te steken , en ze kunnen niet onder vuur blijven .	-0.5004028081893921
-Tijdens het herstellen in het ziekenhuis kwamen ze waarschijnlijk onder vuur van de TNI en hij raakte weer gewond .	-0.43445339798927307
-Er is zelfs een ziekenhuis onder vuur gekomen en volgens humanitaire organisaties is de algemene situatie rampzalig .	-0.427144855260849
-De Tweede Wereldoorlog stopte het getuigenwerk niet , hoewel het in vele landen onder vuur lag .	-0.43977341055870056
-Ik weet dat je Mr. Crazy Under Fire bent , maar ik heb wat informatie nodig over moordzones .	-0.3650617301464081
-Ja , Tess staat onder vuur om uit te leggen waarom Julianna werd vermoord op onze bruiloft , dus ...	-0.28354179859161377
-Het is je gelukt om Louis te bellen terwijl je onder vuur lag , en jullie beiden uit die situatie te halen .	-0.44367364048957825
-Met alle respect , voordat ik hier kwam , in Syrië , deed ik een operatie in een grot , onder vuur .	-0.30211150646209717
-Toch is Mozes al meer dan een eeuw onder vuur gekomen door zowel geleerden als geestelijken .	-0.4106485843658447
-Er zijn al pogingen ondernomen om Macedonië en Montenegro te destabiliseren en Albanië is ondertussen onder vuur gekomen .	-0.44314640760421753
-Of je gaat onder vuur en sterft ... of je vindt de moed om je over te geven en te leven .	-0.3159019351005554
-In tegenstelling tot de strandwachten die onder vuur kwamen te liggen ... hebben deze navy matrozen toestemming verdiend van de marine .	-0.553272008895874
-picture : Britse soldaten onder vuur van Duitse artillerie tijdens de Slag bij de Marne op 8 september 1914 .	-0.2311105728149414
-Het Russische leger kon het niet weerstaan en Leningrad en Moskou stonden na een paar maanden onder vuur .	-0.24151141941547394
-Ondertussen staan zowel Cambridge Analytica als AIQ onder vuur over de vijver voor hun betrokkenheid bij Brexit campagnes .	-0.2946154475212097
-Weet je , jij was degene die me leerde dat moed alles is om genade onder vuur te hebben .	-0.3961551785469055
-Het fatale gevaar is altijd een verlate terugtocht , in paniek getroffen , onder vuur , wanneer de vijand op je hielen staat .	-0.4979035556316376
-In ander nieuws kwam de nucleaire regelgevende commissie weer onder vuur ... verkiezingen zijn over twee maanden .	-0.530856728553772
-V-Skill : Front Flip/Rolling Assault V-Trigger : Ysaar Rashid 's V-Skills liet hem door de lucht flippen en onder vuurballen rollen .	-0.2334723323583603
-We staan onder vuur in het steegje en deze `` agenten '' gaan de andere kant op .	-0.3558955788612366
-Er staat dat je de Silver Star of Excellence kreeg voor moed terwijl je onder vuur lag in Irak ?	-0.42828312516212463
-Fotobron : arcadeflyers.com Under Fire , uitgebracht in 1994 door Taito , is een extreem gewelddadige en over-the-top politie schutter .	-0.24101872742176056
-In de nasleep van het Uber fenomeen , de alternatieve accommodatie provider Air BnB kwam ook plotseling onder vuur .	-0.32300466299057007
-Na een tijdje werden we op de radio geroepen door een andere Deense ploeg , die onder vuur lag .	-0.3887989819049835
-Google+ is echter eigendom van Google en onlangs staat Google onder vuur vanwege hun twijfelachtige privacybeleid .	-0.3163425624370575
-Je kent geen hinderlaag die hij niet kon ruiken ... en onder vuur ... de coolste kat ooit .	-0.48072460293769836
-Ik ben trots om hierbij rechercheur Vic Mackey te presenteren ... met de hoogste eer van de afdeling voor moed en moed onder vuur .	-0.3918014466762543
-Fossiele brandstofgebruikers zijn ook onder vuur , met name elektrische nutsbedrijven en andere en energie-intensieve industrieën , woonverwarming en vervoer .	-0.38152042031288147
-New York Chicago en Washington liggen allemaal onder vuur op dit moment ... terwijl de GC troepen samenwerken met militie terroristen .	-0.5484853386878967
-Pulford , hij is de faro dealer , stapte uit een ronde onder vuur , recht door het hart , en het gemeten 84 ' 3 . ''	-0.4363360106945038
-We waren op patrouille , gevangen achter de linies ... en zaten drie dagen in een gat onder vuur van schutters .	-0.44573983550071716
-Niemand anders deed het , dus natuurlijk werd aangenomen dat je een vijandelijk vliegtuig was , en je kwam onder vuur .	-0.5231745839118958
-Maar het hele huisvestingsprogramma staat nu onder vuur , Doreen , dus ze gaan een voorbeeld van haar maken .	-0.3907974064350128
-Materialen die op zichzelf normaal stabiel zijn , zelfs bij blootstelling aan brand , en die niet reageren met water .	-0.4381438195705414
-Rambo , in het nauw gedreven en onder vuur genomen , gooit een rots naar de helikopter , waardoor hij werpt ; Galt valt tot zijn dood .	-0.4347255229949951
-Toen ons veldhospitaal onder vuur kwam , haalden we de patiënten van hun bed en bedekten ze met hun matrassen .	-0.3639357089996338
-Het werd opgepikt door twee DSS-koeriers die het helemaal hierheen begeleidden tot het onder vuur kwam .	-0.42983442544937134
-De heer Muntingh ( S ) , rapporteur . - Mijnheer de Voorzitter , ik ben net onder vuur geweest en ik zou eigenlijk terug moeten schieten .	-0.43917983770370483
-Carbon Cult zieken staan onder vuur voor een interactieve website die kinderen vertelt dat ze moeten sterven omdat ze CO2 uitstoten .	-0.37994906306266785
-Laten we oppassen , want een burgerdienst onder vuur en gedemoraliseerd zou de efficiëntie en onafhankelijkheid van de instellingen in gevaar brengen !	-0.43593496084213257
-Na 7 kilometer , bij Livry , kwam de colonne onder vuur van een Duitse antitank pistool van Panzer Lehr Division .	-0.34745416045188904
-De studies van Heath zijn echter onder vuur gekomen omdat ze beperkt waren ( naar verluidt werden slechts vier apen onderzocht ) en er ontbraken wetenschappelijke controles .	-0.5692468881607056
-Het nieuws vandaag is dat Zara en Pola weer onder vuur liggen , en al sinds 6 uur vanmorgen .	-0.372268408536911
-Ambarchik kwam onder vuur tijdens de Tweede Wereldoorlog toen het werd aangevallen door Duitse troepen als onderdeel van Operatie Wunderland .	-0.33769139647483826
-Totdat je jezelf in de strijd bewijst , flikker , totdat je terugschiet terwijl je onder vuur ligt , ben je de teef .	-0.45745912194252014
-Ten eerste , het idee dat al het leven afstamt van een enkele voorouderlijke vorm komt onder vuur in sommige wijken .	-0.4713997542858124
-Het openingsnummer 'Under Fire ' heeft zo ' n catchy refrein dat het een paar uur later weer in mijn hoofd kwam .	-0.38642096519470215
-Laten we vooral hopen dat onze Europese burgers zich regelmatig tot dit Handvest zullen wenden wanneer hun rechten onder vuur komen te liggen .	-0.44170257449150085
-De heer De Gucht ( LDR ) . - Mijnheer de Voorzitter , mijnheer de voorzitter van de Commissie , de Commissie staat de afgelopen maanden onder vuur .	-0.3054273724555969
-Luitenant Martin Kalthrob ... schuldig , beschuldigd van plichtsverzuim ... desertie onder vuur ... en lafheid in het gezicht van de vijand .	-0.26107749342918396
-De piloten van het 487th Fighter Squadron die vertrokken , deden dat onder vuur en in het gezicht van overweldigende kansen .	-0.4652615785598755
-Turkije komt ook onder vuur te liggen wegens schendingen van de mensenrechten die zowel aan zijn Koerdische en christelijke minderheden als aan Cyprus zijn toegebracht .	-0.5018581748008728
-Laten we ons gedragen , want een burgerdienst onder vuur en gedemoraliseerd zou de efficiëntie en onafhankelijkheid van de instellingen in gevaar brengen !	-0.5566391348838806
-De bioscoopeigenaar en een jonge vrouw werden gedood toen de bioscoop waar de wedstrijd werd getoond onder vuur kwam .	-0.3755659759044647
-In feite verwierp LaViolette in zijn belangrijke boek Earth Under Fire het idee dat periodieke poolverschuivingen door de geschiedenis heen hadden plaatsgevonden .	-0.32859328389167786
-Als de mannen uit de bomen komen zullen ze onder vuur liggen van Yankee artillerie van over het hele veld .	-0.37133586406707764
-In ander nieuws vanavond , een South Park bio bedrijf komt onder vuur voor genetisch technische lichaamsdelen op laboratorium muizen .	-0.508381187915802
-Hij wilde nooit praten , zelfs niet toen er slechte dingen gebeurden ... onder vuur komen , en de vreselijke dingen die je ziet .	-0.3980650007724762
-Men kan het misschien ontkennen , maar zowat elke maatregel die is genomen , is door dit Parlement onder vuur genomen .	-0.6568518877029419
-Raben beval de rest van zijn team naar het dorp te gaan om hen te helpen die daar onder vuur lagen .	-0.42332229018211365
-Direct vanaf het openingsnummer 'Baphomet ' word je onder vuur genomen door een harde bijna symfonische en zeer strakke death metal aanval .	-0.3386870324611664
-De Commissie staat herhaaldelijk in de media onder vuur om Eurocheese , Eurobeer en Eurosausage te promoten en geen plaats voor nationale specialiteiten toe te staan .	-0.39801231026649475
-De stabiliteit op de financiële markten staat voortdurend onder vuur , met alle gevolgen van dien voor het vertrouwen van de consument in de economie .	-0.27479711174964905
-België is de afgelopen jaren vaak onder vuur gekomen , maar sindsdien zijn er grote inspanningen geleverd om de zaken ten goede te veranderen .	-0.480678915977478
-Turkije staat ook onder vuur voor schendingen van de mensenrechten die zijn Koerdische en christelijke minderheden en Noord-Cyprus hebben aangedaan .	-0.4915807843208313
-Ik dacht altijd dat ik die situatie aankon .	-0.5803301930427551
-Alleen als de luchtmachtbasis zelf onder vuur kwam , was er een kleine kans dat het zou worden opgemerkt in het hoofdkwartier in Kiseljak .	-0.36873355507850647
-Verslagen over deze bijeenkomst kopte het als een `` House Divid , '' `` Pope Under Fire , `` en `` Rebellions Weakening Church , Pope Warns . ''	-0.6568388342857361
-Zelfs de nationale collectieve arbeidsovereenkomst komt onder vuur te liggen , omdat het werkgevers in de weg staat , die de voorkeur geven aan lokale of individuele arbeidsovereenkomsten .	-0.5127421617507935
-De Bank was de eerste die deze markt heropende nadat de frank in het laatste kwartaal onder vuur kwam te liggen op de buitenlandse veranderingen .	-0.5503381490707397
-De gevangenen renden naar de hekjes die het kamp omringden , de hele tijd onder vuur van Oekraïense bewakers in de wachttorens .	-0.37109026312828064
-Vanaf het balkon schreeuwde ik en zwaaide met mijn armen , waarna de Duitsers het balkon onder vuur namen , dus moest ik vluchten ...	-0.2404790073633194
-Minister Donner , die in Nederland zo vaak onder vuur ligt , heeft in dat opzicht samen met zijn collega 's uitstekend werk verricht .	-0.33986809849739075
-Velen zijn gevonden in de frontlinies , als eerste vrijwilliger , bereid om elke vijand te confronteren , met stalen zenuwen onder vuur .	-0.5217686891555786
-Hoewel onder vuur kwam de Spaanse vloot door het Kanaal zonder al te veel schade en verankerd voor de Franse haven van Calais .	-0.4379802942276001
-Het Network News Channel staat onder vuur voor een verhaal ... dat onlangs Senator Richard Porter beschuldigde van het vragen om smeergeld van defensie-aannemers .	-0.5199930667877197
-Ja , ik had me niet gerealiseerd dat je tien dagen onder vuur lag aan het Russische front , gevangen in een schuttersput met negen stormtroopers .	-0.3919171392917633
-In de hoofdstad Saigon werd het presidentiële paleis gedeeltelijk vernietigd en in een gedurfde aanval werd de ultra moderne Amerikaanse ambassade onder vuur genomen .	-0.2982196807861328
-Alleen als de luchtmachtbasis zelf onder vuur kwam , was er een kleine kans dat het zou worden opgemerkt in het hoofdkwartier in Kiseljak .	-0.3674308955669403
-De foto 's en persoonlijke verhalen die daar getoond worden getuigen van de moed en spirituele kracht van deze Getuigen die trouw waren onder vuur .	-0.440685510635376
-Bronnen suggereren ook dat de politie , die al onder vuur ligt omdat ze traag reageert op de zaak , een mogelijke vrijmetselaarsverbinding onderzoekt ,	-0.42571884393692017
-Een patrouille van Luitenant JACOBS ' sectie , geleid door een Franse patriot , Luitenant LEFEVRE , wordt in een hinderlaag gelokt en wordt onder vuur genomen door vier machinegeweren .	-0.273221880197525
-Natuurlijk , de doodseskaders waren niet zo blij om ons te zien , dus kwamen we onder vuur , en Pete nam er een in de ruggengraat .	-0.36320093274116516
-27 november 2013 NRC Handelsblad ( Amsterdam ) 20 130 Jeroen Dijsselbloem : 'Mr Euro ' onder vuur De voorzitter van de Eurogroep komt voor toenemende kritiek .	-0.3488447666168213
-North heeft verschillende best-selling boeken geschreven , waaronder `` Under Fire , '' `` One More Mission , '' `` War Stories , '' `` Operation Iraqi Freedom , '' `` Mission Compromised , '' `` The Jericho Sanction '' en `` The Assassins . ''	-0.3481815457344055
-Ik weet het niet , en het zal pas later duidelijk worden , maar het feit is dat de uitbreiding van de EU onder vuur ligt .	-0.33995795249938965
-Reuters , Fox News , Rusland Vandaag en vele andere lokale of buitenlandse agentschappen werden beschoten door zeven raketten die door een Israëlische helikopter werden neergeschoten .	-0.30298560857772827
-De bizarre zelfverklaarde priester Alexander Alexandrovich Morozov , een voormalig politieagent uit Zagorsk , blijft het Boelgakovhuis in brand steken met de meest ongelooflijke intimidaties .	-0.33967652916908264
-De doodstraf voor ongehoorzaamheid onder vuur werd opnieuw ingesteld , net als het groeten van officieren , speciale adresvormen , aparte woonruimtes en privileges voor officieren .	-0.5469008684158325
-En als je eenmaal zelf onder vuur bent geweest , brengt het nog duidelijker naar huis dat een pistool geen macho instrument is om over op te scheppen .	-0.42177027463912964
-Op het spel staat niets minder dan de euro zelf , die , onder vuur van meedogenloze speculanten , instort te midden van de ruïnes van het Parthenon .	-0.3607277572154999
-Na vier jaar repetities in het Kunsttheater werd het in de krant Pravda onder vuur genomen en na 7 optredens werd het verboden .	-0.2911866307258606
-Oké , maar je moet weten dat als we onder vuur komen , je je leven op het spel moet zetten om mij te beschermen .	-0.32077398896217346
-`` Grace Under Fire '' volgde een soortgelijke formule ; gevestigd in een kleine Missouri stad , Butler in de hoofdrol als Grace Kelly , een gescheiden alleenstaande moeder en herstellende alcoholist .	-0.32102811336517334
-Hoezeer ze ook in naam van het liberale beleid onder vuur komen te liggen , de quota 's ten gunste van Europese en nationale audiovisuele producten hebben absoluut gelijk .	-0.5797467231750488
-De commandant in je droom is de enige die durft op te staan uit de loopgraaf , onder vuur , en soldaten in de aanval zal leiden .	-0.39862820506095886
-`` Cold '' en `` We gaan onder vuur '' hebben een moeilijkere tijd om de spanning op te bouwen , maar beide bevatten genoeg melodie en kracht om interessant te blijven .	-0.29115453362464905
-Ik zeg heel categorisch : het is onaanvaardbaar dat mensen lijden , dat er geweld blijft bestaan en dat de werknemers van de Verenigde Naties onder vuur komen te liggen .	-0.4794429838657379
-De politie is vandaag onder vuur gekomen omdat ze traag reageert op Jack the Ripper copycat moorden in London 's East End .	-0.511207103729248
-Gedurende de afgelopen twee jaar , tijdens elke zitting van de Raad , zijn de eerste en beste resultaten van de Europese Gemeenschap , het gemeenschappelijk landbouwbeleid , onder vuur genomen .	-0.5567339658737183
-De rat schommelde en rolde buik over als een cowboy schutter onder vuur naar de dichtstbijzijnde dekking en verdween door een gat , nu gevuld met grind .	-0.31203165650367737
-Amazon is onder vuur op een aantal fronten . Ten eerste , de Federal Labour Agency onderzoekt de arbeidsomstandigheden binnen de on-line retail reus , na openbaringen [ ... ]	-0.3563148081302643
-De Ierse president Michael Higgins staat onder vuur na een interview met de Financial Times waarin hij zei dat de EU een hegemonische [ ... ]	-0.37737002968788147
-Een week na het ontslag van de overheid op een moment dat het land onder vuur van ratingbureaus bezorgd over de omvang van [ ... ]	-0.3801189363002777
-Hij staat blijkbaar onder vuur van NAVO-troepen om degenen te beschermen die strijden voor vrijheid en democratie , die ook gebruik maken van Europese en Amerikaanse wapens .	-0.39162030816078186
-Deze en andere angstaanjagende vijanden gebruiken camouflageapparaten , zoeken dekking onder vuur , slaan je flanken en gooien granaten om je uit je schuilplaats te lokken .	-0.39482581615448
-Deze en andere angstaanjagende vijanden gebruiken camouflageapparaten , zoeken dekking onder vuur , slaan je flanken en gooien granaten om je uit je schuilplaats te lokken .	-0.39482581615448
-Laten we beginnen met de onrust in Egypte , waar de antikoloniale passies hoog blijven lopen , en waar onze soldaten nog steeds onder vuur komen te liggen door nationalistische opstandelingen .	-0.34235212206840515
-Onder vuur zul je op de aarde vallen en plat liggen . Onder vuur , zul je God vragen om je knop te verwijderen om dichter bij de grond te komen .	-0.3618515133857727
-De levering van de munitie werd opgeschort , net zoals de Griekse regering onder vuur kwam van oppositiepartijen , en Amnesty International riep op tot een wapenembargo .	-0.35927459597587585
-PVC is onder vuur gekomen en heeft gevolgen voor de gezondheid van de mens en het milieu , bijvoorbeeld voor de vruchtbaarheid en de uitstoot van zeer giftige dioxinen .	-0.5290332436561584
-Het Verenigd Koninkrijk staat ook onder vuur voor de situatie van de Roma , gevallen van binnenlandse slavernij en de tewerkstelling van kinderen jonger dan 15 jaar .	-0.3565540909767151
-De federale regering begint de bendeactiviteiten in het hele land aan te pakken , en voor het eerst in jaren , staan de maffialeden van New York City onder vuur .	-0.44825130701065063
-Het Verenigd Koninkrijk staat ook onder vuur voor de situatie van de Roma , gevallen van binnenlandse slavernij en de tewerkstelling van kinderen jonger dan 15 jaar .	-0.3565540909767151
-Een fles Charles Shaw kost slechts 2 dollar in de Amerikaanse supermarktketen Traders Joe . Bronco Wine Co. kwam opnieuw onder vuur in mei van vorig jaar .	-0.21142980456352234
-Het is moeilijker om van zuilen van vieren in lijn van de strijd te komen en als we geroepen worden om die beweging te maken , zal dat zijn als we onder vuur liggen .	-0.573678195476532
-Hij zei altijd dat als zijn mannen in een hinderlaag zouden lopen , zijn peloton onder vuur zou komen te liggen ... het eerste wat hij zou doen is twee kogels in zijn radio stoppen .	-0.39321592450141907
-Cam Brady is onder vuur gekomen voor het krijgen van het op met deze vrouw , Shana St. Croix een voormalige professionele cheerleader en parttime aerobics instructeur die dit kan doen .	-0.2844375669956207
-2014 Moge Jesaja 50:4-8 : De dienaar van de Heer , een discipel onder vuur De Soevereine Heer heeft mij een goed gebouwde tong gegeven , om het woord te kennen dat de vermoeiden ondersteunt .	-0.3346131443977356
-De aanvallen worden met volle kracht hervat . De wereld ziet , zoals gewoonlijk , impotent aan als Sarajevo wordt gebombardeerd uit de lucht en totale uitsluitingsgebieden onder vuur komen te liggen .	-0.5479609966278076
-Het NBN is herhaaldelijk onder vuur gekomen omdat het zowel gepolitiseerd is als verouderde technologie en oude koper gebruikt vanwege de budgettaire beperkingen die inherent zijn aan een overheidsproject .	-0.44810736179351807
-De strijd van dichtbij , ontsnappen en ontwijken , weerstand bieden aan ondervragingen - we zullen de basisoefeningen oefenen tot we ze 's nachts kunnen doen , onder vuur en op onze kinbandjes .	-0.5214816331863403
-Ook voor vaste stoffen die brandbare gassen kunnen ontwikkelen wanneer zij in contact komen met water of waterdamp en voor vaste stoffen die om welke reden dan ook onder brandwerende omstandigheden moeten worden opgeslagen .	-0.30659428238868713
-De Commissie is ook tegen de herziening van de detacheringsrichtlijn , een richtlijn die na een aantal zeer controversiële arresten van het Europees Hof van Justitie onder vuur is gekomen .	-0.3486444056034088
-De Britse regering kwam ook onder vuur van Niall Andrews ( Dublin , UFE ) voor de behandeling van Roisin McAliskey die werd vastgehouden door de autoriteiten onder verdenking van terrorisme .	-0.24080032110214233
-Het algemene karakter van de werken van deze jonge vrouwelijke fotografen is dat de heersende mannelijke kijk op het vrouwelijke lichaam als een seksobject onder vuur is gekomen .	-0.3234371244907379
-Wetenschappers ontdekten aspartaam als een kunstmatige zoetstof halverwege de 20e eeuw , maar de laatste jaren is deze stof onder vuur vanwege de gevaren die het zou inhouden .	-0.483334481716156
-Ook kleine dorpen in de nabijgelegen aria werden onder vuur genomen . Onmiddellijk na het eerste vuren van de para-militaire groep trok Arkonovic zich op uit Bratunac , viel Potocari binnen en begon huisplunderingen .	-0.4235565662384033
-Toen de Sovjet-Unie aan het eind van de jaren '20 ideologisch harder werd , werd Boelgakovs werk meer onder vuur genomen en al zijn toneelstukken werden in 1929 volledig verboden .	-0.4798416793346405
-Ze zijn : Noel Chavasse en Arthur Martin-Leake , beide artsen van het Royal Army Medical Corps , voor het redden van gewonden onder vuur ; en Nieuw-Zeelander Charles Upham , een infanterieman , voor gevechtsacties .	-0.23295758664608002
-In de vroege ochtend van 19 april 1942 neemt de Duitse onderzeeër U-130 onder leiding van kapitein Luitenant-At-Sea Ernst Kals de tanks van de refinary in Bullenbaai onder vuur .	-0.2871043086051941
-De Zuidelijke Dopers van Alabama , VS , kwamen onlangs onder vuur toen ze een officiële schatting publiceerden die suggereert dat 46,1 procent van de bevolking van de staat naar de Doper hel kan gaan .	-0.35735225677490234
-Ik hoop dat je rekening houdt met het feit dat we dit koffertje niet eens zouden hebben als hij niet onder vuur was gesprongen en het uit de rivier had getrokken .	-0.36399155855178833
-Het is veel moeilijker om van colonne van vieren naar lijn van de strijd te gaan en als we geroepen worden om die beweging te maken , zal dat zijn als we onder vuur liggen .	-0.5456851720809937
-Het kanaal lag naast de spoorlijn , die door de geallieerden onder vuur lag . Gelukkig raakte er niemand gewond en kwamen alle wortelen in Leiden en , de andere helft , in Den Haag .	-0.3698257803916931
-Een uitstekende introductie tot alternatieve verslagen van de geschiedenis , waaronder essays over Aarde Veranderingen , Beschaving 's Grotere Oudheid , Darwinisme Onder Vuur , Voorvaderen uit de Ruimte , Oude Hoge Tech , en The Search for Lost Origins .	-0.35049012303352356
-Hij benadrukte dat het belangrijk is de Tsjechische bevolking in staat te stellen van het lidmaatschap te profiteren , en voegde eraan toe dat de standpunten van `` opportunistische '' Tsjechische politici , die onlangs onder vuur waren gekomen , moeten worden genegeerd .	-0.5225198864936829
-In het bijzonder de Midden-Oosten sectie is onder vuur . Ik ben vastgelijmd aan de doos . Ik wil elk detail . Dus ik vroeg me af : Is Dr. Zahi Hawass een minderjarige Mubarak ?	-0.34105950593948364
-In het tijdperk van korte domeinnamen , komt het bestaan van extra lange domeinnamen met tweede niveaus ( org.uk , co.uk , etc . ) onder vuur . Echter , de overgang naar directe domeinnamen vereist zorgvuldige voorbereiding .	-0.29706430435180664
-Mijnheer de Voorzitter , mijnheer de commissaris , Europa onder water , Europa onder vuur , dit mag niet onvermijdelijk zijn , maar helaas is het een terugkerend thema , en we moeten er elk jaar over spreken .	-0.43300363421440125
-Tegelijkertijd wordt Fort Douaumont onder vuur genomen met de nieuwe 400 mm kanonnen ; het bombardement wordt geleid vanuit een verkenningsvliegtuig dat op dat moment boven het fort cirkelt .	-0.3092944324016571
-Toen een deel van de versterkingen die hem met een vaandrig ( waarvan een deel nooit onder vuur was geweest ) werd gezonden , aarzelde hij , door zichzelf het voorbeeld te geven , om hen vooruit te laten gaan .	-0.5053502321243286
-Niet alleen Israël , maar alle Joden kwamen onder vuur . `` Joden in de zee , '' `` Joden zijn honden , '' `` Juden Raus , '' `` Sharon terrorist , neer met de Joden '' en `` Ik zal een antisemiet worden , hoe zit het met jou ? ''	-0.30029329657554626
-Op 25 mei 1954 om 14:55 ging het regiment door een gevaarlijk gebied onder vuur toen Capa besloot zijn Jeep te verlaten en de weg op te gaan om de voorsprong te fotograferen .	-0.3260311782360077
-Maar dat ligt nu onder vuur als wetenschappers debat , en Federale agentschappen bestuderen , of een voorgestelde ondergrondse stortplaats in Nevada zou kunnen uiteindelijk ontploffen in een nucleaire explosie gevoed door afval .	-0.46712595224380493
-Het Duitse aanvalsplan was bedoeld om de Franse frontlinies volledig te vernietigen met de huidige veldgeweren en de houwitsers.De langeafstandsgeweren moeten alle aanvoerroutes onder vuur houden om te voorkomen dat Frankrijk versterkingen binnenhaalt .	-0.4521622061729431
-Nogmaals , een persoon die GOD niet vreest , maar Satan vreest , zal jullie verraden wanneer hij onder vuur ligt , en , meer dan dit , zal het lichaam van de Heer verraden , ZIJN kerk die ZIJN werk op aarde doet .	-0.3375163674354553
-Met 'World Under Fire ' heeft de band al mijn twijfels weggeblazen en een album afgeleverd dat vele generaties hardrock en heavy metal fans zal aanspreken .	-0.2854253947734833
-Op een moment dat het stabiliteits- en groeipact in brand staat , heeft u zich uitstekend ingezet voor de stabiliteit van de euro , ook tegenover de lidstaten , de Raad en de Commissie .	-0.4903126358985901
-In het bijzonder de Midden-Oosten sectie is onder vuur geweest . Ik ben vastgelijmd aan de doos . Ik wil elk detail . Dus ik vroeg me af : Is Dr. Zahi Hawass een minderjarige Mubarak ? Find out more	-0.32864171266555786
-In St.Honorine-de-Ducy is een plaquette te vinden voor de bevrijding op 12 juni 1944 Na 7 kilometer , bij Livry , kwam de colonne onder vuur van een Duits antitankpistool van Panzer Lehr Division .	-0.2932669222354889
-Hun in paniek geraakte bemanning sneed de ankertouwen door , maar sommige schepen bleven verstrikt en dreigden te kapseizen vanwege het gewicht van de gebroken masten , dus moesten ze weer onder vuur ankeren om ze af te snijden .	-0.3621971309185028
-Hybriden , bekend om de manier waarop ze zowel gas- als elektrische energie combineren om een schonere rit te bieden , zijn de afgelopen maanden onder vuur gekomen omdat ze niet in staat zijn om de door de fabrikanten vastgestelde mijlpalen in de gasmijlstand te bereiken .	-0.4787452220916748
-Aangezien niemand kan vaststellen waar de auteurs van deze resolutie naartoe rijden , afgezien van het in brand steken van Straatsburg , zou het geen verrassing mogen zijn dat de mensen weer spreken over symbolen .	-0.6897531151771545
-Turkije staat ook onder vuur voor schendingen van de mensenrechten die zijn Koerdische en christelijke minderheden en Cyprus hebben aangedaan . Het Taliban-regime in Afghanistan wordt ook veroordeeld voor schendingen van de mensenrechten , met name ten aanzien van vrouwen .	-0.4918462336063385
-Voorjaarsbijeenkomst van de Europese Raad - Gezamenlijk debat Europese Investeringsbank - oproep tot prudentieel toezicht Oproep tot verantwoording - De Europese Investeringsbank reageert op reorganisatie en liquidatie van verzekeringsondernemingen Stabiliteitspact en Ierland - Commissie in brand	-0.29212686419487
-Zo nu en dan herinnerde Pierre zich wat hem was verteld over soldaten die in een hinderlaag werden beschoten als ze niets te doen hadden , hoe ze hun best de bezetting proberen te vinden om hun gevaar gemakkelijker te dragen .	-0.5263959169387817
-Fort Vaux is in zicht , maar vanaf daar hebben de Fransen een duidelijk schietgebied en ze houden de Hardoumont-fortificatie permanent onder vuur.Voor de Duitsers is er geen manier om er doorheen te komen ; de Duitse aanval stopt hier .	-0.372437983751297
-Jun 4 , 2014 : : UP Govt ook onder vuur UN experts slam India 's kinderrechten beleid ( persbericht NCDHR ) : India 's kinderrechten beleid kwam onder scherpe aanval op een cruciale vergadering van VN-deskundigen op 2-3 juni in Genève .	-0.34760329127311707
-Het is ook belangrijk om te zeggen dat we moeten helpen , maar wanneer we helpen - en soms zal onze aanpak worden gedreven door pragmatisme - mag de procedure na drie maanden niet plotseling onder vuur komen te liggen .	-0.4097937345504761
-Na deze woorden , hebben ze een discussie met de burgeres Sofya Pavlovna over hun lidmaatschap en over het feit dat Dostoevsky onsterfelijk is , ze worden onder vuur genomen door de NKVD , en ze eindelijk alles in brand gestoken .	-0.279438853263855
-Wereldleiders en politici , met name die uit het Midden-Oosten en Noord-Afrika , kwamen onder vuur te liggen vanwege hun dubbele normen voor de ondersteuning van de vrijheid van meningsuiting in Frankrijk , terwijl zij de vrijheden en het doden en opsluiten van journalisten in hun eigen land verstikken .	-0.40946879982948303
-Tsarong was aangesteld om zijn diplomatieke vaardigheden te gebruiken om een delegatie te leiden om te onderhandelen met de Chinese autoriteiten in Lhasa , maar voordat de onderhandelingen konden worden afgerond , Lhasa kwam onder vuur met bombardementen van de Potala en Norbulingka paleizen .	-0.24635468423366547
-Ook Rusland komt onder vuur te liggen in een amendement dat `` de schendingen van de mensenrechten door zijn troepen in Tsjetsjenië afzwakt '' en de Raad en de lidstaten wordt opgeroepen de zaak voor het Europees Hof voor de rechten van de mens te brengen .	-0.46951520442962646
-Communistische vissen in Noord-Vietnamese Water Na de ondertekening van de overeenkomst met Frankrijk lag Ho Chi Minh onder vuur in de Vietminh , maar onmiddellijk na zijn terugkeer naar Vietnam brak de Eerste Indochina Oorlog of de Vietminh Oorlog uit .	-0.23994863033294678
-We kunnen niet toestaan dat onze leiders valse informatie gebruiken om oorlog te rechtvaardigen ' . meer lezen 3 juni 2003 _ Blair loog om oorlog te kunnen voeren tegen Irak - 1 Tony Blair staat onder vuur omdat hij zou hebben gelogen .	-0.27301809191703796
-Nu de tegenstanders onder vuur liggen van de troepen en huurlingen van Gaddafi en de kolonel afgezanten naar de Europese hoofdsteden stuurt om zijn regime te redden , moeten we het Libische volk laten zien dat wij hen steunen .	-0.4046039879322052
-Toen S.S. Luitenant-generaal Stroop op 19 april het getto binnenkwam met gepantserde auto 's , kwam hij onmiddellijk onder vuur en verloor twaalf man ; Duitse en Poolse slachtoffers in de strijd , die vier weken duurde , in totaal 101 doden en gewonden .	-0.35578709840774536
-We bieden nu brieven aan van Constructionman Devine 's OIC en leden van zijn Seabee eenheid die zijn moed en moed onder vuur leggen in Camp Stronghold Freedom , waar we hopen dat het bestuur rekening mee zal houden bij het doen van zijn aanbevelingen .	-0.4126077890396118
-Wittmann zijn Tiger stopte in de buurt van het hotel toen hij onder vuur kwam van de Firefly uit Lockwood Na de vernietiging van de Cromwell OP , werd de hoge straat Rue Pasteur helemaal verlaten tot aan het einde van Place Jean d'Arc .	-0.3413969874382019
-In mei 1940 werd het fort 12 dagen belegerd , en kwam onder vuur van zware artillerie en de Duitse luchtmacht . Een enkele bom gelanceerd door een stuka afgeketst en kwam een gevechtsblok binnen , waarbij 28 van zijn inzittenden werden gedood .	-0.37618380784988403
-De president is vanavond aanwezig bij een fondsenwerving ter ondersteuning van de Nationale Vrijwilliger Alliantie , hoewel critici suggereren dat dit slechts een poging is om het publiek af te leiden van zijn laatste surveillance voorstellen , die in de pers onder vuur zijn gekomen .	-0.4057539403438568
-Het menselijk lijden is verschrikkelijk : ook het menselijk lijden in het zuiden van Israël dat ook onder vuur komt te liggen door raketten die vanuit het noorden van Gaza worden gelanceerd , naar hun eigen volk toe , een factor die stabiliteit in feite onmogelijk maakt .	-0.5217028260231018
-Eind maart van dit jaar bracht de band hun derde productie uit , 'World Under Fire ' , en toen na het intro 'Coconvergentie ' het album uitblast met 'Halo In Black ' , viel de krachtige en heerlijke heavy productie me meteen op !	-0.34667325019836426
-De heer Habsburg ( PPE ) . - ( DE ) Mijnheer de Voorzitter , zoals mijn geachte vriend , de heer Baudouin , terecht heeft opgemerkt , is het vreemd dat wanneer een staat naar de democratie gaat en zich duidelijk in het democratische kamp plaatst , hij in dit Parlement onder vuur komt te liggen .	-0.4230819642543793
-Als journalist voor Solidariteit in 1989 en onder vuur van de criminele Securitate veiligheidsdienst van Ceauşescu heb ik verslag uitgebracht over de Roemeense revolutie en die revolutie begon in Timişoara met een toespraak van de heer Tőkés op 16 december 1989 .	-0.2808789014816284
-2014 up Jun 4 , 2014 : VN-experts slam India 's kinderrechten beleid - UP Govt ook onder vuur ( PERSBERICHT NCDHR ) : India 's kinderrechten beleid kwam onder scherpe aanval op een cruciale vergadering van VN-deskundigen op 2-3 juni in Genève .	-0.31463950872421265
-Er was geen verlichting van het predikingswerk , maar zelfs onder vuur riepen we de huizen van het volk aan , deden we onze rug - oproepen , voerden we onze bijbelstudies thuis uit , en werden we gezegend met veel toename in die moeilijke jaren .	-0.475066214799881
-Het is jammer dat het zover is gekomen en dat er in januari een oproep van dit Parlement , en van een groot deel van de leden van mijn fractie , is gedaan om de commissarissen die onder vuur lagen , te ontslaan .	-0.4807802736759186
-En als je iets voor je ziet staan , iets wat niet rent , niet achteruit gaat , en je bent te moe om te ademen ... vind je die situatie bij je , dat is goed , want dat is doopsel onder vuur .	-0.5011489391326904
-De 1e Eenheid duwt dan voorbij Houlgate en gaat verder naar Auberville waar het botst met een sterke Duitse achterhoede.Een patrouille van Lt. JACOBS ' sectie , geleid door een Franse patriot , Lt. LEFEVRE , wordt in een hinderlaag gelokt en wordt onder vuur genomen door vier machinegeweren .	-0.3166671395301819
-@ moftasa : Staatsloze Arabieren in Koeweit komen onder vuur omdat de veiligheidstroepen vuurpijlen gebruiken om ze te verspreiden . http : //is.gd/qyrlmg @ arabtimeskuwait : Interieur ontkent de dood - Bedoun protest voor derde dag http : //www.arabtimesonline.com @ dubaijazz : Al Bayan meldt dat een demonstrant van de Bedoun werd gedood in # Kuwait : http : //bit.ly/giFUkg # Waarom ?	-0.26634860038757324
-Een voorstel van de Commissie voor de invoering van een Europees elektronisch tolheffingssysteem voor het wegverkeer wordt door de Commissie vervoer in brand gestoken , waarbij de leden zeggen dat de invoering van een dergelijke dienst vanaf 2005 voor vrachtwagens , bussen en touringcars en vanaf 2010 voor auto 's te ambitieus is .	-0.381026953458786
-Het gaat hier om een kosmetische ingreep om te suggereren dat er werkelijk actie wordt ondernomen tegen de euro-winstbejag , die de afgelopen maanden en , in tegenstelling tot wat de heer Wilfried Martens gisteren heeft gezegd , zeer terecht door de publieke opinie onder vuur is genomen .	-0.6798124313354492
-Minister van Buitenlandse Zaken Van der Stoel hield ook afstand van erkenning van'marxistische ' regeringen in de voormalige Portugese koloniën in Afrika . Eind 1975 kwam de regering onder vuur omdat zij van plan was een uitvoervergunning af te geven voor de verkoop van kernreactorschepen aan Zuid-Afrika .	-0.3916836380958557
-Het Squadron komt onder vuur van de vijand , die zijn gecamoufleerd op de hoogten met uitzicht op de Risle . Echter , steun was onderweg , zoals Kolonel PIRON had bij dageraad , stuurde de 3e Gemotoriseerde Eenheid voor de Groep , op de as Honfleur-Berville-Foulbec .	-0.2874356210231781
-Ze hebben een gemakkelijke suprematie van militair materiaal en schenden de mensenrechten op grote schaal , gaan tot genocide door op grote schaal illegale doodstraffen uit te vaardigen tegen moslims , Serviërs en Kroaten die allemaal in hun kelders worden beschoten , alle vreedzame burgers zonder onderscheid .	-0.43148940801620483
-De nieuwe AVG-regels zijn in het proces van inwerkingtreding , Facebook staat onder vuur voor het delen van persoonlijke gegevens met politieke campagneteams en uw nieuwe iPhone toont u meer dan ooit welke gegevens worden gebruikt door welke app ergens op de achtergrond .	-0.3002307713031769
-Ten derde zetten we militair personeel uit onze lidstaten in voor vredesmissies van de EU en de NAVO , maar door deze gedragscode niet toe te passen , riskeren we dat ze onder vuur komen te liggen door wapens die in onze eigen staten worden geproduceerd als gevolg van onverantwoorde overdracht .	-0.409152090549469
-De Voorzitter . - Aan de orde is het gecombineerd debat over de volgende verslagen :	-0.6124131679534912
-Het verhaal had alle ingrediënten van een sappig gerucht : Oudkerk die eens afstapte na rapporten over cocaïnegebruik en bezoeken aan illegale prostituees zal opvolgen Els de vrouw die we graag haten Iping , onder vuur omdat ze zou proberen om alles te reguleren .	-0.380124032497406
-Politieke betrokkenheid is impliciet in het christelijke evangelie , zegt [ Peter - Hans Kolvenbach , ] leider van de Sociëteit van Jezus , ... die in het verleden onder vuur is gekomen vanuit het Vaticaan voor het mengen van te veel in politieke aangelegenheden .	-0.35124579071998596
-Dat beleid is onder vuur gekomen omdat de verspreiding van internet en sociale media het mogelijk heeft gemaakt dat zowel resultaten als zelfs live-streams van de band gebeurtenissen zelf hebben vertraagd om hun weg over de wereld te vinden voordat ze uitgezonden op NBC en haar dochterondernemingen netwerken .	-0.4814935624599457
-In de eerste plaats moeten we met betrekking tot de inspiraties van de mensen , met betrekking tot degenen die vandaag de dag op straat zijn , die door sluipschutters worden beschoten , niet alleen achter hen staan , maar er ook voor zorgen dat er ten koste van alles een einde komt aan geweld .	-0.421379417181015
-Voor Dries Wijnen , als jonge ondernemer , was deelname aan [ email protected ] in de eerste plaats een leermogelijkheid : `` Tijdens de masteropleiding moest je ook je project presenteren en er om de paar weken verslag over uitbrengen in de start-up accelerator , met de praktische coaches die je in brand staken .	-0.33932262659072876
-Nu de begroting van de Gemeenschap nog steeds onder vuur ligt , zal elk voorstel voor een nieuw programma , zelfs wanneer , zoals in het geval van ERASMUS , de beoogde middelen deel uitmaken van het normale communautaire begrotingskader en geen extra kredieten vereisen , door de lidstaten kritisch moeten worden bekeken .	-0.5415878891944885
-Je ziet korte straatscènes waarin een groep Staphorsters , vrouwen of kinderen in traditionele jurken voortdurend vluchten voor de filmcamera : die 'onder vuur ' van de camera , draaien , duiken of weglopen , bedekken hun gezichten ; ze doen alles om zo snel mogelijk uit het zicht te komen .	-0.40106451511383057
-Wij moeten dit met vastberadenheid doen en dat moeten wij objectief doen , zonder politieke kortzichtigheid , want als de mensenrechten onder vuur komen te liggen , of het nu in het Oosten of in het Westen , het Noorden of het Zuiden is , dan is de mensheid als geheel getroffen en gewond .	-0.5713503360748291
-Uitvoer uit het land staat nu op 94 procent [ ... ] 20 december 2012 [ ... ] Presseurop Pravda 2 45 Tsjechië : Vaclav Havel , een icoon onder vuur Een jaar na de dood van de voormalige president , wordt zijn politieke kijk op het maatschappelijk middenveld uitgedaagd door zijn opvolger Václav Klaus .	-0.36474549770355225
-De Commissie en het Parlement hebben het voorstel voor een fiscale harmonisatie in Portugal al onder druk gezet voordat er een goede planning of discussie is geweest met degenen die door de herstructurering van de sector zijn getroffen .	-0.8062024116516113
-Het Verenigd Koninkrijk staat erom bekend dat zijn oorlogsschepen in Turkije onder minder schone , gezonde en veilige omstandigheden zijn gebroken dan in de EU , en in 2015 kwam de Poolse regering onder vuur te liggen omdat zij verscheidene schepen van de regeringsscheepsonderneming Polsteam verkocht had aan geldkopers voor ondermaatse breuken in Zuid-Azië .	-0.45333653688430786
-Toen een deel van de versterkingen naar hem gestuurd werd met een cadet ( waarvan het deel nooit onder vuur was geweest ) aarzelde hij , door zichzelf het voorbeeld te geven , om ze naar voren te laten gaan.Dit alles werd gedaan , ondanks de pijnen als gevolg van een afketsschot in een van zijn bovenbenen , en zijn immense vermoeidheid .	-0.4305623471736908
-De Commissie kwam onder vuur te liggen toen een meerderheid van de sprekers in het debat kritiek uitte op haar besluit om Ierland te belasten met zijn begroting , die in strijd is met de globale richtsnoeren voor het economisch beleid , die in het kader van het Verdrag van Maastricht betreffende de regels voor de monetaire unie zijn ingevoerd om het stabiliteits- en groeipact af te dwingen .	-0.43963590264320374
-Hoewel ik het onvolmaakte karakter van onze instellingen onderken en er weliswaar naar streeft bepaalde aspecten van de werking van de Commissie te moderniseren , wil ik daarom de unieke rol en structuur van de Commissie verdedigen tegen populistische en simplistische aanvallen , want , vergis je niet , het is de Europese integratie zelf , in de vorm van de Commissie , die onder vuur ligt .	-0.4172634482383728
-De EU staat meestal onder vuur omdat zij te veel heeft uitgegeven , maar als leden van het Europees Parlement bereid zijn om volgend jaar over de ontwerpbegroting van 86 miljard ecu te stemmen , heeft het Parlement van de begrotingsdeskundige Terry Wynn ( Merseyside East and Wigan , Wigan ) gehoord dat ongeveer 5 miljard ecu uit vorige begrotingen , bestemd voor regionale en sociale uitgaven in achtergestelde gebieden , nog steeds niet is gebruikt .	-0.48729780316352844
-Ik hoop dat het Parlement in zijn huidige vorm voor het verslag-De Gucht zal kiezen , onder voorbehoud van een klein voorbehoud , maar ik wil hier in de commissie duidelijk op wijzen dat wij een keuze hebben gemaakt die het algemeen belang van de Gemeenschap weerspiegelt en dat het , nu Maastricht in brand staat , van essentieel belang is dat wij onze gemeenschappelijke zorg voor het algemeen belang van de Gemeenschap bevestigen .	-0.5106385946273804
-Wetenschappers struikelden halverwege de 20e eeuw op aspartaam als kunstmatige zoetstof , maar de laatste jaren is deze stof onder vuur vanwege de gevaren die het zou inhouden.De nieuwe trend is om te zoeken naar gezonde alternatieven in natuurlijke suikervervangers.Er zijn veel natuurlijke alternatieven voor suiker , dus het beste is om je te concentreren op de belangrijkste hier .	-0.41277629137039185
-Ik heb het over het rentebeleid van de Verenigde Staten dat herhaaldelijk in brand is gestoken , hoewel het nu duidelijk is dat de fiscale maatregelen die zijn ingevoerd om de belasting op zowel de begroting als de kredietmarkt en het nieuwe beleid van de Amerikaanse Federale Bank te verlichten , hun rol hebben gespeeld bij het tot stand brengen van een tendens tot verlaging van de rente , ongeacht de redenen waarom zij oorspronkelijk werden ingevoerd .	-0.5500258803367615
-Dit is weer een klap voor een munt die al worstelt , een munt die vrijwel elke week een nieuw dieptepunt op de internationale markt raakt , een munt met de bankpresident die voortdurend onder vuur ligt voor zijn slecht beoordeelde opmerkingen aan de pers , een munt waar ze tijdens het recente Deense referendum `` nee '' hebben gestemd .	-0.5412055253982544
-Het gebruik van `` brandwerende stoffen '' voor dit doel dient niet frequent te zijn . Zie ook de zin 22.01 'Cool . Brandwerende gassen in cilinders , alleen indien ontvlambaar ; stoffen met vlampunt < 55°C en alle stoffen waarvoor gebruik is gemaakt van zin 14101 , 14103 , 14105 , 14115 of 14121 . NB : De voorwaarde `` brandbestendig '' is bedoeld om het brandgevaar als gevolg van de opslag van ontvlambare stoffen tot een minimum te beperken . Met andere woorden , het voorkomen van de levering van brandbare stoffen aan een brandbare stof die is begonnen en het voorkomen van contact met ontstekingsbronnen . 'Vuurbestendig ' is in het algemeen niet bedoeld om het gevaar van verdamping van een vloeistof met een giftige damp te beperken ; het zou kunnen leiden tot opslag van bijna alle vloeistoffen onder brandwerende omstandigheden .	-0.5532099604606628
-==Rolverdeling== * Finishing moves * * '' AP Cross '' ( Fisherman driver ) * * '' AP Cross Diamond '' ( Samoan driver ) * * '' Hama-Chan Cutter '' ( Elevated cutter ) * '' Hamada Driver '' ( Leg hook sitout scoop slam piledriver ) .TNA * * '' La Ayakita '' ( Wrist-lock met halsschaar ) * * '' La Ayakita 2000 '' ( Catapult transitioned into an Indian deathlock surfboard ) * '' Headbutt * * High-angle bel-to-back suplex * * Jumping DDT * * Moonsault , soms terwijl springboarding to the outside * * Multiple kick variations * * * Missile drop * * * Spinning hiel * * * Super * * Running somersault senton on a standing tegen een staande tegenstander buiten de ring * * Sitout powerbomb * * Sitout power	-0.37145373225212097
+De aanval was in het begin succesvol, maar ze bevonden zich toen onder vuur vanaf de hele lijn en werden gedwongen om terug te trekken.
+We liggen onder vuur op verzamelpunt Zebra.
+Captain Roberts toonde uitstekend leiderschap onder vuur... als Compagniecommandant, hij gedroeg zich heel galant.
+Hij staat blijkbaar onder vuur van NAVO-troepen om degenen te beschermen die strijden voor vrijheid en democratie, die ook gebruik maken van Europese en Amerikaanse wapens.
+De gevangenen renden naar de hekjes die het kamp omringden, de hele tijd onder vuur van Oekraïense bewakers in de wachttorens.
+Het is ook belangrijk om te zeggen dat we moeten helpen, maar wanneer we helpen - en soms zal onze aanpak worden gedreven door pragmatisme - mag de procedure na drie maanden niet plotseling onder vuur komen te liggen.
+Steunuitgaven in het kader van de brandbestrijding
+Maar de Koptische Kerk kwam ook onder vuur voor haar geest van haat, bitterheid.
+De levering van de munitie werd opgeschort, net zoals de Griekse regering onder vuur kwam van oppositiepartijen, en Amnesty International riep op tot een wapenembargo.
+Carbon Cult zieken staan onder vuur voor een interactieve website die kinderen vertelt dat ze moeten sterven omdat ze CO2 uitstoten.
+Wereldleiders en politici, met name die uit het Midden-Oosten en Noord-Afrika, kwamen onder vuur te liggen vanwege hun dubbele normen voor de ondersteuning van de vrijheid van meningsuiting in Frankrijk, terwijl zij de vrijheden en het doden en opsluiten van journalisten in hun eigen land verstikken.
+Mainstream mode staat onder vuur nu onze portemonnees dunner zijn geworden en onze kasten overvol zijn.
+Je kunt zelf onder vuur komen te liggen.
+Je staat onder vuur omdat je een hogere engel in ons huis laat schuilen.
+Ja, Tess staat onder vuur om uit te leggen waarom Julianna werd vermoord op onze bruiloft, dus...
+Dit is weer een klap voor een munt die al worstelt, een munt die vrijwel elke week een nieuw dieptepunt op de internationale markt raakt, een munt met de bankpresident die voortdurend onder vuur ligt voor zijn slecht beoordeelde opmerkingen aan de pers, een munt waar ze tijdens het recente Deense referendum "nee" hebben gestemd.
+Europese Commissie: Duitse uitvoer onder vuur
+Pre-pack onder vuur als gevolg van de bevindingen van de advocaat-generaal (EU)
+Het Duitse aanvalsplan was bedoeld om de Franse frontlinies volledig te vernietigen met de huidige veldgeweren en de houwitsers.De langeafstandsgeweren moeten alle aanvoerroutes onder vuur houden om te voorkomen dat Frankrijk versterkingen binnenhaalt.
+De piloten van het 487th Fighter Squadron die vertrokken, deden dat onder vuur en in het gezicht van overweldigende kansen.
+Mevrouw de Voorzitter, ik ben niet op een andere manier onder vuur gekomen.
+Ze kwamen een half uur geleden onder vuur.
+Zonder onze eigen schuld, is Progeia onder vuur gekomen van de SEC.
+3 Mozes onder vuur
+Cool onder vuur houden
+Na vier jaar repetities in het Kunsttheater werd het in de krant Pravda onder vuur genomen en na 7 optredens werd het verboden.
+Laten we beginnen met de onrust in Egypte, waar de antikoloniale passies hoog blijven lopen, en waar onze soldaten nog steeds onder vuur komen te liggen door nationalistische opstandelingen.
+Ook de twijfelachtige constatering dat de percentages van de overheidsuitgaven onaanvaardbaar hoog waren, werd door de heer Lamfalussy slechts halfslachtig gekwalificeerd toen hij onlangs in de Subcommissie monetaire zaken van het Parlement onder vuur kwam te liggen.
+Ze zaten maanden samen onder vuur.
+De studies van Heath zijn echter onder vuur gekomen omdat ze beperkt waren (naar verluidt werden slechts vier apen onderzocht) en er ontbraken wetenschappelijke controles.
+Het Verenigd Koninkrijk kwam onder vuur voor een inci...
+Luitenant Beller's eenheid werd beschoten toen ze Phu An binnenkwamen.
+En het is ook niet alleen de traditionele jacht die onder vuur ligt.
+Vermoedelijk doen ze dit met de gedachte achterin hun hoofd dat Amerika zijn solidariteit met Israël zal tonen zodra hun bondgenoot wordt beschoten door een Iraanse tegenaanval.
+Het Griekse systeem wordt door het hele land onder vuur genomen.
+En ook onder vuur.
+In de media wordt de partij verbonden met de bomaanslag op een islamitische school in Eindhoven en wordt nu zelf onder vuur genomen.
+Maar het hele huisvestingsprogramma staat nu onder vuur, Doreen, dus ze gaan een voorbeeld van haar maken.
+New York Chicago en Washington liggen allemaal onder vuur op dit moment... terwijl de GC troepen samenwerken met militie terroristen.
+We konden ontsnappen, maar... we lagen onder vuur van de Duitsers.
+De Sri Lankaanse oppositie, de Tamil-diaspora en enkele mensenrechtenverdedigers werden door de Sri Lankaanse nationalisten beschoten toen zij de resolutie steunden.
+Amazon is onder vuur op een aantal fronten. Ten eerste, de Federal Labour Agency onderzoekt de arbeidsomstandigheden binnen de on-line retail reus, na openbaringen [...]
+Wittmann zijn Tiger stopte in de buurt van het hotel toen hij onder vuur kwam van de Firefly uit Lockwood Na de vernietiging van de Cromwell OP, werd de hoge straat Rue Pasteur helemaal verlaten tot aan het einde van Place Jean d'Arc.
+De vermiste personencel werd onlangs beschoten voor geklungel in het onderzoek.
+"Haar kalmte en concentratie onder vuur waren opmerkelijk."
+Ambarchik kwam onder vuur tijdens de Tweede Wereldoorlog toen het werd aangevallen door Duitse troepen als onderdeel van Operatie Wunderland.
+Onder vuur van de Britten, probeert de Garde een laatste aanval, die eindigt in een mislukking.
+Onder vuur van critici die hem aanklagen... heeft hij de lijnen tussen Irak en 11 september vervaagd. President Bush werd gedwongen om het gisteren te verduidelijken.
+Generaal Gallwitz, een artillerieofficier, besluit er op grote schaal mee om te gaan: 500 zware kanonnen nemen onder vuur een front dat nauwelijks breder is dan 2 kilometer.
+De vredeshandhavers zijn aan de grens onder vuur gekomen.
+We liggen onder vuur op het dek.
+Politieagenten onder vuur
+Een signaal 13 op de radio, alsof hij onder vuur lag van een sluipschutter.
+Het gaat hier om een kosmetische ingreep om te suggereren dat er werkelijk actie wordt ondernomen tegen de euro-winstbejag, die de afgelopen maanden en, in tegenstelling tot wat de heer Wilfried Martens gisteren heeft gezegd, zeer terecht door de publieke opinie onder vuur is genomen.
+De leden van het Europees Parlement willen ook dat er een gezamenlijke inspanning wordt geleverd om de verschrikkelijke verkeersongevallen in Europa terug te dringen en de Commissie is onder vuur genomen omdat zij niet genoeg heeft gedaan om de organisatoren van het WK te dwingen meer tickets ter beschikking van de fans te stellen.
+Het Network News Channel staat onder vuur voor een verhaal... dat onlangs Senator Richard Porter beschuldigde van het vragen om smeergeld van defensie-aannemers.
+Laten we oppassen, want een burgerdienst onder vuur en gedemoraliseerd zou de efficiëntie en onafhankelijkheid van de instellingen in gevaar brengen!
+Nu de tegenstanders onder vuur liggen van de troepen en huurlingen van Gaddafi en de kolonel afgezanten naar de Europese hoofdsteden stuurt om zijn regime te redden, moeten we het Libische volk laten zien dat wij hen steunen.
+Het Russische leger kon het niet weerstaan en Leningrad en Moskou stonden na een paar maanden onder vuur.
+De buitenboordhandelsbeperkingen kwamen ook om dezelfde redenen onder vuur te liggen.
+Misschien kom je zelf wel onder vuur.
+Na deze woorden, hebben ze een discussie met de burgeres Sofya Pavlovna over hun lidmaatschap en over het feit dat Dostoevsky onsterfelijk is, ze worden onder vuur genomen door de NKVD, en ze eindelijk alles in brand gestoken.
+Toen kwam het ministerie onder vuur te liggen voor zijn eenzijdige landbouwbeleid.
+Toch is Mozes al meer dan een eeuw onder vuur gekomen door zowel geleerden als geestelijken.
+Een week na het ontslag van de overheid op een moment dat het land onder vuur van ratingbureaus bezorgd over de omvang van [...]
+Wetenschappers struikelden halverwege de 20e eeuw op aspartaam als kunstmatige zoetstof, maar de laatste jaren is deze stof onder vuur vanwege de gevaren die het zou inhouden.De nieuwe trend is om te zoeken naar gezonde alternatieven in natuurlijke suikervervangers.Er zijn veel natuurlijke alternatieven voor suiker, dus het beste is om je te concentreren op de belangrijkste hier.
+Het is een cosmetische ingreep die erop gericht is te suggereren dat er daadwerkelijk actie wordt ondernomen tegen de euro-winstbejag; winstbejag dat in de afgelopen maanden en, in tegenstelling tot wat de heer Wilfried Martens gisteren zei, zeer terecht door de publieke opinie onder vuur is genomen.
+Een fles Charles Shaw kost slechts 2 dollar in de Amerikaanse supermarktketen Traders Joe. Bronco Wine Co. kwam opnieuw onder vuur in mei van vorig jaar.
+Uitvoer uit het land staat nu op 94 procent [...] 20 december 2012 [...] Presseurop Pravda 2 45 Tsjechië: Vaclav Havel, een icoon onder vuur Een jaar na de dood van de voormalige president, wordt zijn politieke kijk op het maatschappelijk middenveld uitgedaagd door zijn opvolger Václav Klaus.
+Om 21:32 uur kregen we een bericht van een Deense eenheid die onder vuur lag.
+Hij lag onder vuur en ze kwamen hem aflossen.
+Het zou een zwakke munt zijn, die onder vuur zou komen te liggen en dus zou leiden tot een ramp.
+Ondertussen staan zowel Cambridge Analytica als AIQ onder vuur over de vijver voor hun betrokkenheid bij Brexit campagnes.
+Men kan het misschien ontkennen, maar zowat elke maatregel die is genomen, is door dit Parlement onder vuur genomen.
+Zo koel onder vuur als een bergmeer.
+Een voorstel van de Commissie voor de invoering van een Europees elektronisch tolheffingssysteem voor het wegverkeer wordt door de Commissie vervoer in brand gestoken, waarbij de leden zeggen dat de invoering van een dergelijke dienst vanaf 2005 voor vrachtwagens, bussen en touringcars en vanaf 2010 voor auto's te ambitieus is.
+Tijdens het herstellen in het ziekenhuis kwamen ze waarschijnlijk onder vuur van de TNI en hij raakte weer gewond.
+We liggen onder vuur van twee mannen, blank.
+We liggen overal onder vuur.
+Ten eerste, het idee dat al het leven afstamt van een enkele voorouderlijke vorm komt onder vuur in sommige wijken.
+Een korte tijd later merkte Will dat er nog een peloton onder vuur lag van twee Duitse machinegeweren.
+Aros Energy verklaringen onder vuur op meer locaties _ Holmbygden.se
+Tegelijkertijd denk ik dat de bittere belediging voor al degenen die zich bezighouden met de landbouw en het gemeenschappelijk landbouwbeleid is dat in de loop der jaren de kosten voor de afzet van de kunstmatig gecreëerde overschotten zijn afgewenteld op het gemeenschappelijk landbouwbeleid, dat van alle kanten onder vuur is gekomen en onder druk is komen te staan.
+Het kanaal lag naast de spoorlijn, die door de geallieerden onder vuur lag. Gelukkig raakte er niemand gewond en kwamen alle wortelen in Leiden en, de andere helft, in Den Haag.
+Raben beval de rest van zijn team naar het dorp te gaan om hen te helpen die daar onder vuur lagen.
+Politieke betrokkenheid is impliciet in het christelijke evangelie, zegt [Peter - Hans Kolvenbach,] leider van de Sociëteit van Jezus,... die in het verleden onder vuur is gekomen vanuit het Vaticaan voor het mengen van te veel in politieke aangelegenheden.
+We kunnen niet toestaan dat onze leiders valse informatie gebruiken om oorlog te rechtvaardigen'. meer lezen 3 juni 2003 _ Blair loog om oorlog te kunnen voeren tegen Irak - 1 Tony Blair staat onder vuur omdat hij zou hebben gelogen.
+Hoezeer ze ook in naam van het liberale beleid onder vuur komen te liggen, de quota's ten gunste van Europese en nationale audiovisuele producten hebben absoluut gelijk.
+In ander nieuws vanavond, een South Park bio bedrijf komt onder vuur voor genetisch technische lichaamsdelen op laboratorium muizen.
+De Commissie en het Parlement hebben het voorstel voor een fiscale harmonisatie in Portugal al onder druk gezet voordat er een goede planning of discussie is geweest met degenen die door de herstructurering van de sector zijn getroffen.
+Onder vuur van burgers.
+Fort Vaux is in zicht, maar vanaf daar hebben de Fransen een duidelijk schietgebied en ze houden de Hardoumont-fortificatie permanent onder vuur.Voor de Duitsers is er geen manier om er doorheen te komen; de Duitse aanval stopt hier.
+We worden beschoten en hebben ernstige slachtoffers.
+@moftasa: Staatsloze Arabieren in Koeweit komen onder vuur omdat de veiligheidstroepen vuurpijlen gebruiken om ze te verspreiden. http://is.gd/qyrlmg @arabtimeskuwait: Interieur ontkent de dood - Bedoun protest voor derde dag http://www.arabtimesonline.com @dubaijazz: Al Bayan meldt dat een demonstrant van de Bedoun werd gedood in #Kuwait: http://bit.ly/giFUkg #Waarom?
+Het kanaal lag naast de spoorlijn, die onder vuur lag door de geallieerden.
+De eerste keer onder vuur is nooit eenvoudig.
+De president is vanavond aanwezig bij een fondsenwerving ter ondersteuning van de Nationale Vrijwilliger Alliantie, hoewel critici suggereren dat dit slechts een poging is om het publiek af te leiden van zijn laatste surveillance voorstellen, die in de pers onder vuur zijn gekomen.
+Hybriden, bekend om de manier waarop ze zowel gas- als elektrische energie combineren om een schonere rit te bieden, zijn de afgelopen maanden onder vuur gekomen omdat ze niet in staat zijn om de door de fabrikanten vastgestelde mijlpalen in de gasmijlstand te bereiken.
+Dislocatie; breuk, hersenschudding; verbrijzeling; snijwonden (zie ook onder vuur en explosie)
+Stabiliteitspact en Ierland - Commissie in brand
+In feite verwierp LaViolette in zijn belangrijke boek Earth Under Fire het idee dat periodieke poolverschuivingen door de geschiedenis heen hadden plaatsgevonden.
+Er was geen verlichting van het predikingswerk, maar zelfs onder vuur riepen we de huizen van het volk aan, deden we onze rug - oproepen, voerden we onze bijbelstudies thuis uit, en werden we gezegend met veel toename in die moeilijke jaren.
+Ik hoop dat je rekening houdt met het feit dat we dit koffertje niet eens zouden hebben als hij niet onder vuur was gesprongen en het uit de rivier had getrokken.
+In St.Honorine-de-Ducy is een plaquette te vinden voor de bevrijding op 12 juni 1944 Na 7 kilometer, bij Livry, kwam de colonne onder vuur van een Duits antitankpistool van Panzer Lehr Division.
+In ander nieuws kwam de nucleaire regelgevende commissie weer onder vuur... verkiezingen zijn over twee maanden.
+Als journalist voor Solidariteit in 1989 en onder vuur van de criminele Securitate veiligheidsdienst van Ceauşescu heb ik verslag uitgebracht over de Roemeense revolutie en die revolutie begon in Timişoara met een toespraak van de heer Tőkés op 16 december 1989.
+We waren op patrouille, gevangen achter de linies... en zaten drie dagen in een gat onder vuur van schutters.
+2014 Moge Jesaja 50:4-8: De dienaar van de Heer, een discipel onder vuur De Soevereine Heer heeft mij een goed gebouwde tong gegeven, om het woord te kennen dat de vermoeiden ondersteunt.
+Jouw moed onder vuur redde veel goede mensen, Vega.
+De Ierse president Michael Higgins staat onder vuur na een interview met de Financial Times waarin hij zei dat de EU een hegemonische [...]
+Ook Rusland komt onder vuur te liggen in een amendement dat "de schendingen van de mensenrechten door zijn troepen in Tsjetsjenië afzwakt" en de Raad en de lidstaten wordt opgeroepen de zaak voor het Europees Hof voor de rechten van de mens te brengen.
+Zoals de heer Christensen al zei, komt de Gemeenschap steeds meer onder vuur voor haar uitgaven.
+Je jongens kwamen onder vuur in 2010. Basra.
+Luister, ik heb twee maanden doorgebracht, twee maanden recht onder vuur dag en nacht op het Maleise schiereiland.
+De president staat ook nog onder vuur vanwege de zaak Bulog en Brunei.
+Er staat dat je de Silver Star of Excellence kreeg voor moed terwijl je onder vuur lag in Irak?
+02-76 1918: Parijs onder vuur door middel van langeafstandskanonnen
+...kwam onder vuur te liggen in de felle vuurgevechten van de verdachten... tussen twee rivaliserende bendes.
+De afgelopen twee jaar is de WTO herhaaldelijk en terecht onder vuur genomen.
+Ik ben niet zo goed onder vuur als Claudia Joy als het gaat om ontevreden echtgenoten.
+Vuur tweeling, onder vuur tweeling vind je de weg.
+De heer Muntingh (S), rapporteur. - Mijnheer de Voorzitter, ik ben net onder vuur geweest en ik zou eigenlijk terug moeten schieten.
+Bindend studieadvies onder vuur
+Terwijl Mako zijn handelsmerk cool onder vuur stijl toont.
+We liggen onder vuur vanaf de bovenste verdiepingen.
+De 1e Eenheid duwt dan voorbij Houlgate en gaat verder naar Auberville waar het botst met een sterke Duitse achterhoede.Een patrouille van Lt. JACOBS' sectie, geleid door een Franse patriot, Lt. LEFEVRE, wordt in een hinderlaag gelokt en wordt onder vuur genomen door vier machinegeweren.
+Onder vuur liggen in een hitte van 120 graden in het midden van de woestijn is een moeilijke plek.
+Waarom Advocaten onder vuur staan
+Zo nu en dan herinnerde Pierre zich wat hem was verteld over soldaten die in een hinderlaag werden beschoten als ze niets te doen hadden, hoe ze hun best de bezetting proberen te vinden om hun gevaar gemakkelijker te dragen.
+Materialen die bij blootstelling onder brand geen gevaar opleveren buiten dat van gewoon brandbaar materiaal.
+In de eerste plaats moeten we met betrekking tot de inspiraties van de mensen, met betrekking tot degenen die vandaag de dag op straat zijn, die door sluipschutters worden beschoten, niet alleen achter hen staan, maar er ook voor zorgen dat er ten koste van alles een einde komt aan geweld.
+Grace onder vuur is belangrijk.
+Pre-pack onder vuur als gevolg van de bevindingen van de advocaten-generaal
+Ik lig nu onder vuur.
+Als je onder vuur ligt en blind schiet, dan daalt die slagsnelheid tot ongeveer nul.
+Ook onder vuur stoppen is John Ehrlichman.
+We kunnen elk moment onder vuur komen te liggen.
+Turkije komt ook onder vuur te liggen wegens schendingen van de mensenrechten die zowel aan zijn Koerdische en christelijke minderheden als aan Cyprus zijn toegebracht.
+Turkije staat ook onder vuur voor schendingen van de mensenrechten die zijn Koerdische en christelijke minderheden en Cyprus hebben aangedaan. Het Taliban-regime in Afghanistan wordt ook veroordeeld voor schendingen van de mensenrechten, met name ten aanzien van vrouwen.
+Het Verenigd Koninkrijk staat erom bekend dat zijn oorlogsschepen in Turkije onder minder schone, gezonde en veilige omstandigheden zijn gebroken dan in de EU, en in 2015 kwam de Poolse regering onder vuur te liggen omdat zij verscheidene schepen van de regeringsscheepsonderneming Polsteam verkocht had aan geldkopers voor ondermaatse breuken in Zuid-Azië.
+Onder brandpreventie regels hier is het onmogelijk om houten staven toe te passen.
+De ISO 22610-methode om de resistentie tegen vochtige penetratie van bacteriën te beoordelen wordt momenteel in brand gestoken en herzien, omdat deze niet goed kan worden gereproduceerd en onbetrouwbaar wordt geacht.
+Als de mannen uit de bomen komen zullen ze onder vuur liggen van Yankee artillerie van over het hele veld.
+Tsarong was aangesteld om zijn diplomatieke vaardigheden te gebruiken om een delegatie te leiden om te onderhandelen met de Chinese autoriteiten in Lhasa, maar voordat de onderhandelingen konden worden afgerond, Lhasa kwam onder vuur met bombardementen van de Potala en Norbulingka paleizen.
+We staan onder vuur in het steegje en deze "agenten" gaan de andere kant op.
+DHS is onder vuur gekomen voor slecht beheer van personeel en budgetten.
+Op 25 mei 1954 om 14:55 ging het regiment door een gevaarlijk gebied onder vuur toen Capa besloot zijn Jeep te verlaten en de weg op te gaan om de voorsprong te fotograferen.
+Als we Duitsers waren, zouden we onder vuur liggen van sluipschutters.
+Ze is nog nooit echt onder vuur geweest in een debat.
+Ze ging de slagvelden op om de pijn van de stervenden te verlichten.
+Bronnen suggereren ook dat de politie, die al onder vuur ligt omdat ze traag reageert op de zaak, een mogelijke vrijmetselaarsverbinding onderzoekt,
+Dat beleid is onder vuur gekomen omdat de verspreiding van internet en sociale media het mogelijk heeft gemaakt dat zowel resultaten als zelfs live-streams van de band gebeurtenissen zelf hebben vertraagd om hun weg over de wereld te vinden voordat ze uitgezonden op NBC en haar dochterondernemingen netwerken.
+Het Russische leger kon het niet weerstaan en Leningrad en Moskou werden na een paar maanden onder vuur genomen. In Voorspellingen die uitgekomen zijn... is er geen verwijzing naar de Duitse en Italiaanse oorlogsverklaring aan de Verenigde Staten op 7 december 1941, na de Japanse aanval op de Amerikaanse marinebasis Pearl Harbor in Hawaï.
+Maar in de afgelopen decennia zijn de evangelische verslagen onder vuur gekomen door critici.
+En als je eenmaal zelf onder vuur bent geweest, brengt het nog duidelijker naar huis dat een pistool geen macho instrument is om over op te scheppen.
+Direct vanaf het openingsnummer 'Baphomet' word je onder vuur genomen door een harde bijna symfonische en zeer strakke death metal aanval.
+Turkije staat ook onder vuur voor schendingen van de mensenrechten die zijn Koerdische en christelijke minderheden en Noord-Cyprus hebben aangedaan.
+De politie is vandaag onder vuur gekomen omdat ze traag reageert op Jack the Ripper copycat moorden in London's East End.
+picture: Britse soldaten onder vuur van Duitse artillerie tijdens de Slag bij de Marne op 8 september 1914.
+Het Verenigd Koninkrijk staat ook onder vuur voor de situatie van de Roma, gevallen van binnenlandse slavernij en de tewerkstelling van kinderen jonger dan 15 jaar.
+Nu waren ze onder vuur van boven zonder duidelijk plan om vooruit te gaan of terug te gaan.
+Je moet met iemand onder vuur liggen, hij is de man die je wilt in je schuttershol.
+4 WAAROM DE WETGEVINGIGERS ONDER BRAND ZIJN
+Ik lig hier onder vuur, Ruvi.
+2014 up Jun 4, 2014: VN-experts slam India's kinderrechten beleid - UP Govt ook onder vuur (PERSBERICHT NCDHR) : India's kinderrechten beleid kwam onder scherpe aanval op een cruciale vergadering van VN-deskundigen op 2-3 juni in Genève.
+Of je gaat onder vuur en sterft... of je vindt de moed om je over te geven en te leven.
+RENCH, Duitse en Britse ministers kwamen onder vuur voor het plaatsen van onderzoeksbanen
+Ierland: Kenny onder vuur omdat ze geen volledige excuses heeft aangeboden aan Magdalena-vrouwen.
+We hebben gereageerd op het rapport van rechters onder vuur vanuit dit blok.
+Communistische vissen in Noord-Vietnamese Water Na de ondertekening van de overeenkomst met Frankrijk lag Ho Chi Minh onder vuur in de Vietminh, maar onmiddellijk na zijn terugkeer naar Vietnam brak de Eerste Indochina Oorlog of de Vietminh Oorlog uit.
+Google+ is echter eigendom van Google en onlangs staat Google onder vuur vanwege hun twijfelachtige privacybeleid.
+Onder vuur van de Gaulle, die verder werd gewroken door de vijandige reactie die hij ontving van Frankrijks vijf partners, bevond Hallstein zich gevangen in een algemene ergernis.
+Het menselijk lijden is verschrikkelijk: ook het menselijk lijden in het zuiden van Israël dat ook onder vuur komt te liggen door raketten die vanuit het noorden van Gaza worden gelanceerd, naar hun eigen volk toe, een factor die stabiliteit in feite onmogelijk maakt.
+Toen S.S. Luitenant-generaal Stroop op 19 april het getto binnenkwam met gepantserde auto's, kwam hij onmiddellijk onder vuur en verloor twaalf man; Duitse en Poolse slachtoffers in de strijd, die vier weken duurde, in totaal 101 doden en gewonden.
+toen hij onder vuur kwam van de Firefly uit Lockwood
+Hervormingen van het GLB van de Commissie
+Vriendschap onder vuur
+Dierenvalovereenkomst onder vuur was "geen reden voor iemand om defensief te zijn over de prestatie."
+De heer Habsburg (PPE). - (DE) Mijnheer de Voorzitter, zoals mijn geachte vriend, de heer Baudouin, terecht heeft opgemerkt, is het vreemd dat wanneer een staat naar de democratie gaat en zich duidelijk in het democratische kamp plaatst, hij in dit Parlement onder vuur komt te liggen.
+Onder vuur van lokale bendes.
+De strijd van dichtbij, ontsnappen en ontwijken, weerstand bieden aan ondervragingen - we zullen de basisoefeningen oefenen tot we ze's nachts kunnen doen, onder vuur en op onze kinbandjes.
+Ze hebben een gemakkelijke suprematie van militair materiaal en schenden de mensenrechten op grote schaal, gaan tot genocide door op grote schaal illegale doodstraffen uit te vaardigen tegen moslims, Serviërs en Kroaten die allemaal in hun kelders worden beschoten, alle vreedzame burgers zonder onderscheid.
+Laten we ons gedragen, want een burgerdienst onder vuur en gedemoraliseerd zou de efficiëntie en onafhankelijkheid van de instellingen in gevaar brengen!
+Zowel dorpen als vredeshandhavers worden nu beschoten.
+27 november 2013 NRC Handelsblad (Amsterdam) 20 130 Jeroen Dijsselbloem: 'Mr Euro' onder vuur De voorzitter van de Eurogroep komt voor toenemende kritiek.
+Ze hadden een oproep gekregen van een patrouille onder vuur achter vijandelijke linies.
+De rat schommelde en rolde buik over als een cowboy schutter onder vuur naar de dichtstbijzijnde dekking en verdween door een gat, nu gevuld met grind.
+Hun in paniek geraakte bemanning sneed de ankertouwen door, maar sommige schepen bleven verstrikt en dreigden te kapseizen vanwege het gewicht van de gebroken masten, dus moesten ze weer onder vuur ankeren om ze af te snijden.
+24 mei 2016: India: Stop met het behandelen van critici als criminelen (PERSBERICHT Human Rights Watch) 2014 tot 18 jun 2014: VN Rights Council: End Caste-based verkrachting, geweld - Side Event Highlights Need for Concrete Action (PERSBERICHT IDSN/Human Rights Watch) 4 jun 2014: VN-experts slaan India's kinderrechtenbeleid - UP Govt ook onder vuur (PERSBERICHT NCDHR) : India's kinderrechtenbeleid kwam scherp onder vuur tijdens een cruciale vergadering van VN-experts op 2-3 juni in Genève.
+De Tweede Wereldoorlog stopte het getuigenwerk niet, hoewel het in vele landen onder vuur lag.
+De bizarre zelfverklaarde priester Alexander Alexandrovich Morozov, een voormalig politieagent uit Zagorsk, blijft het Boelgakovhuis in brand steken met de meest ongelooflijke intimidaties.
+Hij zei dat ze onder vuur kwamen en het ontmoetingspunt moesten verlaten.
+De doodstraf voor ongehoorzaamheid onder vuur werd opnieuw ingesteld, net als het groeten van officieren, speciale adresvormen, aparte woonruimtes en privileges voor officieren.
+De Israëlische troepen komen onder vuur in de Mitla Pass.
+Maar de effectiviteit en de loyaliteit ervan zijn onder vuur gekomen door natuurbeschermingsgroepen.
+Bronco Wine Co. kwam weer onder vuur in mei van vorig jaar.
+Sir, we volgen een Special Ops team onder vuur in Qatar.
+Onder vuur graaf je een gat met je tanden als het moet.
+Minister van Buitenlandse Zaken Van der Stoel hield ook afstand van erkenning van'marxistische' regeringen in de voormalige Portugese koloniën in Afrika. Eind 1975 kwam de regering onder vuur omdat zij van plan was een uitvoervergunning af te geven voor de verkoop van kernreactorschepen aan Zuid-Afrika.
+Maar dat ligt nu onder vuur als wetenschappers debat, en Federale agentschappen bestuderen, of een voorgestelde ondergrondse stortplaats in Nevada zou kunnen uiteindelijk ontploffen in een nucleaire explosie gevoed door afval.
+De Commissie is ook tegen de herziening van de detacheringsrichtlijn, een richtlijn die na een aantal zeer controversiële arresten van het Europees Hof van Justitie onder vuur is gekomen.
+Duisenberg kwam ook onder vuur te liggen omdat hij weigerde zijn salaris bekend te maken.
+De Commissie kwam onder vuur te liggen toen een meerderheid van de sprekers in het debat kritiek uitte op haar besluit om Ierland te belasten met zijn begroting, die in strijd is met de globale richtsnoeren voor het economisch beleid, die in het kader van het Verdrag van Maastricht betreffende de regels voor de monetaire unie zijn ingevoerd om het stabiliteits- en groeipact af te dwingen.
+De Britse regering kwam ook onder vuur van Niall Andrews (Dublin, UFE) voor de behandeling van Roisin McAliskey die werd vastgehouden door de autoriteiten onder verdenking van terrorisme.
+Na 7 kilometer, bij Livry, kwam de colonne onder vuur van een Duitse antitank pistool van Panzer Lehr Division.
+Hij benadrukte dat het belangrijk is de Tsjechische bevolking in staat te stellen van het lidmaatschap te profiteren, en voegde eraan toe dat de standpunten van "opportunistische" Tsjechische politici, die onlangs onder vuur waren gekomen, moeten worden genegeerd.
+Gentherapie onder vuur
+Bende van Vier onder vuur In het begin van de jaren 70 was China in transitie.
+Alle eenheden, twee schoten, paramedici onder vuur in North Side magazijn.
+Een patrouille van Luitenant JACOBS' sectie, geleid door een Franse patriot, Luitenant LEFEVRE, wordt in een hinderlaag gelokt en wordt onder vuur genomen door vier machinegeweren.
+Op deze manier kunnen ze ook vanaf een ander kwartaal onder vuur komen te liggen, en ik denk dat dat alleen maar in ons belang kan zijn.
+Na een tijdje werden we op de radio geroepen door een andere Deense ploeg, die onder vuur lag.
+Het project onderzoekt de brandweerstand van betonconstructies versterkt met FRP NSM: uithoudingsvermogen onder brandomstandigheden, materiaalgedrag, geoptimaliseerde versterking en brandbeveiliging...
+Nou, onder vuur was niet mijn idee.
+Verenigd Koninkrijk: Cameron onder vuur terwijl MI5 terrorisme blunders tevoorschijn komen
+Ze lagen onder vuur en jij ging niet terug om te helpen?
+Het is jammer dat het zover is gekomen en dat er in januari een oproep van dit Parlement, en van een groot deel van de leden van mijn fractie, is gedaan om de commissarissen die onder vuur lagen, te ontslaan.
+De Commissie staat herhaaldelijk in de media onder vuur om Eurocheese, Eurobeer en Eurosausage te promoten en geen plaats voor nationale specialiteiten toe te staan.
+We bieden nu brieven aan van Constructionman Devine's OIC en leden van zijn Seabee eenheid die zijn moed en moed onder vuur leggen in Camp Stronghold Freedom, waar we hopen dat het bestuur rekening mee zal houden bij het doen van zijn aanbevelingen.
+We liggen onder vuur - herhaal, onder vuur.
+Op dat moment werd Pearl Harbor onder vuur genomen en bedreigd door de tweede golfaanval.
+In mei 1940 werd het fort 12 dagen belegerd, en kwam onder vuur van zware artillerie en de Duitse luchtmacht. Een enkele bom gelanceerd door een stuka afgeketst en kwam een gevechtsblok binnen, waarbij 28 van zijn inzittenden werden gedood.
+Hij weet er heel slim in te spelen, dus op dit moment krijgt hij een flinke steun van de ene kant.Voorheen lag hij onder vuur - dat was voordat de Amerikaanse druk werd opgevoerd.Tijdens de eerste maanden van zijn presidentschap was hij zeker aan het wankelen.'
+Het verhaal had alle ingrediënten van een sappig gerucht: Oudkerk die eens afstapte na rapporten over cocaïnegebruik en bezoeken aan illegale prostituees zal opvolgen Els de vrouw die we graag haten Iping, onder vuur omdat ze zou proberen om alles te reguleren.
+Aros Energy verklaringen onder vuur op meer locaties
+Wij hebben in feite in de meerderheid van dit Parlement de methoden veroordeeld die het Russische leger heeft gebruikt om alle mogelijke weerstand tegen zijn vooruitgang te vernietigen, zonder rekening te houden met de verliezen die daardoor onder de burgerbevolking zijn veroorzaakt.
+Reuters, Fox News, Rusland Vandaag en vele andere lokale of buitenlandse agentschappen werden beschoten door zeven raketten die door een Israëlische helikopter werden neergeschoten.
+De nieuwe AVG-regels zijn in het proces van inwerkingtreding, Facebook staat onder vuur voor het delen van persoonlijke gegevens met politieke campagneteams en uw nieuwe iPhone toont u meer dan ooit welke gegevens worden gebruikt door welke app ergens op de achtergrond.
+Voorjaarsbijeenkomst van de Europese Raad - Gezamenlijk debat Europese Investeringsbank - oproep tot prudentieel toezicht Oproep tot verantwoording - De Europese Investeringsbank reageert op reorganisatie en liquidatie van verzekeringsondernemingen Stabiliteitspact en Ierland - Commissie in brand
+België is de afgelopen jaren vaak onder vuur gekomen, maar sindsdien zijn er grote inspanningen geleverd om de zaken ten goede te veranderen.
+Het NBN is herhaaldelijk onder vuur gekomen omdat het zowel gepolitiseerd is als verouderde technologie en oude koper gebruikt vanwege de budgettaire beperkingen die inherent zijn aan een overheidsproject.
+Ja, ik had me niet gerealiseerd dat je tien dagen onder vuur lag aan het Russische front, gevangen in een schuttersput met negen stormtroopers.
+Troepen zullen onder vuur komen te liggen met meer dan een mijl om te lopen.
+De EU staat meestal onder vuur omdat zij te veel heeft uitgegeven, maar als leden van het Europees Parlement bereid zijn om volgend jaar over de ontwerpbegroting van 86 miljard ecu te stemmen, heeft het Parlement van de begrotingsdeskundige Terry Wynn (Merseyside East and Wigan, Wigan) gehoord dat ongeveer 5 miljard ecu uit vorige begrotingen, bestemd voor regionale en sociale uitgaven in achtergestelde gebieden, nog steeds niet is gebruikt.
+We zagen jonge kerels onder vuur zwemmen op het strand.
+Het Squadron komt onder vuur van de vijand, die zijn gecamoufleerd op de hoogten met uitzicht op de Risle. Echter, steun was onderweg, zoals Kolonel PIRON had bij dageraad, stuurde de 3e Gemotoriseerde Eenheid voor de Groep, op de as Honfleur-Berville-Foulbec.
+Er is zelfs een ziekenhuis onder vuur gekomen en volgens humanitaire organisaties is de algemene situatie rampzalig.
+Op het spel staat niets minder dan de euro zelf, die, onder vuur van meedogenloze speculanten, instort te midden van de ruïnes van het Parthenon.
+Wetenschappers ontdekten aspartaam als een kunstmatige zoetstof halverwege de 20e eeuw, maar de laatste jaren is deze stof onder vuur vanwege de gevaren die het zou inhouden.
+Liefde is tegenwoordig dapperheid onder vuur en de compensatie is medailles.
+Minister Donner, die in Nederland zo vaak onder vuur ligt, heeft in dat opzicht samen met zijn collega's uitstekend werk verricht.
+Onder vuur in de sector.
+Tegelijkertijd wordt Fort Douaumont onder vuur genomen met de nieuwe 400 mm kanonnen; het bombardement wordt geleid vanuit een verkenningsvliegtuig dat op dat moment boven het fort cirkelt.
+Cam Brady is onder vuur gekomen voor het krijgen van het op met deze vrouw, Shana St. Croix een voormalige professionele cheerleader en parttime aerobics instructeur die dit kan doen.
+De Bank was de eerste die deze markt heropende nadat de frank in het laatste kwartaal onder vuur kwam te liggen op de buitenlandse veranderingen.
+De Zuidelijke Dopers van Alabama, VS, kwamen onlangs onder vuur toen ze een officiële schatting publiceerden die suggereert dat 46,1 procent van de bevolking van de staat naar de Doper hel kan gaan.
+Ten derde zetten we militair personeel uit onze lidstaten in voor vredesmissies van de EU en de NAVO, maar door deze gedragscode niet toe te passen, riskeren we dat ze onder vuur komen te liggen door wapens die in onze eigen staten worden geproduceerd als gevolg van onverantwoorde overdracht.
+Wij moeten dit met vastberadenheid doen en dat moeten wij objectief doen, zonder politieke kortzichtigheid, want als de mensenrechten onder vuur komen te liggen, of het nu in het Oosten of in het Westen, het Noorden of het Zuiden is, dan is de mensheid als geheel getroffen en gewond.
+17/10 Holmbygden.se: Aros Energie verklaringen onder vuur op meer locaties
+Materialen die op zichzelf normaal stabiel zijn, zelfs bij blootstelling aan brand, en die niet reageren met water.

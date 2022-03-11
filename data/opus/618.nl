@@ -1,500 +1,500 @@
-Een beetje plezier maken.
-Lekker lachen met zijn tweeën.
-- Ja. Ik heb een paar regels.
-Ik heb wat problemen.
-- Ik heb een paar ideeën.
-Hebben alleen een paar vragen.
-Ik heb wel enkele ideeën.
-Daarom beveel ik dit aan het Parlement aan.
-Ik heb er misschien een paar.
-Ik heb er een paar.
-Ik heb een paar ideeën.
-- Een paar.
-Ik heb een paar vragen. - Wie bent u?
-Ik heb een paar ideetjes.
-Elk jaar heb je er een paar.
-Hij skied heel veel, doet aan basejumping, skydiven met vleugels en allemaal gekke stunts. En hij is eigenlijk best dichtbij op het moment.
-Dan weet ik ook wel wat.
-Ik heb maar een paar minuten.
-Ik heb nog een paar kostuums over.
-Ik weet wel wat.
-We moeten vertrekken.
-We hebben nog een paar minuten. Ga uw gang.
-- Ik heb 'n paar vragen.
-Ik heb een paar vragen.
-Zullen we er nog een paar drinken?
-We hebben enkele vrijwilligers, Mr.
-- Ik kan wel wat verzinnen.
-Ja...ja, ik heb er enkele.
-- Die hebben we niet.
-- Ja, we hebben enkele vragen.
-Je hebt waarschijnlijk een paar uur.
-Zou ik alleen een paar dollar hebben.
-We moeten jullie wat vragen stellen.
-Wou je nog bier?
-Absoluut, je hebt er zeker, ik ken er wel een paar.
-- Ik heb 'n paar vraagjes...
-Ik heb er nog een paar over.
-We hebben 'n paar vrachtshuttles.
-Ik heb alleen een paar vragen.
-We hebben wat achtergrond vragen.
-Ik heb echter een paar aanpassingen.
-We willen u graag nog een paar vragen stellen.
-Ik heb enkele glazen gedronken.
-We hebben maar een paar minuten.
-- Je hebt nog een paar dagen.
-Ik heb ook wat gaven.
-Hebben we een paar minuten?
-We hebben alleen maar een paar vragen .
-We hebben een paar vragen.
-Drink wat, laat je gaan...
-Ik heb wel een paar vragen.
-Een paar flessen wijn, ja...
-Ik heb nog maar een paar dagen.
-'We zullen een paar levensreddende seconden meer hebben. '
-we hebben een paar ongeneeslijk zieken.
-Te lang dus.
-Eigenlijk hebben we alleen maar een paar vragen.
-Wij hebben nog vragen, Debbie.
-Ik heb een aantal kanttekeningen.
-Hoofdagent Barcomb, Ik heb een paar vragen.
-Je hebt maar even.
-Ik wil u wat vragen stellen.
-Ik ga je een paarvragen stellen.
-Ik heb er een paar in mijn tas.
-ze had nog maar een paar maanden te leven.
-Maar ik heb wel wat vragen.
-We hebben nog enkele dagen.
-Nog maar een paar te gaan.
-Ik heb wat vragen voor u.
-Ik heb een paar leuke zinnen opgeschreven.
-Laten we wat spelletjes gaan spelen.
-We hebben maar heel even.
-Ik had wel nog enkele overdenkingen.
-ziekenhuis, dus...ik heb enkele vragen voor hem.
-(EN) Mevrouw de Voorzitter, een paar opmerkingen.
-We hebben maar een paar vragen.
--Ik heb nog 'n paar vragen,
-Ik heb er maar een.
-Ik kreeg mij daar een paar steken.
-We hebben enkele minuten om te beslissen.
-- Ik heb nog een paar vragen.
-Ik heb een paar vragen over Eddie.
-Robert: Dat is goed, ik heb nog wel even.
-Heb je nog sigaretten?
-Daar weet ik misschien wel wat over.
-Ik heb nog enkele vruchtbare jaren.
-Ik heb een paar korte vraagjes voor u.
-Ik heb wel een paar vragen.
-- We hebben maar een paar minuten, Jack.
-- Nog 'n paar minuten.
-Daarna heb je een belangrijke rol te leren.
-Ik heb alleen een paar kleine vraagjes.
-Ik heb een paar vragen.
-- Ze zitten er warmpjes bij.
-Nog een paar uur. Of minder.
-Ik moet een paar losse schroeven ergens.
-Ik heb een paar concrete vragen en suggesties.
-Kijk, Sherri, ik zit nog met een aantal losse eindjes.
-Ik bedoel, we zitten met een paar vragen.
-We hebben nog maar enkele uren tot het donker wordt.
--Pas na een paar consulten ...
-Praten jullie maar even, goed?
-Ik denk dat u wat vragen heeft.
-Ik heb een paar zeer concrete vragen, mijnheer de commissaris.
-Ik heb alleen een paar vragen, meer niet.
-Ik vroeg mij af of je een paar minuutjes heb.
-Ik heb een paar vragen voor je.
-We hebben nog een paar uur zonlicht.
-We hebben een paar vragen, mevr Rogers.
-Maar je moet een paar vragen van me beantwoorden.
-Ik heb nog enkele vragen.
-Heren, heeft u even?
-Ik heb nog wel enkele verrassingen, Dr. Freeman.
-We hebben een paar ooggetuigen en een verdachte.
-Maar ik heb zo wel mijn gedachten over het wie.
-Ik heb nog enkele vragen voor je.
-Ik moet alleen een paar brieven tekenen.
-We hebben nog wat tijd.
-Ik heb een paar woorden te zeggen.
-Ik heb nog steeds vrienden.
-Ik moet een paar dingen doen.
-Ik heb wel een paar opmerkingen.
-We hebben een paar vragen.
-Ik weet zelfs heel goed wat je bent.
-We hebben nog een paar uur over van telecommunicatie per sateliet.
-We hebben allebei toch nog een paar uur geslapen.
-We hebben een paar vragen voor u, meneer.
-- We willen u wat vragen.
-Ik heb maar een paar vragen.
-Ik heb maar kort de tijd.
-Mag ik 'n paar schoten om op te warmen?
-- Met vragen over Bad Faith' financiën. Die hadden we allemaal.
-Luister Hugo, we hebben een paar vragen voor je.
-Ik heb nog enkele vraagjes over Mr Sanderson.
-Kan ik de overste even alleen spreken?
-We hebben hier een aantal dingen te bespreken.
-Ik heb nog enkele Russische connecties, Gibbs.
-Het betekent dat er nog maar een paar minuten over zijn.
-Zeg maar waar.
-We hebben geen paar extra dollars per maand.
-We hebben nog een paar jaar de tijd tot aan de uitbreiding.
-Een merge afbreken We kunnen nu kiezen.
-Laten we ergens wat gaan drinken.
-In dit licht hebben we een aantal suggesties.
-Doet er niet toe. Wellicht wilden jullie... een handje meehelpen.
-Weet je, we hebben nog wat opties, dus..
--Er zijn twee busladingen onderweg.
-Ik heb een en ander te regelen.
-- Fijn om een paar dagen vrij te hebben.
-Voor de bijeenkomst van vandaag... heb ik een paar kleine mededelingen.
-Kan ik je even spreken, Frederickson?
-Mijnheer de Voorzitter, ik heb en-kele heel korte opmerkingen.
-Had je er dan ook een paar te veel op?
-Ik heb vragen voor de gouverneur.
-Ik heb interessante opnamen gemaakt.
-Ik wil echter het een en ander preciseren.
-U hebt maar 'n paar minuten. - Begrepen.
-Ik heb een paar ideeën, als jullie...
-Meneer, ik heb een aantal toevoegingen voor uw pak.
-Nou, ik heb geen jaren de tijd dokter.
-Je hebt op zijn minst een paar reserves, nietwaar?
-Ik moet nog een paar dingen doen.
-We hebben een paar klassieke side-scrollers.
-Nog een paar dagen chemo en bestraling.
-En we nog maar een paar uur hebben om hem te redden.
-We hebben slechts enkele uren voor een strategie.
-Het spijt me, ik heb daar problemen mee.
-- Ja, dank u. En ik heb een paar vragen voor u, Mr.
-- Sorry, ik moet een paar vuren blussen.
-Krijg ik een paar dagen bedenktijd?
-Ik heb wel een paar fans bij de papieren versie.
-We hebben maar een paar minuten en niet veel opties.
-Ik heb wel een paar punten.
-En ik heb een paar rechters, die me iets schuldig zijn.
-Ik heb een paar eenvoudige basisregels, oké?
-Als die positief is, hebben we nog enkele weken om na te denken.
-Meneer, als ik mag, ik heb nog een paar andere ontwerpen.
-Heeft u nog vragen over uw aankomende vlucht naar Curaçao?
-Ik had nog enkele zaken te regelen.
-Ik wil Pa wat vragen.
-Tabby en ik hebben gewoon een paar dingen gemeen.
-Ik denk dat ik een paar woorden met hem zal wisselen.
-Heeft u misschien even tijd voor mij?
-Ik zit op mijn positie. Wacht op mijn signaal.
-Ik heb een paar gebouwen voor je om te beginnen.
-Misschien heeft zij stiekem kinderen.
-Ik heb een afspraak.
-William, ik denk niet dat ik nog een paar minuten.
-We volgen samen enkele lessen, meer niet.
-We hebben er een paar voor u.
-Ik heb 'n paar mededelingen voor het begin van 't jaar.
-Laat me even alleen met dr. Frankenstein.
-Je weet dat je nog maar een paar schoten over hebt.
-Ik heb een paar vragen over Rachel Murray's zaak.
-Ik heb echter nog een paar vragen aan de Commissie.
-We moeten je wat vragen stellen.
-Jullie kunnen maar beter een paar glazen hiervan nemen.
-De arbeiders hebben een paar honderd revolvers en zakmessen.”
--We willen nog iets vragen, Mr Norton.
-We hebben een paar ruimte wapens dat u zal verrassen.
-Vanaf dat punt heb je verschillende mogelijkheden om Mesa te bouwen.
-Ik moet nog een paar kleinigheden regelen.
-Heeft u een paar minuten om een paar vragen te beantwoorden?
-Het is onze eerste kans om een paar woorden met elkaar te wisselen.
-Ik wilde nog even de krant lezen.
-Zoals ik het zie, hebben we hier een paar problemen.
-Ik moet eerst nog een paar dingen doen.
-Ik heb wel een paar mannen waar ik op kan bouwen.
-Over enkele minuten zal de reactor ontploffen.
-Ik heb wat vragen over het ontstaan van deze vete.
-Ik heb die aap wel een paar dingen te zeggen.
-Heren, ik wil een paar oude herinneringen bezoeken.
-Ik heb een paar zaken die ik met Camille wens te bespreken.
-Je moet een paar sessies met de fysiotherapeut hebben.
-Ik heb een paar vrienden die therapeut zijn.
-We hebben een paar dagen om ons af te zonderen van dit...schandaal
-We hebben hier wat flesjes wijn.
-We hebben nog een paar uren voor de eieren.
-Je hebt nog een paar seconden voor je mannen sterven.
-We begrijpen dat je enkele van Guillermo Garza's mannen daarbinnen hebt.
-Ik zal een paar nieuwe mannen voor je klaarzetten, oké?
-Ik heb een paar vragen.
-Hoe gaat het?
-Zo heb ik nog een aantal vragen maar mij ontbreekt nu de tijd om deze te stellen.
-We hebben een paar interessante nieuwelingen.
-Nog niet, daar heb ik nog een paar dagen voor.
-Ik moet nog een paar dingen afmaken.
-Zodra ze een donor hebben, heb je maar een paar uur.
-Nou, ik heb wat voor je waar je plezier aan zult beleven.
-Ja, dat hebben we zeker.
-De heer Crespo (S). — (PT) Mijnheer de Voorzitter, waarde collega's, het verslag van de heer Ciancaglini bewijst dat het Europese Parlement bijzonder veel aandacht besteed aan de problemen van de ouderen.
-We krijgen in, we hebben een paar drankjes, krijgen we uit.
-Uit al deze besprekingen leid ik een aantal eerste vaststellingen af.
-- We drinken straks wat in de sauna.
-Er zijn nog wel wat barrières voor me.
-We hebben maar een paar dagen voordat de Spelen beginnen!
-Uh, Mandy, ik heb nog een paar vragen voor je.
-Als ik het mis heb, rest ons slechts een paar uur eerder wegscheren.
-We drinken af en toe wel een biertje...
-Ik heb nog wat vragen en dan zijn we klaar.
-Ik heb wel een paar onopgeloste problemen.
-Ik heb altijd een paar pinda's in de zak van mijn stofjas.
-De landen die grote bezwaren tegen deze procedure hebben, zijn er natuurlijk niet echt blij mee als de Commissie dan ook nog een klacht blijkt te hebben ingediend.
-Fijn te weten dat ik nog wat achter de hand heb.
-Ik heb gekeken en we hebben binnenkort een paar vakantiedagen.
-Wij hebben een paar rekeningen voor onze meer betrouwbare spelers.
-- Die scherpe kantjes vijlen we eraf.
-We zitten met een strak schema, en hebben niet veel tijd.
-Als ik even met dr. Kettering mag praten...
-Wat een toeval, want daar hebben we zelf ook wat vragen over.
-Ik heb nog maar een paar dagen, tot mijn hele leven verandert.
-Wij hebben een paar aanwijzingen die wij nalopen.
-Ga mee hoeren kijken bij Caracalla. Kun je lachen.
-- We hebben nog even.
-Ik vertrek vanavond, maar mijn aandeelhouders hebben nog wat vragen.
-Mr Carter zal jou wel willen spreken.
-Over een paar uur moeten we op de rendez-vousplek zijn.
-Voordat we beginnen aan ons nieuwe project, heb ik wat aandachtspunten.
-We hebben een paar plaatsen waar we afspraken hebben met de eigenaars.
-In dat verband enkele vragen aan de commissaris.
-We hebben zelfs nog wat lege containers, al u nog last-minute ideeën mocht hebben.
-Colonel, ik heb nog een paar vragen over de moord op Henry Gibbs.
-Jongens, kan ik even een paar minuten met mijn vriend hier hebben?
-(FR) Mijnheer de Voorzitter, commissaris, dames en heren, ik wil enkele korte opmerkingen maken.
-Laten we binnen even wat drinken en erover praten.
-Ik hoopte dat ik even met Mrs. Campbell mag praten.
-Maar als producent wil ik een paar dingetjes veranderen.
-We wilden u graag even spreken.
-Ik heb een paar verrassingen voor hen ... vooral als Paris Sardis advies aanneemt.
-Maar we zijn onder vrienden.
-Niet helemaal, maar ik heb een paar ideetjes over hoe dat aan te pakken.
-Het zal niet lang duren.
-We hebben gewoon een paar feestjes soms
-Als jij hier de wegen onderhoudt, heb ik wat klachten.
-Collier en ik willen je aan een paar collega's voorstellen.
-Mag ik u nu om nog wat van uw tijd vragen?
-Nee, maar we hebben wel wat vrienden die ons een handje kunnen helpen.
-We moeten er nog wat aan doen, afmaken bijvoorbeeld.
-Ik heb wat suggesties om jou en de daklozen te helpen.
-We hebben nog een paar uur tot het donker wordt, heb je sneeuw scheppen?
-We vroegen ons af of u even tijd hebt om met ons te praten.
-Ik wil iets zeggen wat jullie misschien wel belangrijk vinden.
-En we hebben nog maar een paar minuten over tot we kunnen vliegen.
-Ik moet hier nog wat dingen doen.
-Ik zou hem graag eens willen spreken.
-Maar even serieus, dacht moet even een paar woorden hebben met deze jonge man.
-Verder heb ik ook een endorsement met Eastwood gitaren waar ik er een paar van heb.
-Ze hebben een paar flessen van de 2000 Saint-Emilion, hoewel ik de 2001 verkies.
-Maar ik mep die gast in elkaar en er moeten vrienden bij zijn.
-Maar ik hem slechts enkele uurtjes voor Toymaker de wereld overneemt.
-Als je zou kunnen praten dan weet ik dat je een paar woorden voor me hebt.
-Michael zegt dat we nog een paar uur hebben voordat de storm er is.
-Misschien heb ik nog wat troeven. - Waarom doe je dit, Cordy?
-Pas op, er zitten hier wat wespen die graag willen steken.
-De Vooizittei. — Goed, het Presidium zal deze kwestie behandelen; Uw vootstel zal daat zekei ook wotden besproken.
-Haar bezittingen liggen in de koffer... en ik heb wat brieven en foto's.
-Even nog een moment, mijn Koning, ik wil ze nog een paar woorden toevertrouwen.
-Janie, je zult hier een paar dagen moeten blijven, begrijp je wel?
-Wij hebben ook wat vragen.
-We kregen verlofpasjes, en dan gingen we de stad in en dronken een paar biertjes.
-Ik heb nog wat vragen over waar Mrs Richmond is.
-Er liggen hier wat dingen voor u klaar.
-Inspecteur Gently, mag ik u even wat vragen over de Dolores Kenny zaak?
-Nu dat ik ontslagen ben heb ik een paar dingen te zeggen.
-Er zijn wel voorwaarden, dus ga even zitten.
-Wij moeten even wat plooien glad strijken.
-En dan kunnen jullie plezier maken.
-Dit is niet het moment om op te scheppen, Stuart !
-Twee op de openbare radio, één op Sirius.
-Ik geef toe dat het leuk is om een paar extra dollars in het loonzakje te hebben.
-Op zich geen punt, maar het heeft wel enkele consequenties:
-Er een paar drinken, en misschien een paar stoute meisjes vinden die iets bevredigend willen flikken.
-Ik moet een paar dingen afmaken, dan ga ik naar huis.
-"Kom naar de kust, ontmoeten we elkaar, wordt gezellig".
-Dit probleem is opgelost, mag ik jullie nog een paar vragen stellen?
-Is het zo erg dat ik nieuwe rituelen heb om de dag door te komen?
-Ik heb een paar follow-up vragen met betrekking tot de burgemeester betrokkenheid bij de veranderde medische rapporten.
-Doe mee & win Natuurlijk hebben we ook nog wat verrassingen in petto.
-Ik heb een paar vrienden die gaan, ik dacht dat ik wat zou kunnen rondvragen.
-Maar we hebben nog enkele jaren om daarover na te denken.
-"Zeker, altcoins kan een aantal interessante mogelijkheden hebben, maar het is moeilijk om Bitcoin aangenomen te krijgen.
-Nee, maar Todd houdt van bier en ik ook.
-We hebben een paar busjes lopen.
-Je moet er vast 'n colbert aan.
-Het Zweedse dEmotional heeft een paar streepjes voor ten opzichte van andere genre genoten.
-Afsluitend, mijnheer de Voorzitter, nog iets over de vervoersector.
-We hebben eigenlijk nog wat vragen over je leven, Mw. Sutton.
-Maar dankzij jou beschik ik over genoeg verstandelijk vermogen om dat te bedenken.
-Zorg dat dit in de bioscopen draait voor er niet één meer staat.
-Ik heb maar eventjes nodig, ik heb wat vragen over Islamabad.
-Waarom leggen we geen Twistermat neer voor tussen de wijnjaren?
-Je neemt een paar drankjes, gaat mee naar een flat en je gaat ervoor.
-Ik heb een strak schema, raadsman.
-En ik heb een paar ideeën... waar ik voor aanwijzingen moet kijken in de winkel.
-We hebben een paar uur om zoveel mogelijk te genieten Onder een communistisch regime...
-Het zou mij helpen bij mijn beoordeling als ik even alleen met hem zou kunnen zijn.
-Ik heb gewoon een paar zinnen nodig om aan te tonen dat ik er moeite voor doe.
-Men kan het staalprobleem niet behandelen zonder het over de steunmaatregelen te hebben.
-Ik vind het vervelend dat ik dit nu moet doen, Mr Michima maar ik heb een paar vragen voor u.
-Ik wil gewoon hier zitten, naar de wedstrijd kijken en bier drinken.
-We willen iets vragen over Anya Pugach.
-Je hebt Kelly dus ontmoet in de bar bij Kennedy en jullie hebben wat gedronken.
-Je hebt nog maar een paar dagen voor je gaat, en daar moeten we over praten.
-Ik geef toe, ik bewonder je zekerheid, maar ik heb nog wat vrienden.
-- Ja, alleen een paar vragen...
-Maar voor het ergste geval heb ik altijd nog een paar potten Hipp voedsel bij me.
-Ik heb maar een paar minuten, mam, want ik moet weer werken.
-De officier zou misschien... een paar jaar van z'n eis afhalen.
-Ze hebben behoefte, die arme mensen hebben iets nodig, op zijn minst een paar uur ontspanning.
-Mevrouw Lee, dat ik u nogmaals moet storen, maar we hebben nog enkele vragen.
-Je ziet er goed genoeg uit... ook al heb je een paar kaardenbollen in je haren
-Met waar je huis op rust, zullen er altijd wel een paar verloren zielen in de muren zitten.
-Als ik Tron activeer, heb je maar een paar minuten... voordat Dillinger iets in de gaten krijgt
-Oké, we willen jullie laten zien dat we een paar tegels missen... van de stuurboordgondel.
-We doen een verhaal over witwaspraktijken aan de grens en we hebben een paar vragen.
-In september hebben we een paar heerlijke dagen aan het meer van Ohrid doorgebracht op deze kleine familiecamping.
-We hebben allemaal uw rapport gelezen, uit Duitsland. Vandaag hebben we alleen een paar vragen, verheldering...
-…en waarvan we een paar en ook heel trots zooo veel medewerkers zijn om te hebben
-Het spijt me je uw volkomen gerechtvaardige opmerking te onderbreken, maar ik heb een paar vragen voor de getuige.
-Een date is gewoon het bij elkaar komen van twee mensen, ze doen iets sociaals, drinken wat, yadda-yadda-yadda...
-Het aantal stomata op de bladeren van gingko's... geeft aan hoeveel kooldioxide er voor hen beschikbaar is.
-Naast mijn functie bij Grolsch heb ik nog een paar nevenfuncties, ook die blijf ik vervullen.
-- Via m'n vrienden bij Starfleet.
-Hoewel ik de mogelijkheid om zulke projecten met subsidies te financieren toejuich, heb ik een aantal bedenkingen.
-Dan tot slot nog enkele woorden over de opmerkingen betreffende het toezicht op de Europese Investeringsbank.
-Ik moet een paar dingen doen en dan moet ik Aria opzoeken.
-Vanaf het station Drassanes hoeft u slechts enkele minuten te lopen naar het monument van Columbus en naar Port Vell.
-Uh, we hebben een paar vragen, zijn de burgers gemaakt met... .. Nieuw Zeelandse of Amerikaanse beef?
-En de anderen? Dus het Volyn. En wat te denken van Yalta, foto's waarvan ik een paar honderd?
-Blossom: Wat mij betreft, ik hoef maar een paar minuten bij mijn kleinzoon te zijn, dan 'herinner' ik me weer plezier en vrijheid.
-Wacht eens even, Jimmy, ik heb een paar vragen, zoals:
-Ik zit te kijken naar de moord op tv en ik denk: 'tenminste heb ik een paar dagen vrij'.
-In plaats van ons te concentreren op de sectoren, hebben we de horizontale aspecten of de achterliggende mechanismen geanalyseerd.
-Als Quentin Swofford hier was, zou hij je natuurlijk wel wat willen zeggen.
-Als u het niet erg vindt om ons even te vergezellen, meneer we hebben een paar dingen waar we even over willen praten.
-Het kan geen kwaad, dat we af en toe ook eens wat klappen krijgen.
-Maar ik heb nog een paar dagen voor de kostuums, dus...
-Spendeer net zo veel tijd door in een kluisje als mij en dat krijg je zelf theorieën.
-We hebben enkele versies voor het lied, en de jongens willen dolgraag casten.
-Ik zou de Commissie, hoezeer deze overeenkomst mij ook bevalt, toch nog enkele vragen willen stellen.
-Snel, we stikken zo in de koolmonoxide.
-Ja, ik vond het wel handig om er een paar dichtbij te hebben.
-Ik heb 'n paar vragen over de avond dat Boyd Crowder werd neergeschoten.
-Gewoonlijk leg ik nu even uit wat er verder gebeurt.
-U heeft een aantal dichtsbezijnde bus haltes die naar ieder gedeelte van de stad gaan, inclusief de toerist bus haltes.
-Ik hoor dat je je troep weer bij elkaar hebt, dus ik heb hier een paar psychologieboeken voor je.
-Proberen om een paar man wild symbolen zorgen voor een grote uitbetaling op de Koning van de Luau.
-De bibliotheek is altijd wel druk, maar deze week zijn er een paar mensen op vakantie dus het is...
-Nou, ik ben-ik weet zeker dat ik niet kan gooien zoals de grote Paul Diamante maar, ik gooi een paar effecten.
-We hebben hun verklaringen afgenomen... maar als jullie even hebben, willen ze graag met jullie praten.
-Ten eerste, mag ik jullie voorstellen aan onze burgemeester, Lucy Rodell.
-Ik wilde geen tijd verspillen met naar huis gaan.
-Een paar koningen in reserve, als je een oorlog begint.
-Maar ik denk dat u het er mee eens bent dat wij ons er bij dit onderwerp niet enkel met wat ironie van af kunnen maken.
-De doctoren zeiden dat ik niet mocht rijden en dat ze nog wat testen moeten doen.
-We hebben de verslagen van de agenten ter plaatse bekeken... en we hebben nog een paar vraagjes.
-In huis heb ik nog wel wat, maar zeer veel spullen zijn verloren gegaan bij de overstroming die hier een paar jaar geleden heeft plaatsgevonden.
-We gaan met 10 minuten open, en ik heb een paar dingen waar ik jullie graag even over wil spreken.
-Het is geen Vegas, maar we drinken wat en dan... zien we wel wat er gebeurt.
-Ik ben een van de gelukkigen en ik heb een paar vrienden die ik geregeld bel.
-Het is mijn beurt om iets geweldigs te plannen en ik heb wel wat ideeën.
-Inspiratie Kansen komen en gaan, ze blijven nooit lang ... en je hebt maar een paar seconden om jouw kans te grijpen.
-Als u 'n straf krijgt, bepaalt de commissaris die en dan kunt u hem accepteren of afwijzen.
-Ik moet eerst wat regelen, maar thuis kunnen we praten.
-Anderen zijn niet helemaal zeker over hun plan­nen, maar hebben wel enkele ideeën in het achterhoofd.
-Dit kan je fiets vaak behoeden van diefstal, gezien dieven vaak slechts enkele seconden tijd hebben om de diefstal te plegen.
-Ik dacht dat we eerst wat wedstrijdjes voor ons zelf zouden hebben voordat hij zou komen en me kwam vertellen wat ik fout doe.
-Nou, dit gaat niet lang duren, we hebben een paar vragen over uw stiefdochter, en dan gaan we weg.
-Ik ga vanavond na het werk uit met een paar collega's, wat biljarten, wat lachen.
-Als ze niet ... maak je geen zorgen, we hebben een paar andere plaatsen uit te checken. We zullen een affiliate programma voor u te vinden.
-Ik heb nog maar een paar jaar over in het spel, En er zijn misschien niet zoveel grote tumoren voor mij over.
-Hoewel ze de voorkeur geven aan u gevraagd uw vragen in het Engels hebben ze wel een paar andere taal beschikbare ondersteuning zoals Frans of Russisch.
-Schrijf dus iets informatiefs voor onze lezers, zolang we die nog hebben.
-Ja, hij heeft wel wat op z'n geweten, maar, hij slaat liever obers en callgirls.
-Ik zal deze snel geschetste inleiding beëindigen door kort wat te zeggen over de werkzaamheden van de Intergouvernementele Conferentie.
-Ze springen wat op en neer en schreeuwen, drinken en gaan dan terug naar huis.Maar niemand is gewond.
-Denk je niet dat we een beetje te veel dode vampiers in ons verleden hebben... om je te bedenken dat ze ons in de gaten houden?
-Als u een paar lege plekken overhebt, zijn eenjarige planten zoals afrikaantjes of zinnia's dankbare gaatjesvullers die snel geplant kunnen worden.
-Nee, Mike. Je mag niet gaan.
-Dit kan verrassend lijken... maar ik heb enkele standjes in gedachten... voor mijn eerste nacht als Mrs Ben Faulkner.
-We moeten nog enkele details uitwerken, maar ik kan u verzekeren dat dit uiterst veilig zal zijn.
-Helaas kent mijn land een aantal ernstige gevallen van verdwijningen van kinderen. We hebben, tot op vandaag, geen enkele informatie over deze kinderen.
-Het formuleert wel enkele inhoudelijke opmerkingen; het wijst er eerst en vooral op dat de minimumnormen moeten gebaseerd zijn op de beste praktijken op dit gebied.
-Aangezien ik maar een paar seconden meer heb, zou ik de heer Bradbourn van de ECR-Fractie graag willen aanspreken over een kwestie inzake vrij verkeer.
-"Voldoende was een paar vakmensen in dienst te hebben met een goede hand van vijlen" (Gilly, I961).
-Alleen een idioot zou aannemen dat deze planeet veilig zou zijn... omdat jullie een paar schepen met schildtechnologie hebben.
-En op een dag, op een feestje, na een paar drankjes, ontmoet hij een leuke jongen en begint te flikflooien.
-Als alles volgens plan verloopt, als dit lukt, hebben we een paar uur om de Nazaat naar de ISEA te brengen.
-Bij de meeste, heb je een paar schaarse minuten Voordat u beiden dood stikt of om een van de ergste gevallen van zonnebrand in de geschiedenis.
-Voor de laatste vier evenementen zijn nog enkele plaatsen beschikbaar: Zagreb 17 februari, Boekarest 18 februari, Warschau 24 februari en Praag 25 februari.
-Wij maken echter enig voorbehoud omdat van de 300 aangemelde produkten er uiteindelijk slechts 8 of 2, 67 % weerhouden zijn.
-Het gaat dan ook in de eerste plaats om een regionaal en sociaal probleem. Wenselijk is dat de quotaregeling vooral voor bepaalde produkten nog gedurende enkele jaren wordt gehandhaafd.
-We hebben een paar korte jaartjes om invloed op onze kinderen te hebben het patroon dat we voor hen uitzetten, zal ook voor hun kinderen gebruikt worden en de generatie erna.
-Natuurlijk heb je al het een en ander gegoogled en ben je op Android mediaspelers gestuit, maar door de ruime keuze zie je door de bomen het bos niet meer.
-Tot slot heb ik een aantal punten van zorg wat betreft de bescherming van intellectuele-eigendomsrechten en met name - zoals al meermaals gezegd is - geografische aanduidingen.
-- Echt? Omdat Chip zei dat hij je sloeg om je bij Keisha weg te houden, die probeerde om alleen met haar vriend te zijn.
-Ik heb Kev beloofd dat ik vroeger zou komen... Om hem te helpen... Um, waarom ga je niet mee...
-Maar voor het ergste geval heb ik altijd nog een paar potten Hipp voedsel bij me. In de namiddag hebben we cranio sacraal therapie.
-Ik wil u eraan herinneren dat het volgens artikel 155 van het Verdrag de taak van de Commissie is om toe te zien op de toepassing van zowel de bepalingen van het Verdrag als van de door de instellingen genomen maatregelen uit hoofde van dit Verdrag.
-De 3D omgeving waarin Pacific Poker haar spellen aanbiedt, is mooi om te zien en heeft een aantal functies die erg ongebruikelijk zijn in de wereld van online poker aanbieders.
-Maar er wacht iemand in de vergaderzaal die je wil spreken, ze moeten... juist nog enkele formulieren invullen en dan ben ik weg.
-Ik bewonder Reve en dan ben je blij als je een paar overeenkomsten hebt, zoals een voorkeur voor zielige mensen, zoals bedlegerigen en andere vergeten groepen.
-Het effect van de door de Commissie beoogde administratieve vereenvoudiging zal door evaluatieprocedures weer worden afgezwakt en voor de uiteindelijke begunstigden nog nauwelijks merkbaar zal zijn.
-We zijn lekker in onze eigen bar gaan zitten en hebben daar een paar biertjes genomen en een beetje in de Lonely Planet van Madagaskar zitten lezen. Helemaal prima avond.
-Hier kan zelfs de auto enkele dagen vakantie nemen! 200 km uitstekend verzorgde skipistes en 55 moderne liften zorgen ervoor dat iedereen kan genieten van heerlijk skiplezier.
-Of zij deze vreugdevolle gebeurtenis persoonlijk — als echtpaar — zullen vieren of samen met enkele familieleden of goede vrienden is iets wat zij zelf moeten beslissen.
-Ik heb een paar nummers die zijn opgenomen met een laag volume, en het is vervelend als ik ze in een afspeellijst met nummers die een hoger volume te hebben.Hallo!
-Ik trof hem verderop op het strand. Hij nodigde me uit voor een drankje.
-Luifels zijn vooral geschikt bij korte verblijven in bijzonder zonnige regio’s, want ze hebben doorgaans weinig stokken en kunnen daarom – ook dankzij de lichte materialen – in een handomdraai opgebouwd worden.
-Ik heb andere dingen aan mijn hoofd, dus sorry dat niet al mijn energie naar de dienst voor jouw hond gaat.
-Er moet wat tekst voor en achter zitten die verloren mag gaan. Datgene wat je moet horen, blijft dan over.
-En Je hebt nooit zijn toegestaan in de Verenigde Staten Want jullie zijn de minnares van Osama bin Laden Je scheert je gezichtshaar dagelijks of Heb je begraven in de tuin een paar lijken?
-Ze krijgen van mij dan toch nog een voldoende vanwege het originele idee om heel het album te laten beheersen door de treurende klanken van de cello.
-Tegen die achtergrond, Voorzitter, wil ik wat kanttekeningen maken die u ook terugvindt in mijn pre-advies en die in belangrijke mate overgenomen zijn door de commissie buitenlandse zaken.
-Paige, je hebt slechts enkele minuten. Praat met hem en laat hem aan die blauwe hendel trekken. Die opent het laadruim zodat Sly de satelliet kan binnenvliegen.
-Ik vind dat men fatsoenlijk had moeten wachten tot het Parlement het verslag-Bonaccini had behandeld, alvorens dit voor de media te gaan toelichten.
-von Habsburg (PPE). - (DE) Mevrouw de Voorzitter, om te beginnen zou ik de heer Kittelmann dank willen zeggen voor zijn verslag.
-Smurf en Grote Smurf.Wij hebben er nog enkele beschikbaar. The Wolves are coming geocoin Langzaam maar zeker krijgen we meer signalen dat wolven terugkomen in de natuur van Nederland.
-Maar, vanaf versie 4.3, hebben we nog een paar extra takken: 4.3BSD Tahoe, 4.3BSD Net/1, 4.3BSD Reno en 4.3BSD Net/2, de eerste kwam uit in 1988 en de laatste in 1991.
-Als u even heeft wil ik praten over het inhuren van een blonde fasciste die niets weet over wat het is om Witte Huis raadshulp te zijn.
-Jezus zei aan de gemeente te Sardes: "Doch gij hebt enkele personen te Sardes, die hun klederen niet hebben bezoedeld, en zij zullen met Mij in witte klederen wandelen, omdat zij het waardig zijn.
-“ Tegelijkertijd , de industrie van mening dat het van essentieel belang zou zijn om een paar suggesties , zo niet een wettelijk kader , om ervoor te zorgen dat deze nieuwe manieren van betalingen worden geïdentificeerd als een geldige apparatuur .
-Maar Ik heb enige weinige dingen tegen u, dat gij de vrouw Jezabel, die zich zelve zegt een profetes te zijn, laat leren, en Mijn dienstknechten verleiden, dat zij hoereren en afgodenoffer eten.
-Is een beetje enorme incisie gemaakt en de bloedprop veilig verwijderd en je zult ook een paar steken zetten in. Er zijn bepaalde risicofactoren, zoals infectie, maar soms is deze procedure veilig is.
-Maar Ik heb enige weinige dingen tegen u, dat gij de vrouw Jezabel, die zichzelve zegt een profetes te zijn, laat leren, en Mijn dienstknechten verleiden, dat zij hoereren en afgodenoffer eten.
-Wij hebben nog maar een paar dagen voordat de termijn verstrijkt van de laatste verlenging van het moratorium dat in de beschikking staat die de Commissie nu wil intrekken.
-Met Steppenwolf's 'Born To Be Wild' en Led Zeppelin's 'Immigrant Song' hebben we ook een paar overbodige covers op de plaat staan, al dient te worden gezet dat Devil's Train ze erg strak wegzet.
-namens de ALDE-Fractie. - (DE) Voorzitter, mijnheer de commissaris, dames en heren, ondanks een toch nog zeer snel, om niet te zeggen: verrassend snel tot stand gekomen compromis wil ik nog enkele waarschuwende woorden spreken.
-20 Maar Ik heb enige weinige dingen tegen u, dat gij de vrouw Jezabel, die zichzelve zegt een profetes te zijn, laat leren, en Mijn dienstknechten verleiden, dat zij hoereren en afgodenoffer eten. 21
-De kenmerkende Goudse techniek van de gietpijp is gecombineerd met de Delftsblauwe beschildering waardoor deze pijp een bijzonder verzamelitem is geworden. Nu, een kleine twintig jaar later, hebben wij nog enkele exemplaren uit het jaar 1983, rechtstreeks uit de fabrieksvoorraad.
-Het is waar dat obesitas schadelijk is, maar jullie moeten niet een punt bereiken waar je geobsedeerd wordt als je maar een paar kilo extra weegt of je een paar rimpeltjes in je gezicht krijgt.
-Het is waar dat obesitas schadelijk is, maar jullie moeten niet een punt bereiken waar je geobsedeerd wordt als je maar een paar kilo extra weegt of je een paar rimpeltjes in je gezicht krijgt.
-Kansen komen en gaan... u heeft maar een paar seconden om er een te grijpen. Geluk is onvoorspelbaar en duikt op de meest onverwachte plekken op. Maar als u wilt, wordt alles mogelijk.
-Evenals de onderdanen van een land enkele uitgekozen mannen zouden kunnen hebben die als hun vertegenwoordigers dienen en hun regering vormen, heeft God besloten uit de mensheid 144.000 personen te kiezen om deel uit te maken van het koninkrijk der hemelen.
-Beschrijving: "Ik verkoop zonne-energie opladers voor mobiele telefoons en oplaadbare AA-batterijen tegen een prijs van 89 USD. Lader wordt geleverd met stekkers voor GSM merk de huidige en een handleiding in het Frans. Ik heb een paar , schiet op! "
-De moeilijkheden in de sector pluimvee en eieren zijn met die van de overige landbouwprodukten onverbrekelijk verbonden.
+Ik ga doen wat mijn dokters zeiden dat ik moet doen, ik laat mijn vrienden mij helpen Als ik een paar kleine probleempjes heb.
+We hebben slechts een paar van je persoonlijke bezittingen man.
+M'n hoorzitting is vanmiddag en we moeten nog wat dingen doornemen.
+U hebt een paar seconden.
+Er zijn wel een paar voorwaarden.
+De boven oppervlakte van het hoofd, hals en benen zijn zwart en zouden enkele verstrooide gele plekjes kunnen hebben.
+We hebben nog een paar uur.
+Ik moet u een paar vragen stellen.
+Ik heb wel een paar minuten.
+Zoals u gisteren in Le Monde zei, in het ergste geval moeten we nog enkele maanden wachten, en ik denk niet dat iemand in dit Parlement het feit kan accepteren dat de Europese Unie in de komende maanden vleugellam zal zijn.
+Dus hier is mijn advies: als je een paar dagen vrij hebt, organiseer dan een paar fotoshoots!
+Ik heb nog een paar vragen. Ben je er klaar voor?
+- Hebt u iets te zeggen, kolonel ? - Twee woorden:
 — TEGEN de amendementen nrs. 60, 63, 66, 70, 71/rev., 72, 78, 79, 80, 81, 82, 84, 85, 86, 87, 88, 89, 90, 91, 92, 93, 94, 95, 100, 101, 102, 103, 104, 105, 106, 107, 108, 109, 110, en 111.
-De heer Tindemans (PPE). — Mijnheer de Voorzitter, ik had natuurlijk graag de rapporteur gehoord omdat die vermoedelijk nog enkele interessante mededelingen zou hebben gedaan maar in haar afwezigheid wil ik graag lof geven voor haar verslag.
-Derhalve zult U morgen bij de beraadslaging voor de urgentverklaring, over een tekst kunnen beschikken die door de voornaamste fracties van het Parlement is goedgekeurd.
-We hebben nog maar een paar weken tot de opening, waarvan ik wel kan zeggen, officieel de langste baan is wat ik heb gehad het hele jaar en dat zou ik heel graag zo houden, dus alsjeblieft, in godsnaam, Harry,
-2:20 Maar ik heb een paar dingen tegen u. Voor u toestaan dat de vrouw Jezabel, die noemt zichzelf een profetes, te leren, en Mijn dienstknechten verleiden, hoereren en het voedsel van afgoderij te eten.
-14 Maar Ik heb enige weinige dingen tegen u, dat gij aldaar hebt, die de lering van Balaam houden, die Balak leerde den kinderen Israels een aanstoot voor te werpen, opdat zij zouden afgodenoffer eten en hoereren.
-2:14 Maar Ik heb enige weinige dingen tegen u, dat gij aldaar hebt, die de lering van Balaam houden, die Balak leerde den kinderen Israels een aanstoot voor te werpen, opdat zij zouden afgodenoffer eten en hoereren.
-Ten slotte mijnheer de Voorzitter, wordt in mijn ver slag een beroep gedaan op de tien EEG-regeringen om tussen Marokko en Algerije te bemiddelen voor herstel van vrede en stabiliteit in dit gebied.
-Zij zijn wondermooi temperament wijl wachtgeld wonderschoon uitheems feral voorbeeld en tekenend welk zit unieke voor uitsluitend naar de Bengalen Cats. Dit hier wonderschoon wezen zijn enkel unieke qualities bijvoorbeeld zij min water en donâ t zijn te werkstuk schrikachtigheid vlak te naar de vlaag drachtig.
-Alison, die al eerder werd genoemd, zegt: „Net als het erop lijkt dat mijn man en ik even tijd voor elkaar hebben, vraagt onze jongste om aandacht of heeft onze dochter van zes de een of andere ’ noodsituatie ’, bijvoorbeeld omdat ze haar kleurpotloden niet kan vinden. ”
-Ten tweede, als de heer Cot spreekt uit naam van de Socalistische Fractie, dan heb ik daar enige bedenkingen bij, omdat ik in elk geval het gevoel heb, ook te horen aan de sprekers die hier zaten, dat niet de hele PSE-Fractie het eens is met datgene wat door de heer Cot is voorgedragen.
-Deze week zijn er een aantal prachtige coins toegevoegd waaronder de nieuwe Pirates geocoins: Pirate Bones, maar ook unieke geocoins in een aantal uitvoeringen: Four Musketeers, Irish Dancing Dress en Celtic Tree of Life.Ben je op zoek naar een LED zaklamp in een compacte uitvoering, dan is er nu de Tank007 E09 lamp.
-Er is nu een nieuw probleem: Ik heb een paar mensen die bereid zijn om het Engels te vertalen naar het Zweeds, maar momenteel de redactie knop verschijnt na een eventuele interpunctie, die op een site als deze is het onmogelijk – zijn veel makkelijker om een hele zin te vertalen, in plaats van op elke komma, enz..
-Reportage (05/09/2017) Stefaan Lambrechts (Berlaar, BE) schittert zowel in Berlaar als Nijlen met kopprijzen en hoge prijspercentages op de vluchten die ertoe doen Met nog enkele vluchten te gaan heeft Stefaan Lambrechts op beide locaties (Berlaar en Nijlen) het spel met de jonge duiven volledig op de rit.
-Castellina is niet door naderhand deze artikelen in werking te la ten treden zonder de fundamentele aanvaarding van het algemene vrije handelsverkeer, dat voor de Ge meenschap niets anders dan de wet van de sterkste is, ter discussie te stellen ; het is niet door dit beleid van vrijwillige verblinding te voeren ; dat men een antwoord op de gestelde vragen zal vinden.
-Hoe geweldig je kamperen ook vindt, we komen allemaal weleens in […] Meer informatie » Hoe verkoop je je caravan? januari 162018 Sta je op het punt om je caravan te verkopen, maar weet je niet goed wat erbij komt kijken en hoe je dit aan moet pakken?Wij hebben een aantal tips die je kunt gebruiken bij de verkoop van je caravan, zowel particulier als via sommige caravanbedrijven.
+Ik moet nog een paar dingen inpakken.
+- Ik heb een paar ideeen.
+Jij kiest ervoor om op zaterdagavond de dossiers van een gek te lezen... klinkt bij mij, dat je nog wat leegtes in je leven hebt.
+Ik heb nog een paar uur.
+Ik moet nog een paar details in orde brengen, en dan kunnen we spelen.
+Want ik heb wel wat patiënten.
+Ik heb niet zo lang hier.
+En hij ontdekte dat het fijn is als je een paar vrienden hebt... als de zon ondergaat.
+Dus waarom niet gewoon toegeven, als Amerikaan zijnde, dat we nog steeds goed in iets zijn en nog steeds een paar fraai gemaakte exporten aan de wereld te bieden hebben.
+Ik heb een aantal vragen.
+Ik heb een paar vragen voor u, Dr Janson, misschien kunnen we elkaar ontmoeten?
+Wij lezen bijvoorbeeld in Openbaring 3: 4: „Gij [hebt] enkele namen [personen] in Sardes, die hun bovenklederen niet hebben verontreinigd. ”
+- Ik heb misschien een paar Prozac.
+We hebben nog wat vragen.
+Ik vond het erg leuk..", "..Nederland is een vogelaar's paradijs, maar als je slechts enkele dagen tot je beschikking hebt is het moeilijk te bepalen waar je heen moet.Ik had een dagtour Oostvaardersplassen geboekt.
+Onder Stalin is een vierde van de bevolking uitgeroeid. Vandaag keren wij naar die stalinistische periode terug.
+Ik heb echter wel mijn twijfels over sommige punten, vooral omdat een aantal aspecten van de internationale onderhandelingen over de verlaging van de uitstoot van CO2 vanwege de recente ontwikkelingen nog niet konden worden behandeld.
+Dokter Bauer, mag ik even met m'n collega's praten?
+Ik heb enkele ideeën, maar ik sta open voor suggesties.
+Naar beneden staren Wanneer een speler naar beneden staart, zit hij misschien zijn vertrouwen te faken omdat hij een zwakke hand heeft. Hij heeft misschien een paar goede kaarten, maar niets kan uitgesloten worden.
+- Ik heb er niet zoveel meer.
+Pap, kan ik alstublieft een paar minuten met u alleen praten?
+Dat lijkt me van wezenlijk belang. Aangezien ik nog enkele seconden spreektijd over heb, wil ik u graag deelgenoot maken van een ontdekking die ik vandaag heb gedaan.
+Ik moet nog een paar dossiers doorspitten.
+Ik heb nog wat vragen en dan zijn we klaar.
+We hebben misschien niet een paar maanden.
+We hebben nog steeds een paar problemen, maar we krijgen er grip op.
+- We hebben wat vragen voor je.
+Ik heb wel een paar mannen waar ik op kan bouwen.
+- Kan ik mr Adama even alleen spreken?
+Grijs water en zwart water zijn makkelijke concepten om te begrijpen nadat u een paar keer hebt rondgereisd, maar hoe moet iemand die voor het eerst een camper huurt dingen begrijpen als asdruk, boondocking (gratis overnachten) en laadvermogen?
+We hebben een paar uur. Als je even wilt slapen...
+Ik heb een paar nieuwe nummers voor jullie vanavond, en ik hoop dat jullie ze goed vinden.
+Ik heb het over het genre wat net tussen rock en metal zit, waar ik eigenlijk geen goede naam voor kan verzinnen, maar wel een paar voorbeelden: De oudere muziek van Seether, Breaking Benjamin, en misschien een beetje Korn.
+Me bezatten en dan later vanavond bij 'm langs en het goedmaken. Ik werp me in z'n armen en zie wel wat ervan komt.
+Ja, ik moet nog wat meer verzamelen.
+Ik heb wat dingen tegen de generaal te zeggen.
+Nog een paar opmerkingen voor we naar het slagveld gaan, mensen.
+- Dat doe je elke avond.
+Ja, hij had wat huwelijksproblemen maar ik keek naar hem op.
+Ik heb nog een paar andere aanwijzingen.
+India zeker, maar Engeland kan zich toch nog wel wat mensen veroorloven?
+- Nu heb ik er wel een paar.
+Sommige producenten kunhen op garantieprijzen rekenen, anderen alleen op een op richtprijzen gebaseerde theoretische steun.
+Ik voer korte gesprekken met mensen en ik zou, als u een paar minuten heeft, ook met u willen praten. Schikt u dat?
+Stel u heeft een paar vrije dagen, het weer is goed en u besluit om niet al te ver van ...
+Ja, nou... Wij zijn geen bedrijf ofzo. Wij zoeken een leuk plekje om met onze mannen in te trekken.
+Victor Puccinelli, ik heb een paar vragen voor je.
+Wij hebben een paar rekeningen voor onze meer betrouwbare spelers.
+Nee, kom, blijf wat langer!
+Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Woensdag 8 mei, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
+Had je niet geregeld dat we een paar dagen vrij zouden zijn?
+Eerst lol maken, dan lachen.
+- Ja. Ik heb een paar vragen voor "Varsity."
+Ik heb een paar vragen die ik u graag wil stellen.
+Mogen we een paar minuten van je tijd vragen?
+Een beetje friet is goed.
+Tenslotte heeft de heer Titley de vraag gesteld naar de politieke toekomst van de EER.
+Ja, ik belde even omdat ik een aantal ideeën heb waarvan ik denk dat je ze fantastisch vind.
+Dit hart moet heel snel naar m'n patiënt.
+Ze hebben nog een paar plaatsen in de herfst.
+Ik heb wel wat ideeën.
+We hebben enkele vrijwilligers, Mr.
+Ik doe onderzoek naar gliosarcomas en ik heb een paar ingangen maar ik heb meer tijd nodig.
+Geleidelijk aan hebben we enkele vissen over en zien dat als onze referentiewaarde.
+Laten we ergens wat gaan drinken.
+Maar we willen u eerst wat vragen stellen.
+Ik heb een paar vragen en een paar opmerkingen.
+Ik denk dat wij dan in veel ernstiger toestanden terechtkomen dan de toestanden die wij in het begin van de jaren tachtig rond de begroting hebben gekend.
+We hebben nog een paar uur voor je moeder komt.
+Consulent voor de NYPD dus.
+Toegegeven, gieren hebben behalve hun onsmakelijke eetgewoonten nog wel een paar dingen tegen.
+We hebben nog maar een paar minuten voordat we live gaan.
+Maar voordat je verdergaat hebben we een paar kleine suggesties.
+Hultin?
+(GA) Mijnheer de Voorzitter, ik wil graag wat zeggen over de Atlantische strategie.
+Ze beweren dat 't niets te maken heeft met wat je bent.
+We hebben goeie plekken.
+- Nog 'n paar minuten.
+En Roland ken een paar foutjes hebben...
+Ik heb wat routinevraagjes.
+Mevrouw, kan ik even met u spreken?
+Ik heb 'n paar vragen over een luitenant...
+Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Woensdag 27 maart, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
+Je hebt een paar seconden om iets te versturen.
+Nu dat ik ontslagen ben heb ik een paar dingen te zeggen.
+Hebben we de toxine-uitslag van Lockwood al binnen?
+Je hoeft niet een paar uur.
+Een paar borrels, dan kan ik er weer tegen. Ik ga lopen en zorg dat ik nuchter thuiskom.
+Als je zou kunnen praten dan weet ik dat je een paar woorden voor me hebt.
+Het lijkt alsof jullie nog heel wat te bepraten hebben.
+Wat drinken, lachen over het verleden?
+We hebben nog maar een paar uur voordat we hem dood moeten verklaren, we moeten echt z'n familie vinden.
+Ik heb wat vragen over het ontstaan van deze vete.
+De 3D omgeving waarin Pacific Poker haar spellen aanbiedt, is mooi om te zien en heeft een aantal functies die erg ongebruikelijk zijn in de wereld van online poker aanbieders.
+Van de meeste oudere dingen zijn er slechts enkele beschikbaar, dus dit is uw kans om 'vintage' handelswaar te bestellen tegen gereduceerde prijzen (kijkt u naar de rode getallen!)
+Gaan jullie m'n zoon nou zoeken?
+Zodra ze een donor hebben, heb je maar een paar uur.
+Hij gaat binnenkort naar 'n nieuwe koper, maar een paar dagen moet genoeg zijn.
+Ik verkies een enkele trouwe volgeling... boven vele die wispelturig en onverschillig zijn.
+We hebben nog meer suggesties. Wilt u ze horen? Graag.
+Jou zit ook wat dwars.
+Je hebt misschien nog een paar weken.
+Je hebt dan een paar kansen-en-eindigt als iHeartRadio en Polaris Office 5 geïnstalleerd, samen met een handvol van de LG apps die standaard op elke G Pad 8.3.
+Mag ik een paar minuten alleen met hem?
+Ik heb betere ideeën.
+Het Amerikaanse Serpent Eclipse heeft wel een paar leuke vondsten.
+We volgen samen enkele lessen, meer niet.
+Veel gezinnen hebben enkele kleine, eenvoudige appartementen aan huis, die zij verhuren aan reizigers.
+Misschien hebben ze wat meer geld dan wij.
+Kunnen we een moment alleen met hem zijn?
+Ik wil daarover wat vragen...
+Meneer, als ik mag, ik heb nog een paar andere ontwerpen.
+Misschien moet Edmund's tutu een paar bladeren meer hebben.
+Wij hebben nog maar een paar dagen voordat de termijn verstrijkt van de laatste verlenging van het moratorium dat in de beschikking staat die de Commissie nu wil intrekken.
+Dat zijn de zogenaamde AlNiCo-magneten (een paar hiervan hebben wij in ons assortiment).
+- Ja. Ik heb een paar regels.
+- Kan ik u even spreken ?
+In deze webshop hebben we een paar leuke en nuttige dingen voor u in de aanbieding
+Het spijt ons voor uw verlies, maar we moeten een paar vragen stellen.
+Mag ik een paar minuten?
+Voor mij en de liberale fractie zijn er echter ook een aantal punten van kritiek.
+Binnenkort. Je moet eerst ervaring opdoen met een paar andere zaken.
+Mijn vrouw en ik hebben enkele vragen voor jou.
+-Ik heb een paar dollars bij me, maar...
+We hebben mariniers aan boord.
+In dit stadium is ze ongeveer 40 percent voedzamer, een derde gemakkelijker verteerbaar en heeft nauwelijks de helft aan ruwvezel van wat ze een paar dagen later zal hebben wanneer ze volop in bloei staat en de stengels taai zijn. ”
+Allison, ik heb een paar vragen.
+De moeilijkheden in de sector pluimvee en eieren zijn met die van de overige landbouwprodukten onverbrekelijk verbonden.
+Wij hebben vragen over z'n veeartspraktijk.
+Ik heb weinig relaties in Engeland.
+We hebben wat vragen, en dan brengen we je thuis, goed?
+Mag ik even alleen zijn?
+Ik heb een paar follow-up vragen met betrekking tot de burgemeester betrokkenheid bij de veranderde medische rapporten.
+Toch een paar bedenkingen.
+Nou, Dave, we kregen niet de witte kerst waar we op hoopten, moeder natuur kan nog een paar trucjes achter de hand hebben.
+We zijn hier om plezier te hebben en wat te lachen.
+Dames en heren, ik wil een paar mannen aan jullie voorstellen vanavond
+Doet er niet toe. Wellicht wilden jullie... een handje meehelpen.
+Nou, ik heb wat probleempjes met Mr Dunn.
+"Kom naar de beurs, we gaan een leuke tijd hebben en ook wat lachen."
+We hebben maar een paar minuten voor ze terugkomt.
+Wij zitten dringend te wachten op financiële duidelijkheid.
+Mijnheer de Voorzitter, ik heb en-kele heel korte opmerkingen.
+Ik kom eens 's avonds langs, en we kunnen er allemaal bij zitten en erover lachen, maar nu niet, Mary.
+Heren, heeft u even?
+We hebben gewoon een paar feestjes soms
+Ja, en ik heb een paar vragen voor die zogenaamde kardinaal Richelieu.
+Dan hebben nog maar een paar uur de tijd.
+Speciaal om dat moment te benadrukken, hebben we een nieuwe Geocoin: It's Geocaching Time.Voor de makers van caches hebben we weer paar leuke nieuwe magneten en ook magneetband.
+Mevrouw, we hebben een paar vragen over de dood van je ex-man.
+Toch heb ik in dit verband nog een paar vragen aan de Commissie.
+De mensen die de leiding hebben over een tehuis voor kwetsbare kinderen hebben tonnen aan rijst in individuele porties verdeeld zien worden... en van de zwaksten wordt het gestolen, of het wordt voor een lage prijs verkocht om een paar centen te hebben.
+Ik heb een paar vragen, heeft u een moment?
+Het resultaat van de stem­ming is dat de beslissing van het Bureau van het Europees Parlement van 19 oktober van kracht zal worden, een
+Nou, ik heb wat vragen over een artiest die u vertegenwoordigt.
+We hebben alleen wat vragen en dan zijn we weer weg.
+Heren, mag even jullie aandacht, alstublieft?
+Ik heb hoogstens nog een paar uur.
+Maar ik heb nog wat tips om de kosten te beperken.
+Ga naar binnen. Lekker lol maken en lachen.
+Ze hebben ook een paar progressieve jackpot titels te bieden, waaronder we noemen Droom Wiel (3 en 5 reel versies), het kasstroomoverzicht en de Raket-Aansluitingen.
+Steeds in dezelfde geest vraag ik ten slotte aan het Nederlandse voorzitterschap het ernstige probleem van de kinderbescherming in Europa niet te verwaarlozen.
+Dus, ja, ik heb wel iets te zeggen.
+Maar echt, het is niet anders dan andere clubs, ik bedoel... je neemt een paar drankjes en je praat met een paar mensen waar je niets mee hebt, en.... realiseert je hoe onwaarschijnlijk het is, dat je ooit iemand zal ontmoeten die weer goed voor je zal zijn.
+Fannie Lieber. Mijn god. Joepie.
+- Mogen we nog een paar momenten?
+Ik hoop niet dat je net als laatst na een paar drankjes aanhalig wordt.
+- Nee, maar ik heb speciale krachten.
+Nou, we hebben onze verschillen.
+Een aantal mededelingen voor de benedictie.
+Je hebt een paar minuten, voordat de bus vertrekt.
+Daarom heb ik een aantal vragen.
+Nee, nog niet, maar we hebben een paar vragen.
+Ik kom, liefje. Maar ik moet een paar idioten kwijt zien te raken.
+Wij zijn ook geen kleintje.
+Ik wil eerst...
+Ik heb wat gedronken. Ik moet wat drinken, want...
+Ik moet nog een paar kleinigheden regelen.
+We hebben een paar klassieke side-scrollers.
+Er is ook gesproken over een andere afschuwelijke zaak : het terugdringen in zee van de bootvluchtelingen en hen zo een zekere dood indrijven.
+Ik heb nog wel wat trucjes in mijn mouw.
+Er is nog een andere weg, als ik zo vrij mag zijn.
+Daar zet ik wel wat op in.
+Blijf de hele nacht op, neem nog een paar drankjes.
+We hebben slechts een paar minuten, dus laten we scherp blijven.
+Ik heb 'n paar vragen over Leon Frevert.
+Ik moet nog een paar dingen nagaan maar u heeft mijn rapport eind deze week.
+Als wij terugblikken op alle fouten die tot die catastrofe geleid hebben, dan komt het mij voor dat in dit verslag echt is geprobeerd op elk van die fouten in te gaan en uit te zoeken hoe elk van die fouten in de toekomst kan worden voorkomen.
+We hebben een paar uur het rijk alleen.
+Ik moet nog een paar keer douchen voor ik al dit Trellium D kwijt ben.
+Het mag wel eens iets anders zijn.. Maar wat koop je dan? We geven graag enkele tips om te bewijzen dat nuttige cadeaus niet altijd saai zijn!
+Der Boris-Effekt für die Bootswirtschaft Der Boris-Effekt für die Bootswirtschaft (lifepr) Ravensburg, 13.01.2009 – Zij worden opgeroepen door hun voornamen en Boris hebben een paar dingen gemeen.
+Dus we kregen geit soep, Lamsbout (ze hebben ook een paar schapen), Rundvlees (van buren) en een soort wild zwijn - Captain James Cook was honderd jaar geleden, toen hij ontdekte Nieuw-Zeeland nieuw, blootgesteld aan een kudde tamme varkens, hun nakomelingen zijn vandaag de dag als een soort wild zwijn doodgeschoten in station jaagt.
+Ten tweede toetst de Commissie - evenals een aantal internationale instanties waaraan de Commissie deel neemt - de gevolgen die derivatieve financiële produkten voor het toezicht op het kredietwezen inhouden.
+Nou ja, hoe dan ook, als je het bent, komen een paar honderdduizend dollars je richting uit.
+We hebben enkele mannen in reserve en die nemen dan je plaats wel in.
+Ik heb een paar vragen.
+Ik moet zometeen weer beginnen.
+Hey, we hebben nog een paar minuten over.
+- Ik denk dat ik wat heb in mijn handtas... en waarschijnlijk meer in de kluis.
+U heeft een paar minuten voor de operatie start.
+Over een paar maanden hopen wij daar honderd kippen te hebben waarvan de eieren zullen worden verkocht en de opbrengst ten gunste komt van de weeshuizen.
+Als u jong bent en opzoek bent naar een leuke tijd dan heeft Pakostane een aantal leuke cafés en bars. We raden aan Chico bar. Als u naar een discotheek wilt dan raden wij een bezoek te brengen aan de steden Sibeni (10 km) en Zadar (35km).
+Nog even drinken we wat na voordat we de tenten op zoeken.Terwijl we na de tent lopen, schijnen we met de zaklantaarn in het rond.
+De 10 valkuilen die u moet vermijden vlak voor de sociale verkiezingen Voor een constructief en kalm sociaal overleg Vlak voor de sociale verkiezingen, met de komst van een nieuwe ondernemingsraad of CPBW, zou u zich het volgende kunnen afvragen: Hoe verloopt de eerste vergadering?Hoe leid ik de vergadering in?
+Spreken over de doeltreffendheid van de structuurfondsen betekent niet meer of minder dan nagaan in hoeverre de structurele fondsen bijgedragen hebben aan het verwezenlijken van het doel waarvoor ze gecreëerd zijn, te weten het tot stand brengen van de zogenaamde economische en sociale samenhang.
+Vervolgens, mijnheer de Voorzitter, nog enkele opmerkingen over mijn tweede verslag inzake twee voorstellen uit het Rijnchemieverdrag die omgezet moeten worden in EEG-richtlijnen.
+Je hebt wellicht maar een paar minuten.
+Hoewel BSE in sommige veestapels - veelal melkveestapels - nog steeds hier en daar opduikt als gevolg van besmet voer, heeft zich bij het merendeel van de vleesveekuddes nooit een geval van BSE voorgedaan - en dat geldt ook voor mijn eigen veestapel - , maar wij ondervinden wel allemaal de gevolgen ervan.
+We hebben echter zeker nog wel een paar punten van kritiek, bijvoorbeeld op de terugbetaling van invoerrechten in Zuid-Korea, die een eenzijdig concurrentievoordeel zal opleveren voor bepaalde industriesectoren in Zuid-Korea, vooral op gevoelige terreinen als de automobielindustrie.
+Ik moet nog even een paar probleempjes oplossen
+Er staat je nog heel wat te wachten.
+Birger, ik wil je nog een paar vragen stellen.
+Wat vind je ervan als we iets gaan drinken?
+Je komt tegenwoordig niet veel eerlijke mensen meer tegen, maar het is aanmoedigend dat er enkelen zijn die zich onderscheiden als ware Getuigen van Jehovah God. ”
+Het is niet voldoende dat er een paar intellectuelen zijn, wij moeten ons zelf ook met deze dialoog inlaten.
 Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Woensdag 5 juni, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
-Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Zondag 31 maart, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
-Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Zondag 14 april, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
+- en ik heb enkele ideeën.
+Deels zal dit alles in lopende onderzoek gaan plaatsvinden, maar een lector mag bij een rede ook dagdromen. En ik heb wel wat roze wolkjes waar ik graag over fantaseer:
+Ik begrijp dat je misschien - een paar vragen voor mij zou kunnen hebben.
+We hebben enkele vragen.
+Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Zondag 26 mei, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
+Ik heb een paar vragen over de moord op Heather Babcock.
+Heeft u een paar minuten om een paar vragen te beantwoorden?
+Ik heb hier een paar artikelen van de afgelopen jaren: Khadafi eist miljarden van de EU.
+Ik heb 'n paar mededelingen voor het begin van 't jaar.
+Ik heb nog een paar vragen.
+Rechtstreekse toegang Als u slechts enkele accesspoints hoeft te beheren, is handmatige configuratie van uw accesspoints via rechtstreekse toegang een goede optie.
+Heb je even?
+Het enige probleem is dat ik enkele moorden op m'n geweten heb.
+Mannelijkheid zal nog slechts 'n kenmerk zijn bij sommige vrouwen.
+Mag ik er dan ook een paar voor mijn vrienden?
+Deze gebieden kennen nog steeds een aantal problemen.
+Ik moest naar m'n advocaat, maar z'n kind is ziek.
+Ik denk dat we eerst even een paar drankjes pakken.
+Walter plaatst hier enkele kanttekeningen bij: "Uiteraard zullen mensen meer willen betalen voor ernstige ziektes dan voor lichtere kwalen, dus zul je ook moeten definiëren wat een ernstige ziekte is.
+En ik heb een paar regels.
+Komen te kleden, we gaan voor een drankje.
+Ik heb alleen wat bedenkingen met betrekking tot de naamgeving.
+Ik weet dat dit een moeilijke tijd is, maar ik heb wat vragen.
+Nadat de Here Jezus met enige woorden van lof voor de gemeente te Pergamum is begonnen, zegt hij: „Niettemin heb ik enkele dingen tegen u, dat er onder u zijn die vasthouden aan de leer van Bileam, die Balak ging leren een struikelblok te leggen voor de zonen van Israël, namelijk, dingen te eten die aan afgoden waren geofferd en hoererij te bedrijven ”.
+Aangezien het nog een paar uur duurt voor de show begint... wil er iemand wat te eten of drinken? Ik regel het.
+Maar we hebben een paar losse eindjes eerst te regelen.
+Niet spelen op de dollar inzet van machines als u slechts een paar dollar.
+We hebben een paar afgekeurde leden van het Stanford fanfare orkest.
+Voordat je ons allemaal vermoordt, hebben we een paar vragen over jou, je broer,
+Natuurlijk heb ik ook enige punten van kritiek.
+Dit is de Oregon Renaissance Band en we speelden net een stuk van Anthony Holborne genaamd The Night Watch, en we gaan vanavond nog een paar nummers spelen.
+Prima, ik heb nog wel wat vragen voor de officier-arts.
+Ik heb nog wat vragen over waar Mrs Richmond is.
+Wij willen even wat dingen verduidelijkt hebben.
+Arafat zei dat hij ook een paar blokken van de Armeense wijk moest hebben vanwege de christelijke kerken daar.
+Nummers als 'Dragonland', 'Cross The Swords' en 'Desert Storm' bevatten echter wel leuke meezingrefreintjes en de gitaarriffs klinken best aardig.Ik denk dat deze band live best te pruimen is, maar op cd zijn de nummers niet sterk genoeg om te blijven boeien en de aandacht verslapt snel.
+Ik heb een paar vragen, maar... Ik heb geen legertop nodig om ze beantwoord te krijgen.
+De wreedheid van de mens tegenover zijn medemensen kent echter geen grenzen.
+Eet ook wat crackers.
+Kom hier, allemaal.
+De lymfeknopen in uw hals zijn gezwollen.
+Ik heb ook een paar vragen.
+Maar ik heb wel een paar engeltjes die over mijn schouder meekijken.
+Ten tweede, de internationale samenleving, dus ook onze Europese instellingen,
+Ik wil echter wel een aantal kanttekeningen plaatsen bij de nieuwe transatlantische markt.
+Je hebt waarschijnlijk een paar uur.
+Iedere Traveler arts heeft een aantal doses bij zich in geval van nood.
+Het zou leuk om te hebben een paar potten om te gaan met de twee pannen we kregen geweest zijn. We hadden te doen sommige koken.
+We weten ook welke landen verantwoordelijk zijn en wie de toestemming heeft gegeven om talrijke trainingskampen op te tichten.
+We hebben maar een paar minuten en niet veel opties.
+We flirten, nemen wat drankjes... en dan beëindigen we de avond met betekenisloze seks.
+Ik heb nog een paar uur.
+De heer Telkämper (ARC). — (DE) Mijnheer de Voorzitter, tussen 27 oktober en 20 november 1987 werden in Maleisië 106 personen uit alle bevolkingsgroepen en partijen krachtens de Internal Security Act gearresteerd.
+Je hebt nog een paar uur te gaan.
+Misschien heb je een paar geheime krachten die we nog niet zagen.
+Dinesh, ik heb een paar geweldige ketting beledigingen die ik ga gebruiken als we binnen zijn.
+Ik heb wel wat zaken achter de hand.
+Ik wil meer dingen vinden die Camille me nooit heeft teruggegeven.
+Ik heb een paar ideeën over het design voor het experiment.
+Ik begrijp dat dit moeilijke tijden voor je zijn maar ik heb enkele vragen.
+Ik heb nog enkele spulletjes voor de baby.
+Het accent van het construeren van een Unie die nieuwe barrières opwerpt tegenover de buitenwereld zal daarom moeten worden verlegd naar een open, flexibele en brede Europese samenwerking op het gebied van handel, economie, ontwikkeling, on derzoek, technologie, milieu, energie, cultuur en veiligheid.
+Je hebt nog maar een paar dagen voor je gaat, en daar moeten we over praten.
+Kapitein, kan ik even met u spreken?
+De spray kan een halve meter ver raken, en ze heeft voldoende om enkele keren uit te halen voor ze droog valt.
+Ik heb zelf ook een paar vragen.
+Janie, je zult hier een paar dagen moeten blijven, begrijp je wel?
+Ik heb een paar dollar.
+- Nee, ik heb er nog meer.
+En ik plant mijn sla wanneer ik een paar minuten overheb
+Ik zit op mijn positie. Wacht op mijn signaal.
+Hoe gaat het?
+Kan je dit met ons delen vermits je nog een paar minuten over hebt?
+- Nee, ik kan nog maar een paar dagen uitslapen.
+Maar Ik heb enige weinige dingen tegen u, dat gij aldaar hebt, die de lering van Balaam houden, die Balak leerde den kinderen Israels een aanstoot voor te werpen, opdat zij zouden afgodenoffer eten en hoereren.
+Nu je toch hier bent, ik heb een paar vragen waar je mee kan helpen.
+Ik moet echter een aantal kanttekeningen plaatsten.Ten eerste vind ik het jammer dat men over het algemeen gekozen heeft om de "hits" van de bekendere bands om deze schijfjes te donderen, maar dat is het ergste nog niet.
+U weet echter net zo goed als ik dat sommige landen bedenkingen hebben, en wel om de eenvoudige reden dat zij worden gedwongen om in heel korte tijd — ik heb dat zojuist ook al gezegd — veel in te halen, en er zijn nu eenmaal grenzen aan bepaalde maatregelen.
+- Nu, Maia, je hebt een paar minuten.
+Ik heb gekeken en we hebben binnenkort een paar vakantiedagen.
+Ik heb geen, paar seconden.
+Omdat je de cake serveert betekend dat niet dat je ook niet een paar kruimels mag hebben die er vanaf vallen.
+Eigenlijk... hebben wij ook nog wat vragen, Mr.
+Ik moet nog een paar dingen afmaken.
+Ik heb nog wel wat achter de hand.
+Ik denk dat jij en ik enkele dingen gemeen hebben.
+Ik moet eerst nog even wat zaken afhandelen.
+Ik ken enkele trucs, die jullie smid niet heeft.
+Kan ik u even onder vier ogen spreken?
+- Ik neem er nog een paar.
+Er zijn wat mensen hier die meer willen weten.
+- Ik weet dat dit moeilijk is, maar ik heb nog een paar vragen voor u.
+Daarna zijn we een paar flamingo's gaan kijken, maar die stonden redelijk ver weg.
+Je hebt toch wel gemerkt dat ik vreemde tics heb.
+Is meestal een klein beetje overlapping, met andere woorden, voor de eerste paar seconden, terwijl het wiel is centrifugeren enkele meer seconden hebt om relevante treffers, maar kortom volg orde de dealer dat aankondigen zal er niet meer relevante treffers zijn.
+Ik heb een paar weken, misschien minder.
+Ik heb nog maar een paar vragen.
+Ik heb wat vragen voor je.
+Ik moet een paar dingen doen.
+Ik heb alleen maar wat schubben.
+Maar, we hebben wat obstakels.
 Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Zondag 10 maart, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
-Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Woensdag 20 februari, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
-Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Woensdag 26 juni, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
-In het verslag van Sir J. Stewart-Clark wordt een enorme inspanning geleverd om de situatie zo objectief mogelijk te analyseren en worden aanbevelingen gedaan die betrekking hebben op de hele situatie en doelen op een uitroeiing van drugs, deze gesel van de moderne tijden.
-Het geweld waar een einde aan moet komen, het voorgestelde vliegverbod, een nieuwe en andere solidariteit, Voorzitter, mevrouw Ashton, voor een beleid voor het Middellandse Zeegebied dat echte bescherming biedt aan de belangrijke groep mensen die in dat gebied blijven volhouden. Herziening van Frontex en, waarom niet, ik wil de Raad, die er vandaag niet is. eraan herinneren dat er twee richtlijnen zijn voor de bescherming van seizoenarbeiders en voor de overplaatsing van werknemers tussen bedrijven van burgers uit derde landen, die ook op het gebied van arbeid een antwoord zouden kunnen vormen op deze uitzonderlijke behoefte waar wij op doeltreffender wijze mee om moeten gaan.
+We hebben een paar kandidaten die Carrie kunnen vervangen als ze weg is.
+Ik moet nog een aantal dingen doen.
+Moeten we niet eerst wat drinken, elkaar leren kennen?
+Hij wil je spreken en ik wilde erbij blijven.
+Jullie nemen een paar drankjes, en jullie lachen er even om.
+Dus, als u misschien...
+Ik heb vragen over de dood van Mrs McGinty in november.
+We hebben gewoon enkele aanpassingen te maken op het fijne werk van je firma, Rochelle.
+Laten we binnen even wat drinken en erover praten.
+Een paar koningen in reserve, als je een oorlog begint.
+Ik geef toe, ik bewonder je zekerheid, maar ik heb nog wat vrienden.
+Maar Ik heb enige weinige dingen tegen u, dat gij de vrouw Jezabel, die zichzelve zegt een profetes te zijn, laat leren, en Mijn dienstknechten verleiden, dat zijhoereren en afgodenoffer eten.
+- Als je een paar ogenblikken hebt...
+U kunt niet meer minuten aan uw abonnement toevoegen door hetzelfde opnieuw te kopen, maar als uw minuten op raken, beschikt u over de volgende mogelijkheden: u kunt een ander abonnement kopen, upgraden naar een onbeperkt abonnement (indien beschikbaar) of Skype-tegoed kopen om te betalen naar gebruik totdat uw bestaande abonnement automatisch wordt vernieuwd.
+Een grote overwinning hebben een paar wilds in de winnende combinaties.
+Het goede nieuws is dat economisch onderzoek wel degelijk wat zinnigs kan antwoorden op de vraag of Europa wel of niet een eenheidsmunt nodig heeft.
+Waarom zei je niets? Binnen.
+- En in plaats daarvan ? In plaats daarvan werd het...
+We hebben follow-upvragen die we moeten behandelen.
+Heb je even?
+Een mooie reis in het spoor van de Vikingen en bijzonder is dat de zon bijna niet onder gaat zo noordelijk en het dus vrijwel niet donker wordt.Als het weer meewerkt hebben we een paar dagen over om de zuidelijke eilanden van de Faeröer te verkennen, zoals Suduroy, waar we een schitterende wandeling naar een prachtige grot kunnen maken en daarna een heerlijke versnapering in een knus tentje kunnen nuttigen.
+Eenmaal in Mongolië zullen we weinig internettoegang hebben en wanneer we Mongolië weer verlaten is het nog maar enkele dagen voordat de Vlierden 4 gaan komen.
+Ik moet u een paar vragen stellen.
+Oké, we willen jullie laten zien dat we een paar tegels missen... van de stuurboordgondel.
+Ik heb enkele verklaringen voor u en daarna komt de agenda aan bod.
+JF — Hans in elk geval niet. Die beweegt zich alleen maar achteruit. (lacht) Ik weet niet zeker of ze erin slagen ‘blijvend gelukkig’ te worden, maar ze doen sowieso een aantal nieuwe ervaringen op, wat zeker niet het slechtste is wat je kunt meemaken. Ze komen in elk geval een stukje dichterbij een besef van wat ertoe doet, van wat het zwaarst weegt.
+Ik heb nog maar een paar examens te gaan.
+Als je de bemanning zou willen vergiftigen, dan heb je maar enkele opties.
+We zijn nu met iets anders bezig.
+Na toetreding tot de EEG ondervindt Griekenland hevige concurrentie van de VS, Australië, Turkije, enz., die door het stelsel van preferentiële samenwerking met de Gemeenschap en de dumpingprijzen die zij hanteren de overeenkomstige communautaire produkten uit de markt prijzen, zelfs binnen de EEG, die tevoren 95 % van de Griekse produktie afnam.
+Het Is een schande dat onze familie niet veel meer familie leden heeft.
+Over de specifiek budgettaire aspecten wil ik, na wat ik heb gezegd over de toeneming van de middelen voor deze vier beleidsvormen en over de noodzaak de limiet van de BTW-opbrengst voor onze eigen middelen te doorbreken, namens de Commissie nog een andere fundamentele opmerking maken.
+Ga zitten, aangezien ik nog maar heel even heb voor ik kokken van de kantine moet gaan straffen voor het verkopen van onze bevroren groentes op de zwarte markt.
+Een paar mensen van mij zijn die plaatsen aan het checken, maar ik denk niet dat het veel zal opleveren.
+Je hebt wel een paar grijze haren.
+Ik heb nog wat trucjes.
+Wij hebben enig voorbehoud inzake een benchmarking van de randvoorwaarden als dit tot resultaat heeft om kwesties op communautair niveau te analyseren die hoofdzakelijk onder de subsidiariteit vallen, dat wil zeggen onder de bevoegdheid van de lidstaten, zoals de organisatie van de overheden in hun betrekkingen met de industrie. Deze situatie doet zich bijvoorbeeld voor bij het energiebeleid.
+Maar voordat we afsluiten, ik heb enkele secretaris aankondigingen.
+Er zijn vast nog wat plaatsen over.
+Ik hoop dat je gelijk hebt, Diane, maar, uh, we hebben nog een paar minuten en ik wil me even opfrissen.
+We hebben allemaal uw rapport gelezen, uit Duitsland. Vandaag hebben we alleen een paar vragen, verheldering...
+Ik heb ook wat ideeën voor het menu van de cafetaria.
+We hebben nog een paar onderdelen nodig...
+De regering van de VS geeft me dat recht, dus als je het niet erg vindt... heb ik een paar vragen die ik hem wil stellen.
+En ik heb nog een paar trucjes achter de hand.
+Maar we moeten eerst andere dingen uitzoeken.
+- Zoals ik al zei, ik heb nog wat vragen.
+Het spijt me je uw volkomen gerechtvaardige opmerking te onderbreken, maar ik heb een paar vragen voor de getuige.
+Fijn te weten dat ik nog wat achter de hand heb.
+- Er zijn nog 'n paar isogram.
+We hebben nog een paar minuten.
+We willen er even over nadenken
+Ik heb nog een paar jaar werk in me.
+Ik loop een aantal jaar voor op jou.
+U heeft nog 'n paar uur om wat op te frissen.
+Wellicht dat de kwestie het beste uitgelegd kan worden - met name omdat er op dit tijdstip ook altijd een aantal bezoekers op de publieke tribune aanwezig is - door te zeggen dat wij bezig zijn met het slaan van een brug.
+Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Woensdag 10 juli, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
+Ik zie echter in dat dit waarschijnlijk niet op korte termijn zal gebeuren en daarom wil ik enkele opmerkingen maken tijdens dit gezamenlijke visserijdebat.
+Bel me, als je even tijd voor mij hebt.
+Wij stellen u enkel wat vragen rond DHV's.
+Bel me maar als je even de tijd hebt. - Oké.
+Er is nu een nieuw probleem: Ik heb een paar mensen die bereid zijn om het Engels te vertalen naar het Zweeds, maar momenteel de redactie knop verschijnt na een eventuele interpunctie, die op een site als deze is het onmogelijk – zijn veel makkelijker om een hele zin te vertalen, in plaats van op elke komma, enz..
+Ik weet zeker, dat jij ook wat vragen heb, Sam.
+We moeten jullie daar verder ondervragen.
+Ik moet een paar telefoontjes plegen.
+Eerst resten er in 't heden nog wat probleempjes.
+U hebt wat rare antwoorden gegeven aan de beambte... dus we hebben nog een paar vragen die we aan u willen stellen.
+Een aantal delen van de DOS Amigos Homepage Collection inclusief de nieuwste aanwinst A Night at the Opera met opera arrangementen van Johann Kaspar Mertz.
+Ja, hij zei tot middernacht, dus we hebben een paar uur de tijd.
+Ik heb zelf ook een paar trucjes.
+Wacht, er werken wel freelancers voor me.
+Laten we hopen dat we zoveel tijd hebben.
+Helaas hebben we maar even.
+Wat als jij en jonge Vanna, kinderen voor jullie zelf willen?
+Kun je me een paar minuutjes alleen laten?
+Beschrijving: om uw suggesties als je een paar of haar conditie op basis van de prijs
+Het eten dat kan worden gered, hebben we voor een paar dagen.
+Welnu, Ik heb een paar dingen die ik over Laura Linney wil zeggen.
+Ik heb wel een paar vragen.
+We hebben wat vragen voor Darren.
+We hebben geen paar dagen meer.
+Minister, we hebben nog maar een paar minuten.
+- Volgens mij staan er teveel nullen op.
+U heeft nog een paar minuten.
+Ik moet een paar pagina's uitlezen.
+Op dat gebied heeft Symphony Of Symbols, uit Hongarije, in ieder geval nog een en ander te leren.De website is uitgebreid en oogt redelijk professioneel, maar is volledig in Hongaars.
+Je moet ook wachten wanneer deze winkels merk prijzen omlaag. Echter, heb je alleen een paar opties hier omdat ze verkopen veel verschillende soorten producten, niet alleen beddengoed sets.
+-Ik heb nog wat vragen.
+Ik heb hier weinig vrienden, maar op een paar kan ik wel rekenen.
+- Wat laaiende ruzies hebben.
+…en waarvan we een paar en ook heel trots zooo veel medewerkers zijn om te hebben
+Ik heb maar eventjes nodig, ik heb wat vragen over Islamabad.
+Ik heb een paar vragen, Edelachtbare.
+En omdat ik nog enkele seconden spreektijd heb, wil ik mijn steun uitspreken voor de pogingen van de interim-regering om ervoor te zorgen dat de aanloop naar de verkiezingen eveneens voldoet aan de internationale democratische normen: samenstellen van een behoorlijk kiezersregister, een echt onafhankelijke kiescommissie en uiteraard, ik kom er wederom op terug, het evenwicht en de vrijheid van de media gedurende de verkiezingscampagne.
+Ik heb alleen nog een paar kippen.
+Ik heb altijd gedacht dat we nog een paar jaren gehad hadden, als die verdomde priester er niet geweest was.
+Ik wil er zelf ooit ook een paar.
+We hebben nog een paar minuten over.
+We hebben maar een paar uur de tijd.
+Eerst heb ik een paar vragen.
+Ik heb die macaroni met kaas gemaakt die je lekker vindt, die we een paar weken gelden zouden eten.
+Snel, we stikken zo in de koolmonoxide.
+Misschien heeft u even tijd?
+Dus waarom niet gewoon toegeven, als Amerikaan zijnde, dat we nog steeds goed in iets zijn en nog steeds een paar fraai gemaakte exporten aan de wereld te bieden hebben. George Carlin had een geweldig stuk na de eerste Golfoorlog over waar Amerika goed in is, maar hij stopte voornamelijk bij "grote gaten in andermans landen maken".
+Ik vond een verband tussen Christabel en Randolph Ash en ik heb een paar vragen voor je.
+In antwoord op enkele van de amendementen van mevrouw Bloch von Blottnitz kan ik dat nu al beloven.
+Ik heb er nog 'n paar uit de tijd voor Castro.
+Het Parlement is gelukkig geduldig en neemt er de nodige tijd voor als de Raad een leerproces moet doormaken.
+Tot slot heb ik een aantal punten van zorg wat betreft de bescherming van intellectuele-eigendomsrechten en met name - zoals al meermaals gezegd is - geografische aanduidingen.
+Bij onze oordeelvorming over dit voorstel denken wij vooral aan een land als Portugal, dat nog niet op het Europese net is aangesloten en dat door de Gemeen schap gelijke kansen moet worden geboden, iets dat zowel door de ligging van het land als - het moet ge zegd worden - door de nietsontziende werking van het marktmechanisme dreigt te mislukken.
+Ik heb een paar talenten.
+Het zou mij helpen bij mijn beoordeling als ik even alleen met hem zou kunnen zijn.
+Spendeer net zo veel tijd door in een kluisje als mij en dat krijg je zelf theorieën.
+Kunnen we even praten?
+Ik heb maar een paar minuten voordat mijn collega's weten dat ik weg ben.
+Misschien hebben we hooguit maar een paar jaar... om te proberen ze af te buigen.
+Ik moet eerst nog wat databanken opschonen.
+Het zal niet lang duren.
+Misschien heb ik nog meer verband, ik kijk even...
+Kan ik hier ook gemasseerd worden?
+Wij voeren aan dat het voorstel enorme problemen opwerpt.
+- Als u enkele minuten hebt... - Met genoegen.
+We kunnen wat gaan drinken, misschien het diner wegdansen.
+We moeten u enkele vragen stellen in verband met een onderzoek.
+Ik heb inderdaad iets te zeggen.
+Ik heb nog een paar centen, denk ik.
+Vinden jullie het erg als ik hier blijf slapen... een beetje ga schrijven, en misschien wat mensen uitnodig?
+Toch heb ik nog enkele vragen.
+Herinner je je laatst toen ik je vroeg of ik een paar vrienden kon vragen voor poker, en je duwde mijn gezicht in de koelkast?
+Ik heb enige kritiek en wil enkele voorstellen doen.
+Nu heb je er een paar extra, elke dag.
+Maar ik denk dat u het er mee eens bent dat wij ons er bij dit onderwerp niet enkel met wat ironie van af kunnen maken.
+Een paar minuten.
+We hebben slechts een paar dagen, om dit op te lossen.
+En nog een paar jaar samen zijn?
+Er zijn wel een paar uur die ik nog moet inhalen.
+Gebruik mijn locatie Wanneer kom je langs?​ Vandaag Morgen Dit weekend Deze week Kies datum Kies periode Popmuziek Live muziek in De Gekke Geit Zondag 17 februari, 21:00 uur Hostel The Hague De Gekke Geit is de kleinste gezelligste bar met veel live muziek.Er zijn beperkte zitplaatsen maar er is altijd plaats aan de bar.Veel al internationale muzikanten hebben gespeeld in de Gekke Geit.
+Als clubbing niet echt jouw ding is, kom hier dan om te eten in het restaurant of om overdag of ‘s avonds een paar drankjes te nemen aan de bar.
+Ik zou de Commissie, hoezeer deze overeenkomst mij ook bevalt, toch nog enkele vragen willen stellen.
+Ik heb eigenlijk een paar concrete vragen die te maken hebben met het gebouw die mijn kiezers mij stellen.
+Tapas variëren van regio tot regio. Barcelona staat niet enorm bekend om de tapas-cultuur, in vergelijking tot andere gebieden zoals het Baskenland en Andalusië. Maar er zijn een paar klassiekers die u overal op de menu's zult zien staan.
+Ik heb een paar vragen met betrekking tot de 10e uitoefening.
+We hebben al een paar aanwijzingen ... en hebben een verdachte op het oog.
+Ik wed dat een aantal van jullie een paar van onze beste ontwerpen in je zak hebben.
+We hebben enkele opties.
+Er zijn nog wel wat barrières voor me.
+Ik heb nog enkele vragen en wil je geen ongemakkelijk gevoel geven.
+Nog een paar...dagen.
+Ik heb een paar vragen over één van je passagiers van gisteravond.
+Er zijn nog enkele kleine fouten.
+Ja, we weten dat ze er een paar hebben.
+(GA) Mijnheer de Voorzitter, ik wil graag een paar opmerkingen over dit onderwerp maken.
+U hebt nog een paar rekeningen van de bar, M. Frémont.
+We hebben een paar hoeren die het motel gebruikten.
+Dus laten we er een tekenen en zien hoe goed dat lukt. hoewel, ik teken de knikker blik met een paars kleurtje.
+Jack en ik moeten nog wat afronden.
+Ik heb een aantal vragen over een weekend met Bart in Dubai, vier jaar geleden.
+In huis heb ik nog wel wat, maar zeer veel spullen zijn verloren gegaan bij de overstroming die hier een paar jaar geleden heeft plaatsgevonden.
+De problemen zijn nog niet voorbij.
+Het zal een poliklinische operatie zijn, en ik zal slechts een paar dagen wat ongemak hebben alvorens weer gezond en vrij van pijn te zijn. Ik zal enkele dagen doorbrengen met Letitia en Dan zodat zij mij veel TLC kunnen geven.
+Het gerucht gaat dat jouw meisje nog steeds een paar zwakheden heeft.
+Ik denk dat je wat gespleten punten hebt.
+Ik heb nog wat verrassingen in petto.
+Nieuw : In elke van onze verhuringen : mogelijkheid van draadloos internettoegang aan competetieve prijzen (aangezien we momenteel slechts een aantal routers hebben moet u op tijd reserveren) Indien u meer informatie wilt aarzel niet ons te contacteren op info@villascasas.com en indien u ons een telefoonnummer doorgeeft zullen wij u contacteren.
+Over drie dagen komen er weer nieuwe.
+We hebben nog een paar uur om alles uit te vogelen.

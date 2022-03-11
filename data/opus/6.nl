@@ -1,500 +1,500 @@
-- Iedereen.
-Over de hele lijn.
-We hebben niks gevonden.
-Jullie groentjes, start de recorders pas... als ik over de drempel ben.
--voor iedereen.
-Vijf cent verhoging.
-Alle systemen zijn groen.
-Het vermogen fluctueert.
-We maken er een verhaal van redding van.
-Alle lichten staan op groen.
-Ze zijn gek, over de top.
-De uitrusting begaf het helemaal.
-Om die redenen steun ik de resolutie.
-Ik geef vandaag een tien.
-Dat moet over de gehele linie gelden.
-Alles staat hier op groen licht.
-Een tien voor de uitvoering.
-Ik hou van groen over de hele linie.
-We kunnen ook andere mensen gebruiken.
-De k oersen zetten door...
-Ik wil geconfisqueerde goederen gebruiken.
-Het loopt door het dashboard heen.
-We barstten van de alarmen.
-Het is een simpele strategie, makkelijk kan het niet.
-Tegelijkertijd zullen wij verbeteringen trachten aan te brengen.
-Niemand heeft iets waar we wat mee kunnen, over de gehele linie.
-Alles testen. - Laat Mr.
-Er is grote vooruitgang over de hele breedte.
-Ik meet niets.
-Hun aanvalslinie weegt gemiddeld 130 kilo.
-Dan moeten we nog zo een 5 % gaan.
-Ook het openbaar bestuur moet over de hele lijn worden versterkt.
-Ik moet overal 5 procent bezuinigen.
-Volledige immuniteit voor elke vervolging.
-Iemand moet dezelfde scan over de hele linie vervangen hebben.
-Maar bij Jessica, is het allemaal laag.
-Alle misdaadcijfers zijn gedaald.
-Dus dan regel ik het, alles super-de-luxe.
-Nedfilter B.V. Specialisten over de volle breedte Verbetering van de lucht- en vloeistofkwaliteit.
-Dat zou je wel denken, he? Een breuk zie je normaal over de gehele linie.
-Maar toen Jessie me vertelde dat er meer mannen dan vrouwen waren 10 op 1,
-Over de hele linie moet worden geïnvesteerd in kennis.
-De administratieve capaciteit moet over de gehele linie worden versterkt.
-Vrijstellingen moeten, met welk percentage ook, over de hele linie worden gewijzigd.
-Neem met iedere agent contact op en verhoog de alarmfase.
-Naval realiseert zich dat hij allesfout heeft gedaan.
-Teddy K gaat in het bedrijf snoeien.
-En, geloof me, koperen leidingen zijn beter dan gegalvaniseerde.
-De Amerikaanse beleidsmakers beginnen nu de effecten op hun economie en het internationale monetaire bestel te bekijken.
-Full-color digitaal printen heeft over de hele linie de aandacht getrokken.
-De euro moet op alle onderwijsgebieden tot de leerstof gaan behoren.
-Vijftien procent belastingverlaging.
-Frédérick zal hem afstoffen. en zijn schaduw over het voetlicht brengen.
-Dit zou onze aanpak over het algemeen moeten zijn.
-Chuzzle - Sleep je schattige vriendjes over het bord op Zylom!
-Voor de zekerheid ben ik verder gaan zoeken.
-In deze crisissituatie zullen de ont­wikkelingen die het gevolg zijn van de „digitale revolutie", bepaalde trends van de audiovisuele markt die nu al zichtbaar zijn, versterken;
-Deze daling vond evenwel niet gelijkmatig over de gehele linie plaats.
-Dat is op zich niet slecht, maar men moet dit overal toepassen.
-Het werkt bovendien sneller dankzij vlottere response over de hele linie.
-Ik heb het over de veralgemening van de stemming bij meerderheid.
-Overheidsorganisaties, de douane, niemand kan jullie helpen.
-De premie zal net als voorheen 480 euro per ha bedragen.
-Wij hebben hier te maken met situaties over de gehele linie waarvan zowel vrouwen als mannen het slachtoffer zijn.
-De voorstellen zijn bedoeld voor alle sectoren behalve staal,
-De economische en handelsdialoog op hoog niveau is een gelegenheid om alle relevante kwesties te bespreken.
-Voorbij de twee grote clubs, is Valencia een voetbalstad op alle niveaus.
-Het gevolg daarvan is dat de kwaliteit van de verstrekte kennis snel afneemt.
-Een vergelijking met een derdenbelang komt alleszins niet in aanmerking.
-Over de hele linie hadden de betrokkenen moeite om belangrijke onderdelen van de richtlijnen te begrijpen11.
-Waarom durft de Europese Unie hier eens geen 3'7c-norm vooruitschuiven?
-Je wordt ooit een geweldige agent, zegt hij.
-De regels van de interne markt moeten overal naar behoren worden omgezet en uitgevoerd3;
-Over de hele linie hadden de betrokkenen moeite om belangrijke onderdelen van de richtlijnen te begrijpen10.
-Over de hele linie hadden de betrokkenen moeite om belangrijke onderdelen van de richtlijnen te begrijpen12.
-Maar sinds ik het hier voor het zeggen heb, is de misdaad in het algemeen gedaald.
-Wordt die nu echt in alle aspecten gecoördineerd met de Europese Unie?
-De Raad heeft voorgesteld om over de hele linie, voor alle instellingen, besparingen door te voeren van twee procent.
-Hun verhalen zijn precies hetzelfde, over de hele linie - "Hoogtepunt van de menselijke prestatie."
-Volgens het bord zijn we uit de lucht.
-Momenteel hanteert de Rekenkamer over de hele linie een uniforme materialiteitsdrempel van 2 procent.
-De voordelen van die uitbreiding zullen echter niet gelijkelijk over alle partijen zijn verdeeld.
-Echt slechte songs zijn er niet terug te vinden edoch over de gehele lijn klinkt het album wat oppervlakkig.
-Dit hangt namelijk niet alleen van ons af. Er moet over de hele linie overeenstemming zijn en daar werken we aan.
-Hij is een ramp op het bord, maar hij komt er wel doorheen.
-De krant heeft een liberale traditie, is uiterst nauwkeurig en is zeer goed geïnformeerd.
-Een stijging van de kosten door een verhoging van de accijns op minerale oliën heeft bijgevolg op tal van punten gevolgen voor de prijzen.
-Ze proberen één dart in elk nummer te raken om over het bord te gaan.
-U bent gestegen in de peilingen en de donaties zijn verdrievoudigd.
-Toepassingsgebieden TNO zet in op verlenging van de veilige levensduur van infrastructuur in de breedte.
-Respondenten in 'food & beverage' vinden hun vaardigheden over de hele lijn het laagst ontwikkeld.
-Ik begrijp dat op de markt zo'n 600 miljoen dollar per dag omgaat.
-Een te hoge totale fluorinname kan daarentegen schadelijke gevolgen hebben voor de volksgezondheid.
-dat de uitgaven met 3% terug moeten.
-De Raad heeft zijn eerste lezing voornamelijk gebruikt om het mes te zetten in de op de begroting opgenomen bedragen voor betalingskredieten, en wel kris kras door de begroting heen.
-Naarmate de liberalisering van de vervoermarkten voortschrijdt neemt de commerciële druk op de marktdeelnemers over de gehele linie toe.
-Met de Award wil Ammodo het ongebonden wetenschappelijk onderzoek in Nederland over de volle breedte versterken.
-In de voorstellen van de Commissie komt bij alle landbouwproducten het woord „daling" voor.
-Sommige delegaties vinden dat de quota in alle lidstaten moeten worden verhoogd.
-Er werd een email gestuurd naar ons D.O. kantoor... en het werd aan verschillende personen gestuurd.
-VOORZITTER: DE HEER TELKAMPER Ondervoorzitter
-De heer Boual merkt op dat de EU op al haar beleidsterreinen moeilijkheden ondervindt om vooruitgang te boeken.
-Het is waar dat vele landbouwers het momenteel heel moeilijk hebben, maar on danks de afnemende winstcijfers hebben de grote, rijke landbouwers de armoedegrens bepaald nog niet bereikt.
-We moeten ook weten hoe de algemene situatie in de lidstaten is.
-Ik wacht nog op enkele uitslagen, maar wat we nu hebben... normale waardes over de hele linie.
-Dat bereiken we niet met de kaasschaafmethode: er is een allesomvattend belastingsysteem voor energie nodig.
-De Commissie had als oplossing een algemene verlaging van de drempels voorgesteld maar de Raad heeft dit niet aanvaard.
-Hij vertoont geen ruis, welk beeld ik hem ook voorschotelde.
-De hoge brandstofprijzen berokkenen schade aan alle sectoren, waaronder de landbouw, het transport en de industrie.
-Het beginsel, dat tot dusverre alleen voor de goederenmarkt gold, zal nu ook in al zijn onderdelen worden toegepast op de dienstenmarkt.
-Dat is precies wat wij voor ogen hebben, en om dit te bereiken zullen wij niet alleen de dialoog, maar ook onze samenwerkingsinspanningen over de gehele linie opvoeren.
-- Dat is waar. En als je dat onderdrukt, heeft dat de neiging de rest ook te onderdrukken.
-Vol gens de Commissie moeten de desbetreffende maatregelen evenwel horizontaal worden genomen en mogen ze niet uitsluitend voor bananen gelden.
-Ook moet rekening worden gehouden met overwegingen betreffende de totale doeltreffendheid van de mechanismen voor de promotie van de Europese programma's en voor technische beperkingen: op PPV en near-video-on-demand kan in principe een promotiemechanisme worden toegepast dat gebaseerd is op de uitzendtijd (tegenover de hoeveelheid tijd die werkelijk wordt verbruikt), maar voor VOD is een andere aanpak no dig (").
-Wanneer u de racer verslaan, vervangt u de rangschikking van hiCubefieldCubefieldSchuif over de hele linie terwijl het vermijden van kubussen.
-Wat ik gezegd heb geldt niet alleen voor het energiebeleid, maar voor alle beleidsvormen.
-De consensus is dat een goed geregelde financiering van cruciaal belang is om de onpartijdigheid en onafhankelijkheid van het systeem te waarborgen.
-In december 2006 zal het aantredende voorzitterschap aan de Europese Raad een algemeen voortgangsverslag uitbrengen.
-Daar lanceerde men het bijzonder interessante offensief en initiatief om iedereen in de deelstaat de mogelijkheid te verschaffen om toegang tot het net te krijgen.
-HYPERSNEL Intel Haswell Core i processoren bevatten HyperThreading™, waarmee op ieder vlak significant betere prestaties worden behaald.
-Meer in het algemeen moeten de prestaties van de onderwijssector, met inbegrip van het beroepsonderwijs en het tertiair onderwijs, over de hele linie verbeteren.
-Behalve op het gebied van financiële en andere diensten, media en cultuur is de steun over de hele linie afgenomen.
-Wanneer men de bloeiende campagne tegen „de vesting Europa" in de Verenigde Staten of in Japan gadeslaat, lijkt dit wel zo.
-Maar dit principe mag nooit leiden tot een discriminatie van de eigen burgers.
-Dit zijn de lidstaten die over de hele linie negatieve ontwikkelingen hebben meegemaakt vanuit reeds moeilijke uitgangspunten.
-Enkele diensten die op de Enforex-scholen in Spanje aangeboden worden, zijn:
-We moeten derhalve alle zeilen bijzetten en alle registers opentrekken.
-Het moge duidelijk zijn dat deze problemen een algemene invoering van vrije toegang tot onderzoeksgegevens belemmeren.
-Er dienen over de hele linie maatregelen te worden genomen om het aantal vrouwen dat werkzaam is in de informatie- en telecommunicatie-industrieën uit te breiden.
-Zij treft voorbereidingen om milieumisdrijven zonder enig onderscheid uit de strafwet te halen, en dit alles zonder zich te storen aan de communautaire kaderwetgeving.
-We zijn het er allemaal over eens, denk ik, dat de batterijkooi moet verdwijnen.
-We zijn getuige van een algeheel, door de staat gefinancierd verbodsbeleid, dat ontworpen is om mensen te trainen hun gedrag te veranderen.
-Het tweede niveau is dat van ICT als een facilitator op alle terreinen en in alle sectoren met economische activiteit.
-In het bijzonder, moet met die specifieke kenmerken rekening worden gehouden in het kader van algemeen toepasbare mechanismen of moeten er specifieke mechanismen worden ontwikkeld?
-Het is moeilijk, deze kosten over de hele linie terug te dringen.
-Star Trek V heeft fouten qua script en regie... maar aan Star Trek I is alles slecht.
-Meneer, het verhuizen van de inwoners van Lennox Gardens is van invloed op uw steun uit de gehele Afro-Amerikaanse gemeenschap.
-Maar u moet zich ook proberen te realiseren dat iedere verandering voor alles en iedereen zou moeten gelden.
-De ontwerpgrondwet wil de invloed van de kleine landen in de Gemeenschap grondig beperken.
-== Kwaliteit van onderwijs ==Volgens de Onderwijsinspectie is het over de hele linie een zeer goede school.
-Voorts blijft Afghanistan een zeer belangrijk onderwerp in de dialoog met onze strategische partners.
-Wanneer meer dan één LCD-scherm wordt gebruikt, kunnen ze worden gesynchroniseerd zodat de zichtbaarheidsaanpassingen overal worden toegepast.
-Schuldenkwijtschelding waar jullie mogelijk van hebben gehoord zal op individuele basis worden toegepast, niet allesomvattend.
-De gelijkheid van kansen is een horizontale prioriteit in al­le actieprogramma's op het gebied van on­derwijs, opleiding en jeugdzaken.
-De voorgestelde uitschakeling van een groot deel van de tussenhandel is volgens mij niet alleen illusoir maar zou ook schadelijk zijn.
-BSD-systemen, in het bijzonder FreeBSD, kunnen merkbaar beter presteren dan Linux. Maar dit geldt niet voor alles.
-Hiervoor is nodig dat het handels-, het schulden- en het hulpbeleid van zowel de EU als de VS over de gehele linie, met name voor Afrika worden verbeterd.
-De communautaire voorschriften kunnen niet overal op een rechtlijnige, theoretische manier worden toegepast, alsof de Europese Unie één groot, uniform geheel was.
-Het wordt gedaan in sommige winkels. En het moet over de hele lijn gedaan worden in Amerika, binnenkort, en snel.
-In de ogen van het EESC is de EU-strategie voor duurzame ontwikkeling alleen uitvoerbaar als dergelijke maatregelen over de hele linie ten uitvoer worden gelegd.
-Al deze componenten zijn typisch voor een Bigfoot waarneming en altijd nogal summier.
-Dat zal anders zijn wanneer het nieuwe grondwettelijke verdrag in werking treedt, dan zal BGM gelden op alle terreinen.
-De strategie voorziet in een multidisciplinaire aanpak en vergt de ontwikkeling van specifieke corruptiebestrijdingsstrategieën voor elke sector en instelling.
-Deze situatie leidt bovendien tot onzekerheid en mogelijk tot een, over het geheel genomen, inconsequente toepassing van de Gemeenschapsregels.
-Turkije is ook redelijk voorbereid op het gebied van statistiek waar nog aanzienlijke inspanningen over de hele lijn noodzakelijk zijn.
-Wat de melk betreft zijn wij tegen de voorstellen van de Commissie en het Parlement, meer bepaald tegen de verlenging van de melkquota's met vijf jaar.
-Men is unaniem van mening dat van ontwikkeling pas sprake kan zijn als er algemene voorwaarden voor vrede en veiligheid worden gecreëerd.
-De nauwe samenwerking die er binnen de Hughes-procedure tussen alle betrokkenen bij artikel 13 was, heb ik als zeer constructief ervaren.
-■ De eigenaar/manager beschikt over be­perkte middelen voor onderzoek van de bredere zakelijke context, en zal hieraan dan ook vaak onvoldoende aandacht schen­ken
-Het breed inzetten van het cohesiebeleid is de enige manier om het welslagen van de Europa 2020-strategie te garanderen.
-Daarom is de nieuwe niet noodzakelijkerwijs oud, moet op zoek naar porselein worden dialectische oogpunt, niet over de hele linie.
-De verlagingen zijn nogal rechtlijnig, zonder dat wezenlijk isgediscussieerd over de toekomstige inhoud van deze uitgavencategorieën.In dit geval zijn niet de maxima van 1999 als uitgangspunt genomen, maarde (lagere) bedragen die in de begroting van 1999 waren opgenomen.
-IJkpunten voor de afsluiting van de hoofdstukken die pas worden pas worden vastgesteld wanneer over de gehele linie aanzienlijke vooruitgang is geboekt, inclusief gedegen resultaten met uitvoering in de praktijk.
-Over de hele linie is het aantal kinderen in de groentezaadsector volgens het onderzoek A Tale of Two companies circa een kwart gedaald.
-Natuurlijk zorgt adidas dat de kwaliteit van al zijn producten hoog is, en de skate division is daar geen uitzondering op.
-Deze logica is op ook toe te passen op andere infectieziekten en dat zou ook moeten.
-Steun voor meer intensieve inspraak in de toekomst vindt over de gehele linie plaats, en is vooral duidelijk aanwezig in Frankrijk, Griekenland, Ierland en Nederland.
-Met de uitbreiding moeten we uiterst zorgvuldig afwegen of we ons geld wel op de beste manier besteden, en dat geldt over de hele linie.
-Sommige indicatoren zullen steeds gelden voor alle risicoge­bieden, terwijl andere zeer specifiek zijn en alleen op een bepaald gebied van toepassing zijn.
-Daarna kunt u ook leren om vrij over het board te kunnen bewegen en uw darts daar te krijgen waar u ze hebben wilt.
-Oké, Lisa, ik ga voluit voor Woeste D... samen met de drie en de acht, alles of niks.
-Deze verlaging heeft op horizontale wijze betrekking op de structurele maatregelen, met uitzondering van de doelstellingen 1 en 6 en van het Cohesiefonds.
-Ik vind het verkeerd dat men meer steun wil verlenen aan kleine en middelgrote onder nemingen in ontwikkelingslanden.
-Wij kunnen maar niet begrijpen waarom u drastische lineaire verminderingen wilt doorvoeren.
-De release van Windows 10 was niet anders in dit opzicht met Microsoft veelbelovende gebruik van de batterij verbeteringen over de hele linie.
-Is de Raad voorts ook van oordeel dat voorstellen voor een algehele inkrimping van de vloot niet voor deze regio's zouden moeten gelden?
-Na een lange beraadslaging hebben we besloten dat ons laatste bod op zevenenhalf procent ligt.
-Er waren algemene meldingen van oudgedienden die weigerden hun per soonlijke trots in het geven van een goede dienstverlening te verloochenen .
-Daartoe wordt de elektronische overdracht van gegevens die nodig zijn om de meldings­formaliteiten te vervullen, veralgemeend.
-Het gaat hier in feite om een tweeledige complementaire aanpak: horizontale maatregelen over de hele linie en gerichte specifieke maatregelen waar nodig.
-4.3.4 Het EESC heeft echter ernstige bedenkingen bij de mogelijkheid om de toewijzing van middelen overal aan de resultaten te koppelen.
-We nemen een hoofdelijk systeem, maar de vergoeding moet 12 procent hoger.
-De verordening vormt een aanvulling op de handhaving van de antitrustregels en stelt maxima vast voor interbancaire vergoedingen, waardoor over de gehele linie wordt voorkomen dat dergelijke vergoedingen de pan uit rijzen.
-Uitstekend over de hele linie, de eigenaar is een ernstige dame, en het appartement is schoon, naast wordt goed gelegen.
-We zullen op geen enkel punt toegeven wanneer het democratische grondrecht van het Parlement, namelijk het vaststellen van de begroting, wordt ondermijnd.
-Thans is het zaak dat deze minimale harmonisatie via een doortastend beleid uitgroeit tot een alomvattende en volledige harmonisatie waar iedereen zich in kan vinden.
-Ik ben verheugd dat het Parlement de Commissie daarin over het geheel genomen – zij het niet met algemene stemmen – steunt.
-Als wij dat over de hele linie gaan invoeren, vrees ik dat wij hier van een mooie droom in een nachtmerrie zullen belanden.
-Het is een toekomstgericht investeringsbeleid waarvan ook de rest van Europa voordeel heeft, omdat het over de hele lijn voor groei en werkgelegenheid zorgt .
-Een en ander is erop gericht algemene verspreiding te geven aan thans gangbaar geworden praktijken op basis van internationaal erkende meet- en evaluatie-instrumenten.
-Een van de problemen met differentiatie is dat het niet van alle be trokkenen een gelijk offer zal vragen.
-Er zijn geen aanwijzingen dat de Koreaanse scheepsbouwers erin zijn geslaagd om de prijsniveaus over de hele linie te verhogen, zoals herhaaldelijk door Koreaanse bronnen is verkondigd.
-DE BEGUNSTIGDEN
-De liberale fractie wil de toegang van de burger tot de rechter vergemakkelijken, de drempel als het ware verlagen.
-Ze bezuinigen over de hele lijn, en het leger zal nu zeker geen geld uitgeven aan freelance fitness trainers.
-In de eerste plaats wil zij voor de Europese producten de toe­gang tot de markten van derde landen verruimen, onder meer door de juridische bescherming van kwaliteitsproducten te ver­beteren.
-We hoorden net van een ander vliegtuig dat er zwarte rook uit uw linker motor komt.
-In Denemarken liggen de werkgelegenheids- en onderwijspercentages voor immigranten over de hele linie lager, vooral voor de eerste generatie en vrouwelijke immigranten.
-Wij willen dat er een speciaal fonds wordt opgericht om een flexibeler instrument in handen te hebben dat we breder kunnen inzetten.
-Een tekortkoming van deze verordeningen is dat zij lineair zijn, gelijk voor het geheel van een zeer gevarieerde werkelijkheid.
-rapporteur voor advies van de Commissie cultuur en onderwijs. - (DE) Mevrouw de Voorzitter, commissaris, dames en heren, politieke initiatieven voor meer snelle internetverbindingen in heel Europa zijn in principe een goede zaak.
-We moedigen de Commissie natuurlijk aan dit recht te zetten, want we moeten tenslotte overal dezelfde procedures toepassen.
-Deze aanbevelingen van de Commissie bieden een horizontale analyse van de belangrijkste vraagstukken in verband met de ontwikkeling en integratie van de ultraperifere regio's.
-Daarom blijft wettelijke verankering van het gelijke behandelingsprincipe over de gehele linie noodzakelijk.
-Hebben Arthur en Joan je hulp gevraagd, of bood je jezelf aan om je schoon te praten?
-Daarom moet de rol, de noodzaak van de publieke omroep opnieuw worden onderstreept, terwijl tegelijkertijd alle maatregelen moeten worden genomen om ervoor te zorgen dat deze rol kan worden vervuld.
-Dat geldt horizontaal, maar ook sectoraal en met name is dit van toepassing op de zeevaartsector.
-Het doel is de algemene sociale vooruitgang en de rechtvaardige verdeling ervan voor iedereen.
-We hebben al verschillende proefprojecten op scholen gehad, maar dat is niet voldoende; deze proefprojecten moeten overal worden toegepast.
-"Het EESC kan zich vinden in het uitgangspunt van de Commissie om het oorsprongsbeginsel toe te passen met uitzondering van de in de ontwerprichtlijn genoemde situaties.
-Het is ontzettend jammer dat juist nu ook de criteria van Kopenhagen, die voor elke kandidaat-lidstaat gelden, daar in gevaar zijn.
-De diverse Europese beleidsterreinen en de daarbij behorende investeringen moeten er in de eerste plaats op gericht zijn om het vermogen van de Europese economieën om in onderzoek te investeren over de hele linie te verbeteren.
-Het EESC benadrukt dat algemene steun voor het wetenschappelijk en technisch onderzoek een belangrijke voorwaarde is voor het vinden van de benodigde personele middelen.
-We hebben te maken met algemeen aanvaarde doelstellingen op het gebied van de volksgezondheid: we streven naar een betere gezondheid – en daarin spelen geneesmiddelen een rol.
-Overeenkomstig artikel XIX van de GATT worden kwantitatieve beperkingen gewoonlijk zonder onderscheid toegepast op alle landen die het betrokken produkt uitvoeren.
-Op nationaal niveau moet over de hele linie voedsel ter beschikking worden gesteld, zodat scholen maaltijden kunnen aanbieden (ook tijdens schoolvakanties).
-D Verordening (EEG) nr. 3508/92 - De financiële prikkel van artikel 10 van deze verordening voor driejaar met ingang van 1992 heeft de belangstelling van de Lid-Staten gewekt: het gebruik van de communautaire kredieten is zeer hoog (96 %).
-Daarnaast dient er massaal te worden geïnvesteerd in opleidingen, om de competentie van de Europese werknemers over de hele breedte te verhogen.
-Het maken van dergelijke epigenetische kankerprofielen, gekoppeld aan onze kennis over riskante mutaties, moet leiden tot een meer persoonsgerichte behandeling van alle vormen van kanker.
-Voor een dergelijke uitwisseling zijn echter algehele kwaliteits- en veiligheidsnormen vereist, zoals beschreven in de huidige richtlijn van het Parlement en de Raad.
-De "nieuwe economie" echter zal haar voordelen niet prijsgeven indien wij de lang uitgestelde hervormingen niet over de gehele linie doorvoeren.
-De aanpak van dit belangrijke probleem voor de volksgezondheid vergt beleidsintegratie op alle terreinen, van voeding en consumenten tot sport, onderwijs en vervoer.
-Ik denk dat Europa de burger kan helpen over de hele linie veel meer waar voor z'n geld te krijgen. Of het nu gaat om hypotheken, verzekeringen, betaalkaarten, bankrekeningen of andere financiële diensten.
-Wat het prijzenpakket betreft, ben ik bang dat ik de amendementen waarin de rapporteur pleit voor een algemene prijsstijging niet kan accepteren.
-In elk toepassingsgebied vereisen de hoge eisen een partner die spannende, innovatieve oplossingen en overtuigende kwaliteit, design en functionaliteit biedt – en dat over de gehele linie.
-Het beginsel "think small first" wordt op al deze richtlijnen toegepast om het systeem op de behoeften van kmo's toe te snijden.
-De Unie krijgt daarmee voor haar interne markt een flexibel, op horizontale wijze toe te passen steunmechanisme.
-De derde topbijeenkomst EU-China op 23 oktober 2000 was een succes en heeft bevestigd dat beide partijen belang hebben bij het nauwer aanhalen van de banden in het algemeen.
-Het beginsel “think small first” wordt op al deze richtlijnen toegepast om het systeem op de behoeften van kmo's toe te snijden25.
-Met betrekking tot het vermogen te voldoen aan de verplichtingen van het lidmaatschap is Servië zijn wetgeving in grote mate blijven afstemmen op de Europese wet- en regelgeving.
-Als wij iets vaststellen voor de grote instellingen, dan moet de onafhankelijkheid die het Comité van Wijzen naar voren bracht over de hele linie gelden.
-Ik ben het met de vorige spreker en anderen eens die in deze zin gesproken hebben, met name inzake het beleid om de quota's aan het land te koppelen.
-In het kader van het TTIP vallen de meeste kmo's onder specifieke hoofdstukken die zonder onderscheid van toepassing zijn op alle ondernemingen.
-Wij hebben op elk vlak volledige transparantie nodig zodat het belastinggeld van de Europese burgers dat aan EU-beleid wordt uitgegeven, volledig traceerbaar is. De betreffende gegevens dienen ook op internet te worden gepubliceerd.
-Het Parlement is het volledig eens met de uitbreiding van de bevoegdheden voor
-Als niemand ons wil sponsoren, wordt het onmogelijk om te concurreren, wat we ook doen.
-Daarom is het doek bestaat uit 100% wol, en er is vloerverwarming in de tabel om de ballen zo veel over de hele linie te rollen.
-Aangezien echter algemeen wordt erkend dat de procedures over de hele linie moeten worden vereenvoudigd en geharmoniseerd, hopen wij dat deze overgangsregeling maar kort zal gelden.
-Overigens vormt de belasting op energie een hoofdstuk apart, dat momenteel onderwerp is van discussie.
-In termen van het potentiële effect op de voedselindustrie zou de toepassing van de verplichte voedingswaarde-etikettering in de gehele industrie een groter effect sorteren als zij onmiddellijk werd toegepast.
-Zolang in de gehele vervoersketen nog geen beveiligingscultuur is ingevoerd, is het niet realistisch van de bemanning te verwachten dat zij hun schepen tegen geavanceerde terroristische dreigingen beschermen.
-Het probleem is echter dat het onmogelijk is eenzelfde minimumleeftijd voor iedereen op te geven, gezien de uiteenlopende regelingen die de lidstaten erop nahouden op het vlak van pensioengerechtigde leeftijd.
-Het is dan ook dienstig in de mogelijkheid te voorzien om horizontaal in het kader van deze richtlijn maximumgehalten voor ongewenste stoffen en producten in toevoegingsmiddelen vast te stellen.
-Ik zie uit naar uw vragen en opmerkingen, en zal mijn uiterste best doen om daarop in te gaan.
-Het is ingewikkeld omdat het niet zeker is dat de regels die worden aangenomen in zo'n gevoelige fase voor alle sectoren tegelijk op dezelfde wijze gelden.
-Mijnheer de Voorzitter, met de onderhavige wijziging wil men een volledige liberalisatie van de markt bewerkstelligen, ook in de distributiesector, tot aan zelfs de allerlaatste gebruiker toe.
-Met dit beleid moeten niet alleen conflicten zelf, maar ook de oorzaken ervan aangepakt worden, en verder moet samenwerking op alle niveaus gestimuleerd worden.
-Als gewasbeschermingsmiddelen echter een strenge toelatingsprocedure hebben doorlopen, is het onlogisch op het gebruik daarvan een algemeen reductiepercentage toe te passen.
-Ziekte aan de andere kant van het bord zal niet gaan verdwijnen totdat de bevolking voldoende licht heeft geabsorbeerd om te geloven dat ze ziekte-vrij kan zijn – geloof schept werkelijkheid.
-In het algemeen beschouwd wijzen de bevindingen van het scorebord op aanhoudende sociaal-economische verschillen, die echter niet even sterk als vorig jaar groeien.
-v) het nemen van horizontale maatregelen om de dynamiek in stand te houden voor alle pijlers van het partnerschap voor werkgelegenheid en groei (…).
-In de Republikeinse traditie werden ook in de breedte pogingen ondernomen om het staatsapparaat te rationaliseren, en wel zo dat de staat in zekere zin "vormgever van de sociale structuur" werd, om Pierre Rosenvallon te citeren.
-Het is te vroeg om de inhoud nu al bekend te maken, maar ik kan wel zeggen dat we analysen, feiten en verklaringen van over de hele breedte aan het verzamelen zijn.
-De zaken, zoals jullie weten, gaan heel moeilijk bij Arctic Air op het moment. Dus hebben we besloten om uren te minderen over de gehele linie.
-Hierbij zou het dus gaan om een ver bintenis van de Unie om voor betere coördinatie te zorgen.
-Het is niet de bedoeling om de functionele economie over de hele lijn door te drukken, maar om ze te ondersteunen waar zij antwoorden biedt op de genoemde nieuwe uitdagingen.
-Als dat in de slachthuizen gebeurt, heeft dat gevolgen voor de opslag en het vervoer van karkassen. Als het bij de slager of in de supermarkt gebeurt, kunnen er problemen met de verwerking van de botten.
-Wij zeggen nee tegen dit Europa van de schaamte dat van de Oeral tot de Atlantische oceaan gaat!
-Op middellange termijn zal het tekort aan arbeidskrachten worden versterkt en kan het zowel voor hoog als laag gekwalificeerde banen bepaalde grenzen overschrijden.
-Over het geheel genomen kan dezeverhoogde investeringsinspanning in netwerken en kennis niet te verwaarlozen voordelenopleveren als het gaat om een groei van de productiviteit en nieuwe werkgelegenheidin de Unie.
-Mijnheer Van Velzen, in dit opzicht denk ik niet dat het door u gegeven voorbeeld van Nederland kan worden veralgemeend tot heel Europa.
-Herman (PPE). - (FR) Mevrouw de Voorzitter, waarde collega's, de aanbevelingen van de Commissie lijken evenwichtig en bescheiden.
-In Wales, mijn eigen land, en in feite in het gehele Verenigd Koninkrijk vormt het bevorderen van taalverwerving over de hele linie een probleem.
-Wat rubriek 4, externe maatregelen, betreft kan ik u verzekeren dat de Raad in grote lijnen de door de Commissie voorgestelde kredieten heeft overgenomen.
-Het moet, gezien het maatschappelijk belang van deze ziekte, op Europees niveau worden ondersteund en gecoördineerd, om het recht te waarborgen dat overal gebruik kan worden gemaakt van dezelfde therapeutische faciliteiten en om aldus over de hele linie goede resultaten te boeken.
-Nog een factor die de concurrentiekracht beïnvloedt, is de mogelijkheiddat het Kyoto Protocol biedt om deaanplanting van bomen en het bos-
-Waar ik niet van houd en nooit van gehouden heb, is de manier waarop de Raad de Europese begroting aanpakt. Ieder voorstel van Commissie of Parlement met de botte bijl wegsnoeien is geen begrotingstechniek maar een echt voorbeeld van een financiële slachtpartij.
-Dus, als je om je heen kijkt, de... ideeën die doorwerken in psychologie en... sociologie en geschiedenis... en politieke wetenschap... reflecteren fundamenteel bepaalde elite interesses.
-• Zijn er voorbeelden van goede praktijken in specifieke visserijtakken, die op bredere schaal moeten worden gestimuleerd?
-Dit laatste, horizontale deel van de aanbeveling omvat een reeks begeleidende administratieve maatregelen die bedoeld zijn om de toepassing van de aanbeveling en uiteindelijk van de richtlijn te vergemakkelijken.
-Het spel van Footy Darts Aussie Dart Rule Elk team heeft vier "downs" om te proberen de bal over het bord en in het doel van de tegenstander te verplaatsen.
-Belangrijk is dan ook dat de gehele 800 Mhz-bandbreedte beschikbaar komt voor elektronische communicatie. Die bandbreedte is vrijgekomen nu de verschillende lidstaten zijn overgestapt op digitale televisie.
-Deze daling betrof zowel de toewijzingen voor het midden­ en kleinbedrijf, als die voor infrastructuur­projecten of voor energieprojecten.
-6.2 Het EESC benadrukt dat een aantal van die opties al van toepassing is in lidstaten en dat het goed zou zijn om daar overal toe over te gaan.
-Er zij ook gewezen op de invoering van een eerste hoofdstuk met "horizontale bepalingen" die gelden voor alle beleidsonderdelen.
-Een Duits tijdschrift vergeleek de Duitstalige Wikipedia, die veel keren kleiner is dan de Engelstalige, met Microsoft Encarta en met Brockhaus Multimedia. We wonnen met een straatlengte voorsprong.
-De vorming van een nieuwe categorie van gedelegeerde Europese verordeningen, waarbij de wetgevingsbevoegdheid (Europees Parlement en Raad) wordt overgedragen aan de Commissie, kan het optreden van de Unie e/ciñnter maken, want de wetgever kan zo bevrijd worden van technische details die door de executieve sneller en adequater behandeld kunnen worden.
-Daarbij tekent het Comité aan dat het streven naar een volledige en gelijkmatige heffing van de BTW in sommige staten nog aanzienlijke verbetering behoeft.
-Zouden er tussentijds toch kortingen nodig zijn, dan dienen deze selectief voor bepaalde, nieuw in te schatten begrotingsposten te geschieden en niet lineair.
-Over de hele linie zouden die nu en in de toekomst vertaald moeten worden in communautaire wetgeving die alle facetten van de goederenhandel bestrijkt, met name de aspecten veiligheid, volksgezondheid en milieu.
-Het is erg belangrijk dat deze clausule wordt verwijderd, zodat de resolutie een grote meerderheid van het Parlement achter zich krijgt.
-Werkgevers in deze sectoren, waarin de concurrentie vaak zeer groot is, zijn uit op winst en op het verlagen van de totale kosten.
-Het maken van dergelijke epigenetische kankerprofielen, gekoppeld aan onze kennis over riskante mutaties, moet leiden tot een meer persoonsgerichte behandeling van alle vormen van kanker. by Tom Davis
-Naar mijn mening is het overal toepassen van een 50/50-balans tussen mannen en vrouwen geen bewijs dat we echt bezig zijn met gelijke behandeling.
-Over de hele linie zouden die nu en in de toekomst vertaald moeten worden in communautaire wetgeving die alle facetten van de goederenhandel bestrijkt, met name de aspecten veiligheid, volksgezondheid en milieu.
-Natuurlijk moeten we verantwoordelijk omspringen met onze financiën en prioriteiten stellen, maar dat bereik je niet met een algehele bezuiniging, zonder onderscheid, van 10%.
-In mijn deel van de gemeenschappelijk resolutie suggereer ik dat we hier in de Gemeenschap aan de wal en op onze kades het nodige materieel achter de hand moeten hebben voor het geval zich langs onze kust onverhoopt een dergelijk ongeluk zou voordoen.
-Volgens de GOC is de sanctie algemeen van toepassing in alle geografische gebieden waar alle producenten-exporteurs gevestigd zijn en derhalve is er geen sprake van regionale specificiteit.
-De Commissie stelt voor om, mocht een dergelijke situatie zich voordoen, de overgedragen hoeveelheid af te trekken aan de hand van een algemene evenredige quotavermindering.
-Deze laatste trend zal de kern vormen van hetgeen men de nieuwe plattelandsontwikkeling noemt, waarbij landbouwkundige diversificaties, ontwikkeling van kleine ondernemingen, diensten sector, plattelandstoerisme en opleidingsmogelijkheden in de hand worden gewerkt.
-Men zou het afzonderlijk opsluiten van zeugen en het aanbinden van de dieren niet, zoals de Com missie voorstelt, in de tijd mogen beperken, maar volledig moeten verbieden.
-Ik vind het uiterst belangrijk dat het belang van kinderen over de hele linie hoge prioriteit krijgt, zowel in het Europees Parlement als in de hele Europese Unie.
-Ook wordt onze democratische legitimering groter dankzij het feit dat de medebeslissingsprocedure in bijna alle gevallen van toepassing zal zijn, hetgeen voor het Parlement zeer belangrijk is.
-Een andere kwestie die om meer duidelijkheid vraagt, is hoe men de ambitieuze doelstelling denkt te realiseren van meer investeringen in de Europese Unie.
-Terwijl NCIS de brand onderzoekt, moeten we onze intelligentie versterken en delen over de hele linie. Om de personen, terroristische groepering of natie achter de aanslagen te identificeren.
-Verdere ondersteuning over de hele linie van het Chinese hervormingsproces door middel van dialoog en samenwerking, waarbij optimaal geprofiteerd wordt van ervaringen met vergelijkbare overgangsprocessen in de landen die zullen toetreden tot de EU.
-Weet je wel, gewoon buiten de standaard, alles wat te maken heeft met het oude paradigma dat wordt overgezet naar een nieuw paradigma, zoals dingen die te maken hebben met vrije energie...
-De keuze lijkt derhalve te liggen tussen een gericht systeem dat ontdoken kan worden of een omvattend systeem dat aanzienlijke extra kosten en ongerief over de gehele linie met zich meebrengt.
-Met betrekking tot de innovatieve industrie heeft de Commissie voorgesteld de periode voor gegevensbescherming overal vast te stellen op tien jaar. Zij beschouwt dit als essentieel voor een soepeler werking van de interne markt.
-In dit onderdeel worden de transversale voorstellen van de externe evaluatieverslagen behandeld om een discussie daarover mogelijk te maken.
-Heeft een alleen in schijn egalitaire parameter nog zin, waarbij gelijke maatregelen worden genomen voor personen en in contexten die alleen voor de statistiek gelijk zijn?
-Het Belgische budgettaire beleid brokkelt zienderogen af. Marc De Vos en Brieuc Van Damme wijzen erop dat ons gezondheidszorgbeleid de laatste jaren vooral werd gedomineerd door budgettaire bekommernissen.
-Het niveau van de intensieve vormen van inspraak ligt over de gehele linie veel lager en in sommige landen is deze vorm van inspraak zelfs volkomen afwezig.
-Wij zijn dat ver plicht aan de Europese belastingbetalers. Dat geldt voor de contracten, maar dat geldt ook voor de Commissie.
-Een dergelijk proces is veel te complex om op uniforme en plotselinge wijze bij wet te worden opgelegd. Het kan slechts tot stand komen door onderhandelingen van ondernemingen.
-In lijn met de NWO breed ingezette harmonisatie en vereenvoudiging van financieringsinstrumenten is de ZonMw Open Competitie een vervanging van de programma's ZonMw TOP-subsidies én Investeringen Middelgroot.
-De pragmatische aanpak van Zanders bood het Agentschap de mogelijkheid om in de breedte en de diepte te kijken waardoor het mogelijk was om kosten te besparen en zowel de efficiency als de kwaliteit te verbeteren.
-De inkomens van alle boeren zijn reeds indrukwekkend gedaald, en de aardappeltelers moeten dan ook op gepaste wijze, met name door directe inkomenssteun, worden vergoed.
-Ten eerste, wij begroeten de strategie om verkeersinformatiediensten die worden ondersteund door RDS-TMC in te voeren. Wij verwachten uiteraard dat dit niet alleen in Duitsland over het hele gebied gebeurt, maar ingang vindt in heel Europa.
-1.5 Bestrijding van de kleine criminaliteit - met inachtneming van subsidiariteitsbeginsel - is echter minstens zo belangrijk voor de burgers, omdat dit soort criminaliteit een gevoel van onveiligheid geeft en een voedingsbodem en wervingsbasis voor de georganiseerde en grensoverschrijdende misdaad vormt.
-Mijnheer de Voorzitter, geachte collega' s, namens de Commissie landbouw en plattelandsontwikkeling wil ik tegen de Raad zeggen dat wij uitdrukkelijk tegen deze ongenuanceerde inkrimpingen zijn, zoals de Raad die altijd voorstelt.
-Ten slotte wens ik in verband met dit punt op te merken dat de Commissie — nadat zij haar algemene ideeën inzake het gemeenschappelijk landbouwbeleid in juli heeft voorgelegd — in september en oktober, een reeks specifieke uitvoeringsbepalingen heeft voor gelegd in verband daarmede, voorstellen waarover het Parlement zich nog dient uit te spreken.
-Bij de hervorming van het GLB in 2003 heeft Griekenland ervoor gekozen zich niet aan de toepassing van de bedrijfstoeslagregeling op de PIME te onttrekken, waardoor deze regeling al vanaf 2006 in alle sectoren van toepassing is.
-De Commissie heeft ook de nodige niet-wetgevende maatregelen in gang gezet; bij effectbeoordelingen wordt nu systematisch een 'MKB-test' uitgevoerd om de kwaliteit van de wetgeving te verbeteren.
-Ik hoop echter dat de lidstaten dat melkquotum aan kleine en aan jonge boeren mogen geven, in plaats van het zonder meer te verdelen.
-Ik verzoek u de lidstaten te noemen die zich niet aan die beginselen houden. Wij moeten het economische Europa immers tot een succes maken.
-Ik heb ook gezegd dat we met een gecompliceerd probleem te maken hebben, omdat er geen eenstemmigheid heerst over de op Europees niveau opgelegde produktievermindering.
-De euro is in zijn geheel succesvol, omdat hij heeft gezorgd voor monetaire stabiliteit, zowel in de eurozone, met lage inflatiepercentages, als in relatie tot andere munteenheden.
-Toegewijd bestuur Op de Diversity and Inclusivity Day, werd het UM-beleid besproken dat een omgeving moet gaan creëren waarin iedereen de ruimte krijgt om andere te inspireren en geïnspireerd te worden.
-We moeten de uitzonderingen voor het Verenigd Koninkrijk opheffen en andere manieren zien te vinden om de flexibiliteitsproblemen op te lossen. We kunnen namelijk niet zonder een algemene arbeidswetgeving.
-Mocht het antwoord positief zijn, dan zullen we in Cancun moeten kunnen vaststellen dat het onderhandelingstraject over de gehele linie voor 50 procent is afgerond. We moeten namelijk beseffen dat de onderhandelingen niet berusten op de chronologische afwikkeling van onderwerpen.
-Dat geldt over de hele linie, van milieuvraagstukken en klimaatverandering, energiezekerheid, non-proliferatie en mondiale en regionale veiligheid tot economische en handelsbetrekkingen en specifieke kwesties als illegale migratie.
-Ze staan op de eerste plaats voor lezen, wiskunde en natuurwetenschappen. Eén van de sleutels tot dit ongelofelijke succes van Shanghai is de manier waarop ze leraren blijven verbeteren.
-De TST is een onafhankelijke auditor die ervoor zorgt en garandeert dat alle spellen 100% willekeurig en eerlijk zijn met de Random Generator die voor alle spellen over de hele linie wordt gebruikt.
-Taken op het gebied van asiel, die tot dusver door internationale instanties werden verricht, worden geleidelijk overgenomen door de autoriteiten van de staat. Door personeelstekort bij het ministerie van Veiligheid komt de correcte implementatie van deze taken echter in gevaar.
-Van de CTO's kantoor is degene die ziet over de hele linie en moet proberen om te kijken naar doelen van het bedrijf, in tegenstelling tot de doelen van een individuele groep.
-Over het geheel genomen luidde hun commentaar: "de Europese Unie vraagt telkens erg veel van ons, maar wat staat daar concreet tegenover voor de doorsnee Kroatische burger?"
-De eerste consequentie daarvan is, dat wij het landbouwsteunniveau niet mogen verhogen.
-4.12.3 Ten derde is het zaak dat er in de comitologiebepalingen die dienen ter aanvulling op het wettelijke aspect van het paneuropese radiospectrum, specifieke bepalingen worden opgenomen om ervoor te zorgen dat de huidige Gemeenschapswetgeving over elektronische toegang over de gehele linie wordt toegepast.
-Bovendien stellen wij steunverlening voor, bij de start van collectieven die samenwerking tussen de bedrijven, gemeenschappelijk gebruik van materieel of gemeenschappelijke beheei tot doel hebben.
-De heer Dalsager, lid van de Commissie. — (DA) Mevrouw de Voorzitter, ik wil in eerste instantie de heer Bocklet en de Commissie voor de landbouw danken voor het verslag over het voorstel van de Commissie ter verhoging van de doeltreffendheid van de landbouwstructuren.
-Gegevens over het soort klacht helpen bij het herkennen van mogelijke marktverstoringen die meerdere sectoren betreffen, en bevorderen betere regelgeving wanneer dezelfde soorten consumentenproblemen in alle sectoren aangetroffen worden.
-Dat zou moeten corresponderen met het gemeenschappelijk landbouw beleid en het moeten steunen, niet ondermijnen.
-Van de CTO’s kantoor is degene die ziet over de hele linie en moet proberen om te kijken naar doelen van het bedrijf, in tegenstelling tot de doelen van een individuele groep.
-D verbetering van het concurrentievermogen en voorkoming van werkloosheid door aan passing van de beroepsbevolking aan het probleem van de verandering door middel van een systematische aanpak van de bij- en herscholing:
-Ik heb voor dit document gestemd, omdat in het algemeen steeds meer wordt erkend dat visserijbeheer gebaseerd moet zijn op actuele nauwkeurige wetenschappelijke kennis van de situatie van de visbestanden.
-Dan betekent het als die lijn wordt doorgezet, en het Parlement zou "neen" zeggen, dan hebben we over negen jaar geen oplossing en dan hebben we over 90 jaar geen oplossing.
-Consequent beleid om sociale integratie en armoedebestrijding in de lidstaten te bevorderen, levert de hele samenleving beslissende voordelen op en vergroot de sociale vrede en de samenhang in een land.
-Kan de Commissie in dit verband antwoord geven op de volgende vragen: Hoe denkt zij ervoor te zorgen dat de doelstelling om vóór 2020 3 procent van het bbp aan onderzoek te besteden over de hele linie zal worden verwezenlijkt zonder dat er verschillen optreden in de investeringen van de lidstaten?
-Ik kan u met voldoening mededelen dat de reacties buitengewoon positief waren. We mogen er dus van uitgaan dat dit initiatief overal op voldoende politieke steun zal kunnen rekenen.
-Ze betuigen veel steun aan dit soort verklaringen, overal, maar zoals je ziet vinden liberalen het iets belangrijker dan conservatieven, de lijn helt naar beneden.
-Het feit dat wij voor deze vervoersvorm sancties hebben ingevoerd, mag er niet toe leiden dat er nergens aandacht aan wordt besteed, uit angst dat ook op andere terreinen sancties zullen worden ingevoerd.
-Zo wordt benadrukt dat het in aanmerking nemen van de genderproblematiek in de ontwikkelingssamenwerking als een transversale opdracht moet worden beschouwd, die in de gehele ontwikkelingssamenwerking ter harte moet worden genomen.
-Overschrijding van de gegarandeerde maximumhoeveelheid betekent een uniforme strafkorting voor alle producenten in de Europese Unie, ongeacht of ze zelf een goede of slechte oogst hebben gehad en of ze wel of niet hebben bijgedragen aan de ongebreidelde vergroting van de productie in de Gemeenschap.
-Wij hebben er in de Vervoerscommissie het volste vertrouwen in dat al de door ons goedgekeurde infrastructuurkredieten voort aan zullen worden besteed.
-Ik vind het goed dat in het verslag wordt benadrukt dat de steun transparant moet zijn.
-Het is onmogelijk in de negen Lid-Staten van de Gemeenschap 300 à 400 miljoen dollar bijeen te krijgen zonder het consumptieniveau te verlagen.
-Vergeet trouwens niet dat we onder geen beding onze voorwaarde zullen intrekken van een totaal belastingpakket, zoals dit op 1 december 1997 is vastgelegd onder Luxemburgs voorzitterschap.
-Europa moet namelijk de zekerheid hebben dat een versnelde procedure niet algemeen en systematisch wordt toegepast, en dat de behoefte aan internationale bescherming, asielrecht en het principe van niet-uitzetting worden gegarandeerd.
-4.3 Naast deze voordelen, die zelden worden belicht maar wel door sommigen worden gerelativeerd, stelt zich de wel controversiële vraag of het al dan niet gunstig is om een "sterke" munt te hebben.
-In de conclusies van de Europese Raad wordt ook duidelijk gemaakt hoe belangrijk het is dat de Unie en de afzonderlijke lidstaten zich inzetten voor de verbetering van de factoren die van doorslaggevend belang zijn voor het mededingingsvermogen van de Europese productiesector.
-Een heel belangrijke factor in deze discussie betreft het feit dat de verzekeringsbranche in de hele Gemeenschap, met inbegrip van de toetredende landen, niet klaar is voor verplichte financiële garanties voor iedereen.
-Deze focus op burgers moet voor alle onderwerpen gelden, met inbegrip van de toenemende immigratie en asiel, met volledige inachtneming van de voorschriften betreffende de burgerlijke samenleving, inclusief veiligheid.
-Maar daar beginnen ook de problemen: want hoe valt een beoordeling van de complexe en unieke omstandigheden van elke staat afzonderlijk te verenigen met het handhaven van duidelijke, begrijpelijke regels die op alle staten van toepassing zijn?
-b) adequate en passende reactie: verbetering van de informatie-uitwisseling met de bedrijven, de burgers en de nationale autoriteiten; hier speelt veralgemenisering van pakketvergaderingen een belangrijke rol;
-toepassing van de regeling op álle activiteiten waarvoor accreditatie vereist is (waaronder ijking), ongeacht of accreditatie bij wet verplicht is gesteld dan wel noodzakelijk is vanwege contractuele verplichtingen;
-Een nog op te richten Netherlands Academy of Religion waarin onderzoekers uit alle geledingen samenkomen, lijkt de commissie een geschikte organisatievorm om een dergelijk breed onderzoeksprogramma uit te voeren.
-De excursie omvat bezoeken aan bedrijven uit verschillende sectoren, variërend van levensmiddelen tot industriële componenten, waaruit blijkt dat alle bedrijfstakken door middel van energie-efficiëntie economische voordelen kunnen behalen.
-Er zijn onderwerpen waarover geen politieke verschillen zouden moeten bestaan, niet om de schijn van een mogelijke consensus te wekken, maar omdat het voor iedereen op hetzelfde vlak geldt.
-Hoofddoel van deze hervorming is te komen tot een volledig uniforme marktondersteuningsregeling voor de gehele Gemeenschap via de veralgemeende toepassing van één algemene premie, die verschilt naar gelang de dieren worden gehouden voor de melkproduktie, dan wel uitsluitend voor de vleesproduktie.
-Het spreekt voor zich dat deze oplossing onuitvoerbaar is met een communautaire begroting van slechts 1 % van het bbp en volkomen haaks staat op het voorstel om op elk niveau, ook het Europese, bezuinigingen door te voeren.
-Deze benadering van “werk lonend maken” berust vooral op brede hervormingen van sociale zekerheid en belastingstelsels (belastingkredieten voor werkenden die weinig verdienen, opheffing van regelingen die het aannemen van werk ontmoedigen, in combinatie met ondersteunende maatregelen zoals meer aanbod van kinderopvang).
-Wel Gouverneur, ik gebruik, wat ik "de minimale feiten methode"noem, die enkel de historische gebeurtenissen gebruikt, 1727 01:36:23,600 -- 01:36:25,364 die zo goed bewezen zijn dat ze geaccepteerd zijn door heel het bestuur heen, zelfs door de sceptische niet-Christenlijke geleerden.
-Het biedt een nieuw, breed overzicht van de laatste stand van zaken op het terrein van de monitoring van gezondheid en veiligheid in Europa, gebreken van de huidige verzameling van gegevens en de overlapping van en het gebrek aan informatie over de gehele linie.
-De lidstaten worden verzocht het Europese Verdrag te ratificeren aan gaande de wederzijdse rechtshulp in strafzaken als mede het aanvullende protocol inzake de vergoeding door de lidstaat van uitgaven van getuigen die het land opnieuw moeten bezoeken met het oog op de bewijs voering.
-Dit gaat algemeen op, voor de meest uitlopende gebieden, van uitbesteding van autowegen, beheer van ziekenhuizen en scholen tot de opneming van investeringsprojecten onder het toepassingsgebied van de structuurfondsen.
-Het programma zal over de gehele linie het recht van initiatief van belanghebbenden ondersteunen, ondergeschikt aan de geografische programma's, door middel van financiering van hun “eigen initiatieven”, in plaats van in detail de activiteiten vast te leggen die zij als “tenuitvoerleggingspartners” moeten ondersteunen.
-Het EP moet vooraf met de Commissie en de Raad besluiten wanneer gedetailleerde wetgeving noodzakelijk is, wanneer kaderwetgeving volstaat en wanneer een vorm van coregulering of zelfregulering mogelijk is.
-We moeten ervoor zorgen dat de EU-wetgeving overal ten uitvoer wordt gelegd om de handelsbarrières te verminderen, maar we moeten er ook voor zorgen dat de EU-wetgeving de belasting van onze bedrijven niet vergroot.
-Zo doen ze niet anders dan de Commissie: de Commissie belast globaal, de meerderheid in de land­bouwcommissie verlicht globaal en tracht niet gediffe­rentieerd in te spelen op uiteenlopende regionale en bedrijfsituaties.
-Oostenrijk boekt goede vooruitgang bij de uitvoering van zijn nationale hervormingsprogramma, met name op micro-economisch gebied waar, behalve ten aanzien van de concurrentie in de dienstensector, op alle gebieden aanzienlijke maatregelen zijn genomen.
-Wij staan daar allemaal achter, maar het is wel slecht te combineren met een algehele belastingverlaging, omdat het kiezen of delen is: òf we gaan investeren, òf de belasting mag omlaag.
-Als ik de balans opmaak van landbouwregio's, dan moet ik concluderen dat het die kleine en middelgrote bedrijven zijn waar opvolging niet gegarandeerd is, en waar kinderen een toekomst buiten de landbouw zoeken.
-Het kapot bezuinigen van hele nationale economieën valt misschien in de smaak bij de Europese grote fondsen en banken, maar noch Ierland noch de monetaire unie en de ECB zijn hiermee geholpen.
-Wil de Unie het gebruik van duurzame energiebronnen stimuleren, dan moeten op een groot aantal van haar beleidsterreinen - waaronder landbouw, externe aangelegenheden, onderzoek, technologische ontwikkeling en demonstratie, fiscaal beleid, en regionaal en milieubeleid - initiatieven worden ontplooid.
-Franz dat „degenen met kille, afwijzende ouders het over de hele linie het moeilijkst hadden in hun latere leven — qua werk, qua maatschappelijke aanpassing en qua psychisch welzijn ”.
-Resolutie van de Raad over de wederzijdse er kenning in de context van de follow-up van het actieprogramma voor de interne markt — Buil. 10-1999, punt 1.3.18
-De Oligarchie -- 1% van elk land dat 50% en meer van alles bezit -- moet hun eerlijk aandeel betalen, d.w.z. 50 percent, van belastingen -- over de hele linie: lokaal & staat & federaal.
-Met het programma moet de uitvoering worden aangestuurd en moeten vernieuwing en verandering in gang worden gezet. Zo kunnen er op Europees niveau transversale maatregelen worden getroffen voor prioritaire thema’s.
-3.3.3.3 Met betrekking tot eventuele nieuwe EU-straffen moet gegeven de horizontale samenhang tevens rekening worden gehouden met reeds bestaande door de EU vastgestelde strafmaten.
-Als meer dan één speler dezelfde hoogtesprong hebben aan het eind van het spel of beiden het helemaal over het bord hebben gedaan, moeten die spelers alleen nog een keer spelen om het gelijkspel te verbreken.
-Hij verzon dat Gary gewelddadig was, wat niemand anders vermeld heeft, En hij zet Mandy neer als een afgunstige verleidster terwijl wij niets anders horen als dat ze charmant was.
-Vergeet trouwens niet dat we onder geen beding onze voorwaarde zullen intrekken van een totaal belastingpakket, zoals dit op 1 december 1997 is vastgelegd onder Luxemburgs voorzitterschap. En lang leve de unanimiteit!
-We probeerden rekening te houden met de ontwikkelingen in de economie, waar in alle sectoren de concurrentiedruk toeneemt, de tijd om te reageren op veranderende marktomstandigheden steeds korter wordt en ondernemingen het steeds moeilijker krijgen om hun activiteiten te plannen.
-In dit artike Black Panther Releasedatum Deel Tweet +1 Deel Submit Fantastisch Niet alles werkt in Black Panther, maar het meeste doet dat wel en doet dat geweldig.RT Jim Vejvoda 15 februari 2018 9 Meer over...
-Mevrouw Walz, voorzitter van de commissie. — (DE) Mijnheer de Voorzitter, waarde collega's, uiteraard kan de Commissie voor energie en onderzoek met de voor haar gebied uitgetrokken kredieten' niet tevreden zijn, hoewel wij de Commissie voor de begrotingen danken voor het feit, dat zij ons bij het voorstel voor bijzonder belangrijke projecten riumschoots heeft gesteund.
-Heeft u nagedacht over de mogelijke noodzaak het SAP zodanig te hervormen, dat degenen die schendingen van mensenrechten begaan, met name Colombia, daadwerkelijk over de hele linie worden uitgesloten van het systeem?
-Dit moet uitmonden in een organisatie op regionaal niveau en een verbeterde structurele financiering om te waarborgen dat er niet alleen in de steden maar ook overal op het platteland adequate instellingen en structuren aanwezig zijn.
-Dit zou zeker in deze moeilijke tijden, waarin de wereldeconomie en de internationale stabiliteit ernstig op de proef worden gesteld als gevolg van de recente terreuraanslagen in de Verenigde Staten, bijzonder goed uitkomen.
-De heer Porto (LDR). - (PT) Mijnheer de Voorzitter, in vergelijking tot hetgeen in andere landen en economische gebieden gebruikelijk is, heeft de Europese Gemeenschap een uniek moreel gezag als hoedster van de vrije handel.
-Dat betekent dus meer flexibiliteit en minder zekerheid wat de banen betreft. Ook dringt zij aan op algemene privatisering ter versterking van het mededingingsvermogen en de kapitaalopbrengst.
-Zeker in deze moeilijke tijden, waarin de wereldeconomie en de internationale stabiliteit ernstig op de proef worden gesteld als gevolg van de recente terreuraanslagen in de Verenigde Staten, zou dit bijzonder goed uitkomen.
-Tricotst pedaal-board favorieten zoals baas TU-3 en de innovatieve TC Electronic PolyTune, tot als de Korg MA-30-handbediend tuners met een metronoom- Gear4music.com.com bieden de beste assortiment en laagste prijzen op tuners over de hele linie.
-Daardoor hebben bij voorbeeld plattelandsgebieden in een welvarende regio als Βaden­Württemberg steun van de deelstaatregering gekregen om de aanvaardbare reden dat zij ongunstig afsteken tegen de grote stedelijke centra.
-Op grond hiervan stellen wij voor een gemiddelde tariefverlaging te waarborgen van ten minste 33% over de hele linie op industriële produkten waarbij wij sterke verlagingen aanbieden op gebieden die van groot belang zijn voor onze handelspartners van het vierpartijen overleg.
-De lidstaten en de Commissie moeten overeenstemming bereiken over een algemene basis voor meting op prioritaire gebieden en over reductiedoelstellingen die worden gedeeld door de Gemeenschap en de lidstaten afhankelijk van de oorsprong van de administratieve lasten.
-BRENGT IN HERINNERING dat instemming met sociale doelstellingen niet voor protectionistische doeleinden mag worden aangewend; het doel is het bereiken van sociale vooruitgang over de gehele linie, waarbij er voor gezorgd moet worden dat deze eerlijk wordt verdeeld ten behoeve van allen;
-Maar de overdrijvingen in dit verslag -als ze serieus genomen zouden worden - zijn beslist niet onbelangrijk, afgezien van het feit dat ze koren zijn op de molen van extremisten die Europa afwijzen.
-Ze worden veilig voor u opgeslagen en u kunt toegang tot deze wachtwoorden krijgen met één hoofdwachtwoord Meer informatie > Avira Free System Speedup Win uw verloren snelheid terug Meer informatie Minder informatie Onze alles-in-één optimalisatietool geeft uw schijfstatus, prestaties en privacy weer en verbetert deze allemaal met één klik.
-3.6 Het veralgemeende gebruik van het instrument van gedelegeerde handelingen, conform het voorstel tot wijziging/integratie van bestaande en nog goed te keuren handelsnormen, maakt een voldoende grondige evaluatie van de regeling in haar geheel vooralsnog niet mogelijk.
-Hoewel de Commissie dit beginsel onderschrijft, is zij van mening dat het algemeen moet worden toegepast op de procedures met betrekking tot alle soorten producten en dat het niet passend is het beginsel in een sectorale richtlijn te noemen;
-Ik wilde per se voorkomen dat het vraagstuk omtrent de nationale prostitutiewetgevingen de kern van het verslag zou vormen; dit mondiale probleem mag niet ten prooi vallen aan nationale verschillen.
-Dat is toch weer een nieuwe poging van deze commissie om de door four operators verkochte reizen in diskrediet te brengen!
-Ter afsluiting zou ik willen zeggen dat de ontwikkelde landen, in aansluiting op de golf van solidariteit die deze ramp van ongekende omvang teweeggebracht heeft, de koppen bij elkaar moeten steken om te komen tot een algehele herschikking van de schuldenlast van alle getroffen landen.
-De economische omstandigheden van bedrijven en de bevolking van de Europese Unie vertonen aanzienlijke verschillen, wat betekent dat boetes voor dezelfde verkeersovertreding niet in alle lidstaten even hoog mogen zijn.
-Ik moet zeggen dat de integratie van het EIF en de EIB onder één dak, waartoe in het kader van het Lissabon-proces is besloten, de activiteiten van de Europese Investeringsbank beslist zal verbeteren.
-Evenals de andere leden van de commissie ben ik ervan overtuigd dat een progressief model, waarin per lidstaat wordt gedifferentieerd en in sterkere mate rekening wordt gehouden met vroegtijdige maatregelen, hoe dan ook de voorkeur verdient boven een vaste streefwaarde.
-Deze mededeling spitst zich toe op de fundamentele rol van het onderwijs en op het vaststellen van wijzen waarop de inspanningen van de lidstaten kunnen worden ondersteund, hetzij in specifieke onderwijssectoren (hoofdstuk 2), hetzij op alle niveaus (hoofdstuk 3).
-Testogen bespaart u geld ongeacht hoeveel maandlevering je nodig hebt. Testogen biedt een Koop 3 krijgt 2 gratis. Testogen biedt betere prijzen over de hele linie en betere bundel pakket biedt. Daarnaast kunt u de exclusieve korting gebruiken.
-Er bestaat geen hiërarchische rangschikking van prioriteiten bij de gronden die onder het voorgestelde actieprogramma vallen: het programma zorgt voor de bestrijding van discriminatie over de hele lijn in plaats van afzonderlijke acties voor iedere discriminatiegrond en zal waar nodig een genderdimensie integreren.
-Dat onze beleidsvormen en acties op het vlak van de gelijke behandeling van en gelijke kansen voor mannen en vrouwen een echte mislukking zijn, blijkt ook duidelijk uit het discriminerend personeelsbeleid van de instellingen en administraties van de Unie en de lid-staten.
-Gedeeld optimisme Ondanks een soms gespannen geopolitieke context geven de 1.300 CEO's die door PwC ondervraagd werden blijk van een zeker vertrouwen en een eerder positieve gemoedstoestand wat de economische toekomst betreft.
-Dus ik ben een zeer tevreden klant over de ganse lijn. meer lezen Kriegelstein Ongecompliceerde, professionele advisering, vakmanschap van hoge kwaliteit en voortreffelijke productwaarde De kwaliteit en het vakmanschap van het juweel is buitengewoon goed en heeft ons erg blij gemaakt.
-Voor bepaalde produkten uit sectoren in moeilijkheden was de Gemeen schap genoopt het preferentieaanbod op het niveau van 1983 te handhaven maar voor gevoelige produkten werd een toename met 5 à 15 % toegestaan en voor niet-gevoelige produkten is de toename doorgaans 8,6 %.
-Doorgaans zullen arbeidstijdverminderingen die niet met de sociale partners zijn overeengekomen waarschijnlijk averechts werken, omdat zij de werkloosheid op korte termijn kunnen verhogen en op langere termijn onverenigbaar kunnen zijn met de maatregelen die moeten worden genomen in verband met de vergrijzing van de bevolking.
-Dus zij zitten achter dat wat ze met jou doen, gewoon om te laten zien dat er een basis is in het panel, een acceptatie van wat er gebeurt en dat ze er allemaal achter staan, voor wat er heel binnenkort gaat gebeuren.
-Dat deze mening opgang maakt, komt deels doordat de leveranciers van stadsverwarming - de gebruikelijke manier van verwarmen in de nieuwe lidstaten - in hun streven naar maximale winst bij een dalend warmteverbruik de verwarmingsprijs voor iedereen, dus ook voor gerenoveerde gebouwen, optrekken.
-Daarom moeten wij als Europees Parlement halverwege de zittingsperiode aan het einde van dit jaar eens goed op een rijtje zetten of onze werkwijze wel altijd juist is.
-Te oordelen naar het aantal geregistreerde octrooien valt op dat de positie van de drie grote industriële mogendheden per technologische sector verschilt: de geavanceerde technologie wordt gedomineerd door Japan, terwijl de Amerikaanse industrie in alle bedrijfstakken sterk aanwezig is en in Europa, waar de kosten voor het registreren van octrooien trouwens veel hoger zijn, het aandeel van de traditionele sectoren aan het toenemen is.
-Niemand is thans onkundig van het feit dat de mensenrechten onder het regime van Fujimori veelvuldig geschonden zijn; dit regime was in feite een verre van voorbeeldig voorbeeld - sorry voor de herhaling - van welig tierende, geïnstitutionaliseerde corruptie.
-4.12.2 Als rechtvaardiging voor deze aanzienlijke investeringen zij erop gewezen dat de resultaten van ARTEMIS als referentiekader zullen fungeren voor alle EU-beleidsterreinen, en dan vooral milieu, vervoer, energie en interne markt.
-Wat nu dan de duurzame ontwikkeling betreft, kan ik tegen mevrouw Isler-Béguin zeggen dat wij sterk hebben aangedrongen op handhaving van de milieupijler van de strategie van Lissabon, en niet alleen op handhaving maar op de daadwerkelijke integratie ervan in alle beleid.
-Omdat de perssector en die van de media in het algemeen zich op het snijpunt tussen handel en politiek bevindt, moet die sector ons zowel op nationaal als op Europees vlak terdege bezighouden.
-maar hevige confrontatie die tijdens de Europese Raad van Dublin heeft plaatsgevonden en die ons realistisch gezien twee nieuwe feiten opleverde.
-Voorts moeten er uitvoerige gezondheidseffectbeoordelingen en evaluaties van alle wetgeving over de hele linie worden uitgevoerd, teneinde een platform te bieden voor gezamenlijk denken en besluitvormers beter in staat te stellen de echte kosten van beleidsinitiatieven voor de volksgezondheid vast te stellen.
-In weergaloze campagnes worden de vluchtelingen en bloc als criminelen bestempeld, worden zij op demagogische wijze verantwoordelijk gesteld voor de vele proble men in onze samenleving, wordt de aandacht afgeleid van de eigenlijke schuldigen, worden de slachtoffers tot daders verklaard.
-De Commissie wilde aanvankelijk naar een algemene harmonisatie van de omzetbelasting toe volgens het beginsel van belastingheffing in het land van oorsprong, wat inhoudt dat de belasting bij commerciële transacties geheven wordt door de lid-staat waarin de "omzet" ontstaat of van waaruit de "omzet" wordt uitgevoerd.
-Het onderricht van het Engels, dat nu al vanaf de eerste klas over de hele linie verplicht is, is weliswaar te verwelkomen, maar mag niet als excuus dienen voor een Macedoniër om geen Albanees te leren en ook niet voor een Albanees om geen Macedonisch te leren.
-Ook de Griekse regering heeft een storm van arbeiders- en volksvijandige maatregelen ontketend om de soepele arbeidsrelaties overal en volledig ingang te doen vinden, om het stelsel van sociale voorzieningen en het pensioenstelsel met de grond gelijk te maken en de lonen en pensioenen te bevriezen.
-De Unie wordt efficiënter naarmate zij democratischer wordt. Medebeslissing voor het Europees Parlement over de hele linie en een drastische versterking van de rol van nationale parlementen zijn daarvoor essentieel.
-Wordt het geen tijd wat wij artikel 103 van het Verdrag activeren zodat wij tot een echte economische coördinatie kunnen komen?
-Het draaiboek vermeldt onder andere de concrete stappen die nu nodig zijn om het land-van-oorsprongbeginsel over de hele linie toe te passen, teneinde die financiële diensten te dekken die momenteel onder de uitzonderingsbepaling vallen en om dit beginsel van toepassing te laten zijn op andere traditionele methodes van handel op afstand.
-Het kwartet plukt dankbaar inspiratie uit alle hoeken van de old school death metal catalogus en gaat met indrukwekkend gemak van groovy naar catchy naar bruut - en toch melodieus en pakkend - en doet dat met een volle (Dan Swanö approved) sound.
-Talrijke landen in Zuid-Europa en elders bevinden zich in een deplorabele economische situatie, terwijl het Internationaal Monetair Fonds, de Europese Centrale Bank en de Europese Commissie immense horizontale kortingen op alle staatsuitgaven eisen en de publieke investeringen in onderzoek ongeveer tot nul zijn gereduceerd.
-Ná de toetreding zullen deze vertegenwoordigers van het middenveld als deelnemers aan de bestaande sociale dialoog maar ook als actoren in de burgerdialoog in belangrijke mate ertoe bijdragen dat het acquis communautair op alle terreinen daadwerkelijk in de Kroatische wetgeving wordt opgenomen en in praktijk wordt gebracht.
-In ieder geval leek het ons nog belangrijker dat de internationale gemeenschap beschikt over een daadwerkelijk coherente en gemeenschappelijke strategie die gebaseerd is op een methodologie die overal hetzelfde is, opdat het probleem in zijn geheel kan worden aangepakt.
-In deze tijd van bezuinigingen over de hele linie waar bij zware koopkrachtoffers van de doorsneeburgers worden gevraagd, kunnen wij er als Europese Gemeen schap niet omheen het geweldige zwarte circuit in de EEG dat ik op één à tweehonderd miljard Ecu schat te gaan aanpakken. Solidariteit met de zwakken, eerlijk heid gebiedt dat.
-De betalingskredieten zijn over de hele linie in totaal met 150 miljoen euro verlaagd. Deze keuze is gemaakt op grond van de verwachtingen die de Raad heeft over de toekomstige uitvoeringsgraad en de ervaringen met uitvoeringstekorten in het verleden, waarbij volledig rekening wordt gehouden met de ingrijpende en welkome verbeteringen van de laatste tijd.
-Er zijn enkele projecten die uiterst omstreden zijn, zoals de grote dijk van de Nam Theun in Laos en een mijnbouwproject in Guatemala, waartegen algeheel verzet is gerezen. Maar onze hebben al hun fiat gegeven aan die projecten.
-Arbeidstijdverkorting kan dus ook geen veralgemeende maatregel zijn. Het zou moeten resulteren uit het resultaat van onderhandelingen per sector, eventueel per bedrijf, zodat men voldoende kan inspelen op de plaatselijke omstandigheden en de concurrentiepositie van de sector of van het bedrijf in kwestie.
-Uit het onderzoek van de nationale hervormingsprogramma’s van de lidstaten, dat in het jaarlijkse voortgangsverslag van de Commissie en in het gezamenlijk verslag over de werkgelegenheid is opgenomen, blijkt dat de lidstaten de hervormingen van het werkgelegenheidsbeleid over de hele linie dienen voort te zetten overeenkomstig de prioriteiten die in de richtsnoeren voor 2005-2008 zijn vastgesteld.
-Tegelijkertijd is algehele afschaffing nodig van de medeverantwoordelijkheidsheffing, die gelijkelijk wordt toegepast op alle producenten, en vervanging daarvan door een speciale heffing op de „melkfabrieken" die niets anders zijn dan werkplaatsen voor verwerking van geïmporteerde voedingsstoffen, zonder enige eerbied voor het milieu.
-Op grond van soortgelijke overwegingen wordt er in het uitstekende verslag van mijn collega Quin, die zo vriendelijk is geweest mijn amendementen aan te nemen, bij de Commissie op aangedrongen concrete voorstellen uit te werken, die het mogelijk moet maken op efficiënte wijze toe te zien op alle fasen van een proces dat heel wat economische aspecten heeft.
-Ondanks de tegenspoed en gebreken in onze samenleving geloof ik oprecht dat Roemenië nu op de goede weg zit, en dat mijn landgenoten nu zijn gaan inzien dat een democratie een betere en efficiëntere staatsvorm is dan het totalitarisme en over de gehele linie tot betere prestaties leidt.
-Bovenop de integratie binnen bepaalde sectorale beleidsgebieden is de Commissie er bovendien in geslaagd de coördinatie te verbeteren en een omvattender, strategischer aanpak van de sectorale beleidsvorming te ontwikkelen die naar verwachting een blijvend positief effect zal sorteren en nog verder zal worden uitgebouwd.
-De Commissie meent dat de toepassing van de in punt 2 genoemde criteria op alle actiegebieden van de Gemeenschap het mogelijk maakt de medebeslissings­procedure algemeen uit te breiden tot hel wetgevend terrein, zonder dat in het Verdrag een algemene nor­menhiërarchie wordt opgesteld.
-Ik zou graag enkele statistieken geven die specifiek betrekking hebben op de Ierse situatie, niet omdat ik hiermee kritiek wil uitoefenen op de Ierse regering, maar omdat – als we op dit terrein volledige samenwerking nastreven – het noodzakelijk is te laten zien hoe slecht de situatie in sommige landen is.
-Het Parlement roept de Commissie, de lidstaten en de regio's en gemeenten ertoe op het hoogst mogelijke beschermingsniveau te waarborgen in alle fases van de voedselketen. Daarvoor moeten nieuwe instrumenten worden ontwikkeld, waaronder maatregelen op het gebied van dierenwelzijn en het milieu.
-Met het oog hierop heeft de Raad de Commissie op 7 december 1987 mandaat verleend om met deze drie niet-lid-staten verkennende besprekingen te gaan voeren.
-Wat de betrekkingen met andere Europese landen aan gaat, verzoek ik U onderscheid te maken tussen informatie en participatie.
-Het maakt geen goede indruk om naar je kiezers te gaan met de boodschap: „Het spijt me, maar in Brussel is iedereen met va kantie."
-Als wij de Conventie willen laten slagen en Europa in de toekomst slagvaardig willen maken, is het naar mijn mening van doorslaggevend belang dat wij de Europese Unie vergaand democratiseren en de rechten van de individuele burgers versterken.
-De Fractie van de Europese Sociaal-Democraten steekt haar mening wat dat betreft niet onder stoelen of banken. Mijn collega’s en ik weten zeker dat de moeilijkheden die een handicap met zich meebrengt een horizontale en geïntegreerde benadering vergen, in navolging van bestaande voorzieningen op het gebied van gelijke kansen tussen mannen en vrouwen.
-Wij pleiten altijd voor ontwapening in al die landen, en ik denk dat Iran er goed aan zou doen om niet de weg van de kernwapens te bewandelen, maar een ander concept te ontwikkelen, een gematigd concept, ik zou bijna zeggen een Europees concept.
-Uit informatie die ik heb blijkt dat de Turkse minister van Justitie het optreden van de Turkse instanties in de kantoren van de vereniging voor mensenrechten in het openbaar heeft betreurd. Bovendien heeft hij erkend dat de volledige omzetting van de politieke hervormingen van groot belang is.
-3 over zestien leden in hel Europees Parlement, onder wie de voormalig Olympisch en wereldkampioene skiën Marjo Matikainen-Kallström, een quiz­master en twee ex-ministers van Buitenlandse Zaken.
-De Europese lidstaten zijn immers verantwoordelijk voor de controle op de voedermiddelen, en de belangen van de betrokkenen in dit proces zijn zeer verschillend. Het zal daarom noodzakelijk zijn om binnen afzienbare tijd over controleprogramma' s te gaan praten waarmee de bewaking van de samenstelling van de voedermiddelen en de uniforme normen gestandaardiseerd worden.
-Maar dit moet dan wel de komende periode over de hele linie consistent gebeuren.' _ Voor meer informatie kunt u contact opnemen met Daniëlle de Jong, woordvoerder AFM, via 020-797 2129 of danielle.de.jong@afm.nl De AFM maakt zich sterk voor eerlijke en transparante financiële markten.
-Berthu (I-EDN), schriftelijk. - (FR) Het verslag van de heer Pérez Royo maakt een balans van de kosten en voor delen van de euro op die voor de consument weinig be moedigend is.
-Door zich te keren tegen deze toegang tot informatie en tegen de wijdverbreide invoering van deze rechten gooit men de deur dicht voor de armoedebestrijding en zet men een rem op de economische ontwikkeling, die nauw verbonden is met verbeteringen van de gezondheid en de zorgverlening in de ontwikkelingslanden.
-. in plaats van bij overschrijding van de garantiedrempel alle producenten op lineaire wijze te straffen door de interventieprijs voor zuivelprodukten te verlagen, worden in het quotastelsel alleen die producenten getroffen die hun referentiehoeveelheid overschrijden, dat wil zeggen alleen zij die tot de vergroting van de zuiveloverschotten bijdragen.
+Sommige lidstaten volgen een aanpak die erop gericht is door omvangrijke hervormingen in de sociale zekerheid en de belastingstelsels werk lonend te maken.
+Uiteraard staat onze fractie achter het besluit van het Europees Parlement om zijn goedkeuring te onthouden aan de algemene korting op de marktuitgaven op landbouwgebied die door de Raad van ministers is vastgesteld en om deze uitgaven weer op te trekken tot het niveau van het voorontwerp van begroting 2003.
+Maar in deze nieuwe geïntegreerde mediterrane programma's moeten wij de know-how van de Gemeenschap tonen en laten zien dat deze know-how een horizontale dimensie kan heb­ben, dat wil zeggen dat wij alle facetten van de ontwik­keling van een regio kunnen behandelen en ons hiervan bewust zijn.
 Van de kant van het Parlement hebben we onlangs vergaderd met de Europese bewindvoerders van de Wereldbank, en die eisten unaniem een eensgezinder optreden van de Unie bij ontwikkelingsvraagstukken, zowel in zijn algemeenheid als specifiek wat het werk van de Wereldbank betrof.
-In het Verdrag van Maastricht wordt zonder meer ge­sproken van de "ecu" en in het ver­slag van Alman Metten (NL, PES/PvdA) van mei van dit jaar meende het Parlement dan ook dat daar niet verder over gezeurd moest worden. Sommieen vinden
-Wij vragen dat bij de herziening van het Verdrag in 1996 in een apart hoofdstuk voor de verankering van het beginsel van gelijke kansen voor vrouwen wordt gezorgd door de invoering van een als zodanig opeisbaar recht. De lidstaten moeten ook naar een paritaire samenstelling van mannen en vrouwen van het Hofvan Justitie toe werken, zodat het tot gelijkwaardigheid in dit rechtscollege komt.
-Het Belgische budgettaire beleid brokkelt zienderogen af. Marc De Vos en Brieuc Van Damme wijzen erop dat ons gezondheidszorgbeleid de laatste jaren vooral werd gedomineerd door budgettaire bekommernissen. Nochtans blijft het budget de pan uitswingen terwijl de sleuteluitdaging toch blijft een gezondheidszorg aan te bieden die tevens betaalbaar en toegankelijk is, en van hoge kwaliteit.
-In de eerste plaats lijkt het zinvol erop te wijzen dat de door de Raad vastgestelde geringe verhoging van de begroting 2001 ten opzichte van het lopende begrotingsjaar een noodzakelijk politiek signaal is aan het adres van onze medeburgers; immers, begrotingsdiscipline wordt slechts geaccepteerd indien iedereen zich eraan te houden heeft.
-Hierbij moet eraan worden herinnerd dat de acties waaraan uit hoofde van doelstelling 3 bij stand wordt verleend, deel uitmaken van een groter geheel van door de Lid-Staat gefinancierde maatregelen: de financiële bijstandsverlening van het ESF is gering, gelet op de to tale kosten van de opleidings- en beroepsintegratlemaatregelen.
-Om deze redenen ben ik voorstander van de invoering van een algemeen sectorgewijs communautair quantum op basis van de voor de produktie vastgestelde doeleinden, maar voornamelijk voor die sectoren waar de marktorganisatie in hoofdzaak op interventieprijzen is gebaseerd.
-In feite is het zo dat de procedurele structuren, die zijn ontleend aan de tijd dat de grenzen tussen de Lid-Staten nog dienden voor de inning van douanerechten (namelijk de aangifte van het goed, de aanbieding van bewijsdocumenten, de vereffening en de inning van de bedragen), grotendeels ongewijzigd zijn gebleven en thans gebruikt worden voor de BTW en de andere verbruiksbelastingen. tingen.
-Mevrouw de Voorzitter, ik wil allereerst mijn waardering uiten voor de noeste arbeid van de twee rapporteurs. Ik zeg dit zonder enig sarcasme, want het was een allesbehalve gemakkelijke taak om de aanvankelijk zo sterk uiteenlopende standpunten onder een algemeen aanvaardbare noemer te brengen.
-Er zijn namelijk heel wat niveaus: de regionale visserijorganisaties, de lidstaten, het Europese niveau; op al deze niveaus moeten we gecoördineerde actie ondernemen, door het Directoraat-generaal Visserij, het Directoraat-generaal Milieuzaken, het Directoraat-generaal Ontwikkeling en het Directoraat-generaal Handel hierbij te betrekken.
-Het ESC baseert zich in dit advies op hetzelfde uitgangspunt, maar volgt een iets andere benadering: fraude - met name belastingfraude - is slechts een van de activiteiten van de georganiseerde misdaad, welke intersectorieel opereert.
-Het is wel zo dat de Commissiewoordvoerder in de vergaderingen van onze commissie, de Commissie regionaal beleid, vervoer en toerisme, alle begrip aan de dag heeft gelegd voor onze standpunten, die ook werden gedeeld door het hele spectrum van collega-afgevaardigden. Hij heeft laten zien dat de omstandigheden er zijn om elkaar te vinden, zodat de verordening die nu wordt besproken snel realiteit kan worden.
-Ik geloof niet dat ik teveel zeg als ik stel dat er zeer regelmatig nauwe contacten bestaan tussen mijn collega Dalsager en de Commissie voor de land bouw van het Europese Parlement.
-De reden daarvoor is dat onze vrienden in de PPE tot nu toe onduidelijkheid hebben laten bestaan over de vraag of zij inderdaad bereid zijn dat beginsel van wederzijdse erkenning toe te passen over de volle breedte, dus inclusief relaties, huwelijksrelaties en niet-huwelijksrelaties tussen personen van hetzelfde geslacht uit die landen waar dat wettelijk mogelijk is.
-– Mijnheer de Voorzitter, de belangrijkste doelen van de twee wetgevingsvoorstellen waarover wij zo direct zullen stemmen, zijn vandaag al verschillende keren genoemd: meer veiligheid op de Europese hoofdverkeerswegen, naleving van de rij- en rusttijden – en daardoor een betere bescherming van de chauffeurs en van hun sociale rechten – en over de hele linie ook een eerlijker concurrentie.
-Het pakket betreffende voedselverbeteraars strekt ertoe, overeenkomstig het concept "van boer tot bord", de evaluatieprocedure voor de toelating van voedselverbeteraars en bepaalde vereisten betreffende de etikettering volledig te harmoniseren, teneinde een hoog niveau van bescherming van het leven en de gezondheid van de mens en van de belangen van de consument te waarborgen en tegelijkertijd de goede werking van de interne markt te garanderen.
+Er bestaat geen hiërarchische rangschikking van prioriteiten bij de gronden die onder het voorgestelde actieprogramma vallen: het programma zorgt voor de bestrijding van discriminatie over de hele lijn in plaats van afzonderlijke acties voor iedere discriminatiegrond en zal waar nodig een genderdimensie integreren.
+We zijn het er allemaal over eens, denk ik, dat de batterijkooi moet verdwijnen.
+Sommige indicatoren zullen steeds gelden voor alle risicoge­bieden, terwijl andere zeer specifiek zijn en alleen op een bepaald gebied van toepassing zijn.
+Aan het einde van de verslagperiode waren de programma's voor 2001-2006 (2001-2004 voor Kroatië) bijna volledig aanbesteed (van 97% van de toegewezen middelen voor Albanië en Bosnië en Herzegovina tot 99% voor Kosovo9).
+Daarom zouden de lidstaten de laagste inkomens van belasting vrij moeten stellen en hoe dan ook de drempel moeten verlagen waardoor om bijvoorbeeld fiscale redenen zelfs het aan nemen van tijdelijk werk wordt tegengegaan.
+De voorstellen zijn bedoeld voor alle sectoren behalve staal,
+, dat tot dusverre alleen voor de goederenmarkt gold, zal nu ook in al zijn onderdelen worden toegepast op de dienstenmarkt.
+Gaming omzet schattingen zijn al in de 10000000000 $ range, een boost dat de haperende economie er hard nodig.Tokyo's selectie als de 2020 Olympische Spelen gaststad is toegenomen vertrouwen over de hele linie dat het casino wetsvoorstel door middel zal passeren met weinig tegenstand.Atlantic CityZoals elke speler weet, schudden is de sleutel tot een casino kaartspel, en dat is een ding dat de Showboat Casino in Atlantic City niet in geslaagd om goed te doen.
+De pijler gelijkheid van mannen en vrouwen omvatte een bemoedigende reeks initiatievendie tot doel hebben ertoe bij te dragen dat werkenden werk en gezinsleven kunnen combineren.Daarentegen waren er maar weinig maatregelenom de loonverschillen terug te dringen.
+Aan fundamenteel, klinisch en translationeel onderzoek wordt voortdurend op alle gebieden steun geboden, zonder dat er sprake is van nationale prioriteiten betreffende bepaalde zeldzame ziekten.
+Maar door het huidige aanbod uit veel Oost-Europese landen zijn onze produkten uit die markten verdreven.
+Over de hele linie zouden die nu en in de toekomst vertaald moeten worden in communautaire wetgeving die alle facetten van de goederenhandel bestrijkt, met name de aspecten veiligheid, volksgezondheid en milieu.
+Franz dat „degenen met kille, afwijzende ouders het over de hele linie het moeilijkst hadden in hun latere leven — qua werk, qua maatschappelijke aanpassing en qua psychisch welzijn ”.
 Maar ik vind dat de respons die ik vandaag van alle zijden van het Parlement gekregen heb goed is; uw prioriteiten zijn er; u ziet de conclusies van Essen als een goed vertrekpunt; u wil dat zowel de lidstaten als de Unie in beweging komen en u wil ook dat er een gecoördineerd systeem komt dat over de hele linie wordt ingezet zodat er iets kan gebeuren.
-Dit verslag bevat namelijk een lange inventaris van onze zonden op alle terreinen; als we namelijk het verslag moeten geloven eerbiedigen wij de menselijke waardigheid niet (I), schenden wij de vrijheden (II), maken we ons schuldig aan discriminatie (III), veronachtzamen wij de solidariteit (IV), belemmeren wij het burgerschap (V) en zorgen we niet voor een voldoende eerlijke toegang tot de rechter (VI).
-Die groep heeft ook de taak, en daarmee ga ik in op een ander punt uit uw verslag, permanent de verschillende door de Commissie voorbereide initiatieven te onderzoeken - dat was een aanbeveling die u had gedaan - om erop toe te zien dat er over de hele linie in alle communautaire beleidsterreinen rekening gehouden wordt met de wettige belangen van de ultraperifere regio's.
-"Het EESC ziet het als zijn taak, de organisaties en groeperingen die het vertegenwoordigt sociale partners en andere organisaties (diverse belangengroeperingen) te wijzen op de noodzaak dat het leren van talen wordt bevorderd, en deze over te halen de burgers te ondersteunen bij het aanleren van talen en hiertoe voor alomvattende opleidingsnetwerken te zorgen.
-Op grond van de verzoekschriften die we hebben ontvangen stelt de Commissie verzoekschriften dat emigranten ook mensen zijn.
-Het Italiaanse voorzitterschap heeft eraan herinnerd dat één van de primaire doelstellingen van de samenleving het handhaven van de vrede is, wat neerkomt op een onvoorwaardelijke strijd tegen terrorisme en subversieve krachten. Ook is het de ambitie van onze samenleving een stabiele welvaart te bereiken: voor onze volkeren en voor alle landen wier bevolkingen in benarde omstandigheden vertoeven, omdat zij honger lijden, onder armoede gebukt gaan of met een ontwikkelingsachterstand kampen, of ook omdat ze onder het juk zitten van een politiek stelsel dat elke vrijheid in de kiem smoort.
-Door het voordeel van een partnerschap met Microgaming, Grand Hotel krijgt het voordeel van de 128-bits SSL-codering, meestal de standaard over de hele linie in de game-industrie momenteel. Alle verkeer wordt gewaarborgd door deze indeling en communicatie blijven privé en handig. Verder is er eCogra te beschouwen als goed, een onafhankelijk accountantsbureau, erkend voor de spelers als casino'S vrijwillig naar hun bewaking.
-Als wij de lidstaten zo'n bewegingsruimte niet gunnen, als wij dus daarvoor in de plaats een horizontale maatregel van kwantitatieve beperking voorstaan, zonder rekening te houden met de specialisaties en het potentieel van elk land afzonderlijk, zullen wij de situatie alleen nog maar meer uit balans rukken; dan gaan bepaalde landen, zoals Italië, nog minder investeren in de veehouderij zonder dat er inkomensalternatieven komen, en dan wordt er dus door die landen nog meer tol betaald aan de meer bevoorrechte EG-landen.
-En het is een treffend gegeven dat over het algemeen in elk van de vooraanstaande wereldgeloven, compassie -- het vermogen met de ander mee te voelen op de wijze waarop wij dit deze avond bespreken -- is niet alleen de test voor elke ware religiositeit, het is ook wat ons in de tegenwoordigheid brengt van wat joden, christenen en moslims "God" of de "Verhevene" noemen.
-Ten tweede worden wij door de uitbreiding geconfronteerd met een enorme uitdaging. Het Parlement heeft zijn ongerustheid tot uiting gebracht over het gevaar dat er een vlucht van knappe koppen naar het Westen zal ontstaan.
-Ten eerste, in tegenstelling tot reset --hard, is checkout veilig voor de werk-directory; het zal controleren dat het geen bestanden weggooit waar wijzigingen in gemaakt zijn. Eigenlijk is het nog iets slimmer dan dat - het probeert een triviale merge in de werk directory te doen, zodat alle bestanden die je niet gewijzigd hebt bijgewerkt worden. Aan de ander kant zal reset --hard eenvoudigweg alles zonder controleren vervangen.
-5.7 De huidige afstemming door Turkije op de regels van de interne markt van de EU is op sommige terreinen verbeterd, onder meer op het gebied van het vrije verkeer van goederen, concurrentiebeleid en overheidssteun, energie, economisch en monetair beleid, en ondernemings- en industriebeleid.
-De rol van de duizenden kleine en middelgrote ondernemers in Europa moet mijns inziens ondersteund worden en er moeten oplossingen gevonden worden voor de problemen en beperkingen die zij zelf meer dan eens hebben aangekaart: ik noem hier een betere toegang tot krediet, de mogelijkheid van een transparantere en minder dure deelname aan openbare aanbestedingen, maar vooral een algemene administratieve vereenvoudiging, die door iedereen wordt gezien als de ware revolutie waar dit continent momenteel behoefte aan heeft.
-Ik mag er misschien nogmaals aan herinneren, dat deze hulp wordt verleend via de nietgouvernementele organisaties, waarvan de activiteiten door de UNBRO worden gecoördineerd, en dat deze hulp strikt onder worpen is aan de mogelijkheid voor de verantwoordelijke nietgouvernementele organisaties het gebruik er van in de kampen te kunnen controleren.
-Van zeer goed of uitstekend functioneren is sprake, als je in de volle breedte ver boven de gestelde eisen functioneert en aantoonbaar excellente resultaten behaalt.De toelage bedraagt ten hoogste 15% van jouw salaris.De functioneringstoelage kan (in beginsel) voor maximaal één jaar worden toegekend, maar kan worden verlengd als naar de mening van de faculteit of eenheid nog steeds sprake is van zeer goede of uitstekende vervulling van je functie.
+De Commissie is voornemens om de komende lente op dit verslag te reageren met een mededeling over de wijze waarop conflictpreventie over de gehele linie geïntegreerd zou kunnen worden in de programmering op het gebied van externe ondersteuning.
+Voor de gehele EU bedraagt ze nu bijna 21 %.
+Deze laatste trend zal de kern vormen van hetgeen men de nieuwe plattelandsontwikkeling noemt, waarbij landbouwkundige diversificaties, ontwikkeling van kleine ondernemingen, diensten sector, plattelandstoerisme en opleidingsmogelijkheden in de hand worden gewerkt.
+Dit geldt zowel voor mannen als voor vrouwen en over de hele lijn voor KMO’s en grote ondernemingen.
+Vinick verraste veel Republikeinen. Verraste iedereen in het bestuur... door een positie te accepteren in Matt Santos ' kabinet... zodat hij over vier jaar misschien geen kandidaat kan zijn.
+De aanpak die de Commissie over de hele linie volgt, is in grote lijnen evenwichtig en realistisch.
+Wordt het geen tijd wat wij artikel 103 van het Verdrag activeren zodat wij tot een echte economische coördinatie kunnen komen?
+Deze benadering van “werk lonend maken” berust vooral op brede hervormingen van sociale zekerheid en belastingstelsels (belastingkredieten voor werkenden die weinig verdienen, opheffing van regelingen die het aannemen van werk ontmoedigen, in combinatie met ondersteunende maatregelen zoals meer aanbod van kinderopvang).
+Deze veranderingen vormen een politiek signaal waar de Raad rekening mee zou moeten houden bij het aannemen van het nieuwe kaderprogramma.
+Teddy K gaat in het bedrijf snoeien.
+is ingenomen met de invoering in 2012 door EuropeAid/DG DEVCO van een coherente methodologie voor de berekening van het geraamde resterende foutenpercentage (estimated residual error rate — RER), oftewel het percentage fouten die ontsnapt zijn aan alle controles ter voorkoming, opsporing en correctie van fouten; stelt tot zijn genoegen vast dat de Rekenkamer deze methodologie adequaat en zinvol acht;
+De onderzoeksprogramma's zijn geen richtsnoer voor structuurveranderingen maar scheppen alleen de voor waarden voor het inzicht dat nodig is en de parameters die aangelegd moeten worden om later eventueel tot structurele gevolgtrekkingen te komen.
+Zhongwei Zhao: eigenlijk, ik begrijp waarom de huidige regelgeving over de houding van de Raad van bestuur, vooral vanwege de veiligheidsprestaties van het product kunnen niet worden gedefinieerd, nadat alles is niet standaard, met de invoering van de nationale-norm, wanneer de industrie beoefenaars zijn voldoende zelfdiscipline, bieden de meest veilige producten voor de consument, ik ben van mening dat de relevante afdelingen zullen we overwegen de stem , hebben het recht van overpad is het punt van de dag en wacht voor het.
+Hoewel de Commissie dit beginsel onderschrijft, is zij van mening dat het algemeen moet worden toegepast op de procedures met betrekking tot alle soorten producten en dat het niet passend is het beginsel in een sectorale richtlijn te noemen;
+Gedeeld optimisme Ondanks een soms gespannen geopolitieke context geven de 1.300 CEO's die door PwC ondervraagd werden blijk van een zeker vertrouwen en een eerder positieve gemoedstoestand wat de economische toekomst betreft.
+De consensus is dat een goed geregelde financiering van cruciaal belang is om de onpartijdigheid en onafhankelijkheid van het systeem te waarborgen.
+b) adequate en passende reactie: verbetering van de informatie-uitwisseling met de bedrijven, de burgers en de nationale autoriteiten; hier speelt veralgemenisering van pakketvergaderingen een belangrijke rol;
+Nederland blijft het overigens in de breedte goed doen in de THE, als één van de tien landen met meer dan tien universiteiten in de top 200.
+Tot slot wil ik nog benadrukken dat ik zeer enthousiast ben om mee te kunnen doen aan een debat waarin alle partijen maar door één ding zijn verbonden, en dat is de wens om een einde te maken aan de lijdensweg van duizenden patiënten in heel Europa, en dat moment lijkt eindelijk te zijn aangebroken.
+In het algemeen moet bij het opzetten en uitvoeren van EU-uitgavenprogramma's echter op drie dingen worden gelet:
+Wij pleiten altijd voor ontwapening in al die landen, en ik denk dat Iran er goed aan zou doen om niet de weg van de kernwapens te bewandelen, maar een ander concept te ontwikkelen, een gematigd concept, ik zou bijna zeggen een Europees concept.
+Voorzitter, natuurlijk, het Verdrag van Lissabon geeft ons meer taken, meer bevoegdheden en meer werk. Maar betekent dat ook dat wij over de volle breedte meer personeel moeten hebben, zowel voor commissies als voor fracties als voor individuele leden?
+En het ernstigste daarbij is, naar mijn mening, dat de Commissie niet langer over de instrumenten zal beschikken om een crisis als deze het hoofd te bieden doordat zij nu voorstelt om voortaan alleen nog de particuliere opslag te gebruiken als enig interventiemechanisme in de meeste sectoren.
+Niettemin moeten we erop toezien dat de opbrengst van deze algemene heffing zoveel mogelijk verdeeld wordt langs nationale of Europese kanalen, zodat ook kleine havens de behandeling van het afval kunnen betalen zonder daar financieel de dupe van te worden en hun voortbestaan op het spel te moeten zetten.
+Dit is mo­gelijk omdat dankzij de druk van het EP, de bevoegde ministers het beginselbesluit tot verhoging van de eigen middelen hebben geno­men.
+In het bijzonder, moet met die specifieke kenmerken rekening worden gehouden in het kader van algemeen toepasbare mechanismen of moeten er specifieke mechanismen worden ontwikkeld?
+De invoering van een nieuw uniform maximumbedrag van 50 miljoen euro voor alle soorten grote projecten waarvoor goedkeuring door de Commissie vereist is: door deze lagere drempel kunnen kleinschalige milieuprojecten door de lidstaten alleen worden goedgekeurd, zodat ze sneller van start kunnen gaan.
+In deze tijd van bezuinigingen over de hele linie waar bij zware koopkrachtoffers van de doorsneeburgers worden gevraagd, kunnen wij er als Europese Gemeen schap niet omheen het geweldige zwarte circuit in de EEG dat ik op één à tweehonderd miljard Ecu schat te gaan aanpakken. Solidariteit met de zwakken, eerlijk heid gebiedt dat.
+Unicode wachtwoorden worden ondersteund in de raad nu met de uitzondering van Windows system encryption.
+Op grond van soortgelijke overwegingen wordt er in het uitstekende verslag van mijn collega Quin, die zo vriendelijk is geweest mijn amendementen aan te nemen, bij de Commissie op aangedrongen concrete voorstellen uit te werken, die het mogelijk moet maken op efficiënte wijze toe te zien op alle fasen van een proces dat heel wat economische aspecten heeft.
+Enkele diensten die op de Enforex-scholen in Spanje aangeboden worden, zijn:
+Van funky disco met David Vunktot de best beoordeelde house en techno dj van vorig jaar, Dixon.Diversiteit en kwaliteit alom op zaterdag 1 juli bij het derde festival en zoveelste feestje van Modular _ Music.
+In het algemeen valt echter niet duidelijk vast te stellen waar de verantwoordelijkheid ligt in de netwerken die aldus ontstaan.
+De Commissie zegt dat zij op alle gebieden meer transparantie wenst. Wij krijgen van haar echter geen evaluatie van de ontwikkelingen met name in Zweden en Nederland, waar een afgeroomde markt tot stijging van de prijzen voor de gemiddelde consument leidt.
+329.Omdat de Commissie aanvankelijk enigetwijfels had over het marktgerichte karakter van hetproject betreffende de kleureninktjetprintertechnologie en over het stimulerende effect ervan,leidde zij de procedure met het oog op diepgaander onderzoek in.
+Die jongens hebben 15 miljard in het buitenland. Ik wil ze hier hebben.
+Anderzijds werd in het geval van de Deense wet inzake de afvalwaterbelasting een belastingverhoging, die voor bepaalde produktiesectoren kleiner was dan voor andere, als een belastingvermindering aangemerkt, en dus gelijkgesteld met staatssteun, zelfs indien het belastingniveau globaal was gestegen voor iedereen.
+Ik vind het verkeerd dat men meer steun wil verlenen aan kleine en middelgrote onder nemingen in ontwikkelingslanden.
+Nicholson (I-EDN). - (EN) Mijnheer de Voorzitter, ik wil allereerst de rapporteurs gelukwensen met hun uitstekende verslagen en heel de Begrotingscommissie bedanken voor haar werk.
+In maart 2009 nam de Commissie een Mededeling inzake de inzet van ICT voor het vergemakkelijken van de overgang naar een energie-efficiënte, koolstofarme economie aan, waarin zij ICT een van de belangrijkste hefbomen voor de algemene terugdringing van koolstofemissies noemde ( IP/09/393 ).
+Ik verzoek u de lidstaten te noemen die zich niet aan die beginselen houden. Wij moeten het economische Europa immers tot een succes maken.
+In het Verdrag van Maastricht wordt zonder meer ge­sproken van de "ecu" en in het ver­slag van Alman Metten (NL, PES/PvdA) van mei van dit jaar meende het Parlement dan ook dat daar niet verder over gezeurd moest worden. Sommieen vinden
+We zien perspectief in de sterke ontwikkeling van de orderportefeuille over de gehele linie en een steeds steviger herstel van de woningmarkt.
+Het ging er daarbij niet alleen om een eind te maken aan het ontbindingsproces, maar tevens de voorwaarden te scheppen voor een nieuw communautair elan.
+De onderhandelingen hebben tot doel de integratie van de SADC-landen op alle gebieden te versterken en de handelsbetrekkingen tussen deze landen en de EU te intensiveren.
+Ofwel kan het verbod worden toegepast en in alle landen zonder uitzondering worden toegepast, zodat iedereen er zeker van is dat het van kracht is, ofwel hebben we helemaal geen verbod.
+Zo kan het in het kader van een actief arbeidsmarktbeleid zinvol zijn steun te koppelen aan een bepaald doel (bijv. deelname aan een opleiding), maar mag dit geen algemeen beginsel worden voor alle sociale beleidsmaatregelen (bijv. kinderopvang).
 Ik heb bij voorbeeld van collega's in de Commissie ontwikkelingssamenwerking gehoord dat wij, ondanks protest van de Commissie begrotingscontrole, nog steeds in de situatie verkeren dat hoofdlijnen van de begrotingsautoriteit, hoofdlijnen van dit Parlement, zoals die in hoofdstuk 9 van de begroting, globaal met 2 % worden gekort ter verzekering dat de Commissie over middelen beschikt om voorstellen te doen voor het aanvullen van de negatieve reserve.
-Dat alles afwegende, kun je zeker zeggen dat we samen veel flexibele oplossingen gevonden hebben. Natuurlijk hopen we dat deze regeling binnen de beoogde periode van twee jaar een plaats krijgt in de nieuwe AETR en dus ook gaat gelden voor landen die geen lid van de Europese Unie zijn, maar wel van haar wegennet gebruik maken, zodat werkelijk over de hele linie gelijke concurrentievoorwaarden ontstaan.
+De hervorming van het gemeenschappelijk visserijbeleid zou hoegenaamd geen herprogrammering van de fondsen vergen; zij zou betrekking hebben op de toegang, maar geen wijziging van het FIOV inhouden, zeker geen eenzijdige wijziging zoals die welke de Commissie bepleit.
+Het EESC benadrukt dat algemene steun voor het wetenschappelijk en technisch onderzoek een belangrijke voorwaarde is voor het vinden van de benodigde personele middelen.
+Het heeft zoveel proble­men dat het eigenlijk niet kan functioneren. Toch werkt het!
+Mijnheer de Voorzitter, geachte collega' s, namens de Commissie landbouw en plattelandsontwikkeling wil ik tegen de Raad zeggen dat wij uitdrukkelijk tegen deze ongenuanceerde inkrimpingen zijn, zoals de Raad die altijd voorstelt.
+De 'medium', de liter en de 1,25 liter. En dat verschijnsel doet zich voor in alle fastfoodketens.
+Er zijn uiteraard verschillen tussen de vele campings, maar er worden grote inspanningen geleverd om de algemene kwaliteit te verbeteren en alles wat je nodig hebt, zou bij de meeste betaalde faciliteiten beschikbaar moeten zijn.
+Is de Commissie voornemens deze contacten uit te breiden tot nog andere sectoren van vervoer en toe risme die zich in een soortgelijke moeilijke situatie bevinden (kustvaart, cruises, hotelbranche enz.), zo dat een algemene aanpak van het probleem mogelijk wordt?
+v) het nemen van horizontale maatregelen om de dynamiek in stand te houden voor alle pijlers van het partnerschap voor werkgelegenheid en groei (…).
+Er zijn geen aanwijzingen dat Koreaanse scheepsbouwers erin zijn geslaagd om de prijsniveaus over de hele linie te verhogen, zoals herhaaldelijk door Koreaanse bronnen is verkondigd.
+Het is overduidelijk dat de last van de kosten voor transport uit deze verafgelegen gebieden veel gemakkelijker zou kunnen worden gecompenseerd door de dure, niet in massa vervaardigde produkten van deze industrieën, dan door de traditionelere, goedkope, in massa vervaardigde produkten van deze gebieden.
+over de gehele linie samenhang in het externe optreden van de EU te waarborgen.
+De 10% bezuinigingen in rubriek 4 - ik spreek nu voor het Parlement, voordat het zich hierover heeft uitgesproken - is in mijn ogen absoluut onaanvaardbaar.
+In elk geval heeft Maaten voldoende vertrouwen in de ruggegraat van de ECB-leden.
+Waarom dringen wij zo aan ? Waarom sluiten wij ons niet alleen aan bij het voorstel om de Verenigde Na ties een onderzoek te laten verrichten ?
+De vorming van een nieuwe categorie van gedelegeerde Europese verordeningen, waarbij de wetgevingsbevoegdheid (Europees Parlement en Raad) wordt overgedragen aan de Commissie, kan het optreden van de Unie e/ciñnter maken, want de wetgever kan zo bevrijd worden van technische details die door de executieve sneller en adequater behandeld kunnen worden.
+Alle landen hebben grote moeilijkheden ondervonden bij de toepas sing van het huidig stelsel.
+Minder enthousiasme verdient het voorstel van de Commissie voor een Europees arrestatiebevel met algemene reikwijdte, en met afschaffing van de eis van dubbele strafbaarstelling over de gehele linie.
+Voor een aanzienlijk aantal soorten is er weliswaar een prijsdaling geweest, die echter niet algemeen was, doch veeleer te maken had met de door de Ofimer in haar conjunctuurnota aangehaalde onsamenhangende situatie.
+Als werkme­thode had men nu voor ieder geval apart kunnen gaan zoeken naar een gemeenschappelijke noemer voor de op het spel staande economische belan­gen, wat zou leiden tot een per produkt verschillende behoefte aan douanebe­scherming. Met een algemene toepassing van een dergelijke benadering had men de totstandkoming van het GDT aanzienlijk bemoeilijkt en verlengd.
+Het voorstel zal de procedures voor de erkenning van beroepskwalificaties efficiënter maken en de tijdelijke mobiliteit van beroepsbeoefenaren bevorderen omdat over de hele lijn slechts één enkele, op een gemeenschappelijk pan-Europees IT-platform gebaseerde procedure van toepassing zal zijn.
+Zeker in deze moeilijke tijden, waarin de wereldeconomie en de internationale stabiliteit ernstig op de proef worden gesteld als gevolg van de recente terreuraanslagen in de Verenigde Staten, zou dit bijzonder goed uitkomen.
+Maar dit principe mag nooit leiden tot een discriminatie van de eigen burgers.
+Helaas zien we in de industriële sector over de hele linie hetzelfde gebeuren.
+Ik hoop dat er niet veel lidstaten een tijdelijke vrijstelling van deze regels vragen en dat ze vanaf 2013 algemeen zullen worden toegepast.
+Mijns inziens moet het Brits voorzitterschap en de Raad eindelijk de verantwoorde lijkheid op zich nemen en werkelijk druk gaan uitoefenen op Turkije, in plaats van Turkije te belonen voor een beleid dat er op is gericht een bron van spanning aan de grens van Europa te doen voortbestaan.
+Het onderricht van het Engels, dat nu al vanaf de eerste klas over de hele linie verplicht is, is weliswaar te verwelkomen, maar mag niet als excuus dienen voor een Macedoniër om geen Albanees te leren en ook niet voor een Albanees om geen Macedonisch te leren.
+Nee, ik denk dat de waarheid gewoon de waarheid is helemaal als je de hoogste medische authoriteit bent.
+In feite is het zo dat de procedurele structuren, die zijn ontleend aan de tijd dat de grenzen tussen de Lid-Staten nog dienden voor de inning van douanerechten (namelijk de aangifte van het goed, de aanbieding van bewijsdocumenten, de vereffening en de inning van de bedragen), grotendeels ongewijzigd zijn gebleven en thans gebruikt worden voor de BTW en de andere verbruiksbelastingen. tingen.
+We moeten ervoor zorgen dat de EU-wetgeving overal ten uitvoer wordt gelegd om de handelsbarrières te verminderen, maar we moeten er ook voor zorgen dat de EU-wetgeving de belasting van onze bedrijven niet vergroot.
+Dit komt door het offensief dat de huidige regering van de Verenigde Staten heeft ontketend om voor Amerikaanse staatsburgers algemene onschendbaarheid in de wacht te slepen, maar het is ook te wijten aan de inschikkelijkheid die sommige Europese landen in dit opzicht hebben getoond. Een van die landen is Italië, en dat betreur ik ten zeerste, niet alleen omdat het mijn eigen land is maar ook omdat het de eerste lidstaat is die het Verdrag van Rome heeft geratificeerd.
+De Amerikaanse beleidsmakers beginnen nu de effecten op hun economie en het internationale monetaire bestel te bekijken.
+Om ervoor te zorgen dat de maatregelen ten gunste van deze regio's en de verklaring ten aanzien van hun status coherenter en effectiever zijn, moet er daarnaast over de hele linie in de verschillende beleidslijnen van de gemeenschap niet alleen rekening worden gehouden met hun specifieke ultraperifere karakter, maar dient er ook een adequaat gefinancierd Gemeenschapsprogramma te worden opgesteld dat deze regio's ondersteunt en alle bestaande maatregelen omvat.
+Het draaiboek vermeldt onder andere de concrete stappen die nu nodig zijn om het land-van-oorsprongbeginsel over de hele linie toe te passen, teneinde die financiële diensten te dekken die momenteel onder de uitzonderingsbepaling vallen en om dit beginsel van toepassing te laten zijn op andere traditionele methodes van handel op afstand.
+Testogen bespaart u geld ongeacht hoeveel maandlevering je nodig hebt. Testogen biedt een Koop 3 krijgt 2 gratis. Testogen biedt betere prijzen over de hele linie en betere bundel pakket biedt. Daarnaast kunt u de exclusieve korting gebruiken.
+De gemeenschappelijke uitdaging van de onstabiele energiemarkt
+Hierbij moet eraan worden herinnerd dat de acties waaraan uit hoofde van doelstelling 3 bij stand wordt verleend, deel uitmaken van een groter geheel van door de Lid-Staat gefinancierde maatregelen: de financiële bijstandsverlening van het ESF is gering, gelet op de to tale kosten van de opleidings- en beroepsintegratlemaatregelen.
+Arrestaties zullen binnenkort over de gehele linie volgen en dit zijn – presidenten, premiers, kabinetsleden van de regering, rechters in gerechtshoven, leden van nationale wetgevers, evenals hoofden en verantwoordelijken van belangrijke banken en multinationals.
+Het gaat namelijk niet aan dat men het hele Europese landbouwbeleid in één klap aan de schandpaal nagelt en de resultaten van het gemeenschappelijk landbouwbeleid en bloc veroordeelt.
+Doorgaans zullen arbeidstijdverminderingen die niet met de sociale partners zijn overeengekomen waarschijnlijk averechts werken, omdat zij de werkloosheid op korte termijn kunnen verhogen en op langere termijn onverenigbaar kunnen zijn met de maatregelen die moeten worden genomen in verband met de vergrijzing van de bevolking.
+De vakbonden, de werkgevers en de civil society hebben gezamenlijk de procedure ondersteund.
+Zij moeten op het gebied van de financiële diensten voor stabiliteit zorgdragen en er bij handelsovereenkomsten op letten dat de sociale normen stapsgewijs verhoogd worden om op die manier een bijdrage te leveren aan meer rechtvaardigheid in deze wereld.
+De agenten van de duistere kliek (kabbalisten) worden nauwlettend in de gaten gehouden nu de bureaus van diverse belangrijke regeringen zich voorbereiden om grote aantallen vooraanstaande personen in regering, financiŽn en over de hele linie in de particuliere sectoren van hun respectievelijke economieŽn te arresteren en vervolgens gerechtelijk te vervolgen.
+Dit zijn volgens mij de factoren waaraan de crisis in de verzorgingsstaat ten grondslag ligt, wat ons dus dwingt op dit gebied actie te ondernemen.
+Als ik de balans opmaak van landbouwregio's, dan moet ik concluderen dat het die kleine en middelgrote bedrijven zijn waar opvolging niet gegarandeerd is, en waar kinderen een toekomst buiten de landbouw zoeken.
+Dat is toch weer een nieuwe poging van deze commissie om de door four operators verkochte reizen in diskrediet te brengen!
+Ik ben er zeker van dat het Parlement graag zou zien dat beide comités ideeën vol verbeeldingskracht en elan naar voren brengen die de Gemeenschap weer een werkelijke betekenis zouden geven en haar voor de burgers zowel begrijpelijk als relevant zou maken.
+Als bepaalde platforms gaan domineren, neemt het risico toe dat we in een „post-truth”-tijdperk terecht komen, waarin online desinformatie, politieke polarisatie en populisme welig tieren.
+Wil de informatiemaatschappij er echt komen, dan zijn er in de EU gemeenschappelijke normen, certificeringscriteria en veiligheidsmaatregelen nodig.
+Vanuit het standpunt van de volksgezondheid, toonde het effect van BSE en van de reactie hierop van de Gemeenschap, duidelijk de noodzaak aan van een coherente benadering van de bestudering en integratie van eisen ten aanzien van de gezondheid in alle beleidsmaatregelen van de Gemeenschap.
+De voorgestelde uitschakeling van een groot deel van de tussenhandel is volgens mij niet alleen illusoir maar zou ook schadelijk zijn.
+Deze amendementen zijn overdreven en daarom enigszins gevaarlijk. Het lijdt geen twijfel dat iets dergelijks voor de toekomst wenselijk is en dat vroeg of laat burgers uit derde landen met een verblijfsvergunning van lange duur actief en passief kiesrecht moeten krijgen.
+Het spel van Footy Darts Aussie Dart Rule Elk team heeft vier "downs" om te proberen de bal over het bord en in het doel van de tegenstander te verplaatsen.
+■ De eigenaar/manager beschikt over be­perkte middelen voor onderzoek van de bredere zakelijke context, en zal hieraan dan ook vaak onvoldoende aandacht schen­ken
+Moeten de landbouwprijzen voor alle produkten evenveel worden verhoogd of moet via gedifferentieerde verhogingen worden geprobeerd de produktie anders te sturen?
+De Commissie wilde aanvankelijk naar een algemene harmonisatie van de omzetbelasting toe volgens het beginsel van belastingheffing in het land van oorsprong, wat inhoudt dat de belasting bij commerciële transacties geheven wordt door de lid-staat waarin de "omzet" ontstaat of van waaruit de "omzet" wordt uitgevoerd.
+Het Parlement is het volledig eens met de uitbreiding van de bevoegdheden voor
+Het is duidelijk dat er geen behoefte is aan totale harmonisatie van de belastingstelsels van de lidstaten.
+Van de CTO's kantoor is degene die ziet over de hele linie en moet proberen om te kijken naar doelen van het bedrijf, in tegenstelling tot de doelen van een individuele groep.
+Als dat in de slachthuizen gebeurt, heeft dat gevolgen voor de opslag en het vervoer van karkassen. Als het bij de slager of in de supermarkt gebeurt, kunnen er problemen met de verwerking van de botten.
+Ze worden veilig voor u opgeslagen en u kunt toegang tot deze wachtwoorden krijgen met één hoofdwachtwoord Meer informatie > Avira Free System Speedup Win uw verloren snelheid terug Meer informatie Minder informatie Onze alles-in-één optimalisatietool geeft uw schijfstatus, prestaties en privacy weer en verbetert deze allemaal met één klik.
+Het is wel zo dat de Commissiewoordvoerder in de vergaderingen van onze commissie, de Commissie regionaal beleid, vervoer en toerisme, alle begrip aan de dag heeft gelegd voor onze standpunten, die ook werden gedeeld door het hele spectrum van collega-afgevaardigden. Hij heeft laten zien dat de omstandigheden er zijn om elkaar te vinden, zodat de verordening die nu wordt besproken snel realiteit kan worden.
+Ik heb rode lichtjes. Op het hele dashboard!
+Ik ben van mening dat deze partnerschappen voor verandering zich uitvoerig met de economische, sociale en ecologische thema’s moeten bezighouden, willen wij werkelijk tot een betere en meer politieke profilering van de Lissabon-strategie komen.
+Op de eerste plaats een echt Marshallplan voor Tunesië en Egypte, dat over de hele linie tastbare hulp biedt, in ruil waarvoor tegelijkertijd volledige medewerking van de Tunesische autoriteiten wordt verwacht in het blokkeren van hun kusten, om geen verdere illegale emigratie over zee toe te laten.
+Deze verlaging heeft op horizontale wijze betrekking op de structurele maatregelen, met uitzondering van de doelstellingen 1 en 6 en van het Cohesiefonds.
+In het kader van het TTIP vallen de meeste kmo's onder specifieke hoofdstukken die zonder onderscheid van toepassing zijn op alle ondernemingen.
+Algemene steun voor het wetenschappelijk en technisch onderzoek is een eerste voorwaarde voor het vinden van de benodigde personele middelen.
+Terwijl men thuis onzeker is over baan en inkomen, en wacht op inspirerende politici die bezuinigen waar mogelijk en investeren waar hard nodig is, presteren de Commissie en het Parlement het om over bijna de hele linie de uitgaven te verhogen voor allerlei nutteloze en overbodige hobby's.
+De inkomens van alle boeren zijn reeds indrukwekkend gedaald, en de aardappeltelers moeten dan ook op gepaste wijze, met name door directe inkomenssteun, worden vergoed.
+Overeenkomstig artikel XIX van de GATT worden kwantitatieve beperkingen gewoonlijk zonder onderscheid toegepast op alle landen die het betrokken produkt uitvoeren.
+Het doel van regionale investeringssteun is om investeringen te bevorderen in achterstandsregio’s in de Europese Unie, terwijl het doel van opleidingssteun is om een gebrek aan investeringen in opleidingen, een verschijnsel dat algemeen waarneembaar is in de Europese Unie, te verhelpen.
+De uitbreiding en intensivering van de dialoog tussen de EU in China over de hele linie maakt een stroomlijning en verdere ontwikkeling van de huidige institutionele structuur van de betrekkingen noodzakelijk, met name wat betreft de contacten op verschillende niveaus en over verschillende onderwerpen tussen bijeenkomsten in, waarbij de nadruk moet liggen op de kwaliteit in plaats van de kwantiteit van de dialoog.
+Wij achten het ook terecht dat deze progressieve liberalisering op Europees niveau in een preferentieel kader en op wereldvlak in een algemeen kader wordt vervat.
+Verdere ondersteuning over de hele linie van het Chinese hervormingsproces door middel van dialoog en samenwerking, waarbij optimaal geprofiteerd wordt van ervaringen met vergelijkbare overgangsprocessen in de landen die zullen toetreden tot de EU.
+Hij heeft er veel moeite voor moeten doen en zijn inspanningen zijn binnen de commissie over de gehele linie zeer op prijs gesteld.
+Deel Β — Beheer van de interne markt kend is. In een Unie zonder grenzen echter moet de tenuitvoerlegging plaatsvinden op basis van nauwe samenwerking en weder­zijdse bijstand tussen de overheidsdiensten van de Lid­Staten en tussen deze diensten en de Commissie.
+G de richtlijn inzake de bescherming van werknemers in geval van insolventie van de werkgever behandelen met het oog op aanpassing ervan vóór 2003; overeen komstig hetgeen de Commissie heeft aangekondigd, de bestaande richtlijnen inzake de waarborgen voor werk nemers in geval van collectief ontslag, de bescherming van de arbeidsverhouding in geval van verandering van werkgever evalueren en deze eventueel aanpassen; G de sociale partners verzoeken:
+De betalingskredieten zijn over de hele linie in totaal met 150 miljoen euro verlaagd. Deze keuze is gemaakt op grond van de verwachtingen die de Raad heeft over de toekomstige uitvoeringsgraad en de ervaringen met uitvoeringstekorten in het verleden, waarbij volledig rekening wordt gehouden met de ingrijpende en welkome verbeteringen van de laatste tijd.
+Daarnaast moet - via overleg tussen nationale overheid, regionale instanties en mensen uit onderwijs- en opleidingskringen en met financiële steun uit het Europees Sociaal Fonds - het onderwijs voor volwassenen worden gestimuleerd.
+In tijden van een crisis of een mogelijke oorlog mag er voor de Commissie evenmin een verschil bestaan tussen een beleid dat is afgestemd op een algemene vermindering van de belastingdruk en een beleid ter stimulering van de openbare en particuliere investeringen - waarvan de Commissie zelf ongetwijfeld het algemeen belang erkent - die bijvoorbeeld plaatsvinden in het kader van Europese projecten die aan de geest van Lissabon beantwoorden.
+- Bij de overheid werden aLle saLarissen per 1 januari 1986 met 2,5 verhoogd als gevolg van de index stijging.
+Met de RBD II zou deze situatie niet ingrijpend worden gewijzigd; betalingsinstellingen krijgen geen algemene directe toegang tot clearing- en afwikkelingssystemen.
+Deze kapitaalbuffer blijft ook toereikend voor alle banken wanneer deze wordt getoetst aan de nieuwe voorschriften van de Richtlijn Kapitaalvereisten IV voor de evaluatie van het eigen vermogen van banken.
+beleid en wetgeving te ontwikkelen, waarbij de aandacht in het bijzonder wordt toegespitst op aangelegenheden in verband met de toegang tot en de machtiging voor elektronischecommunicatienetwerken en -diensten, met name interoperabiliteit, interconnectie, civieltechnische werkzaamheden, onafhankelijkheid van de regelgevende instanties en nieuwe maatregelen om de eengemaakte markt te versterken;
+Microsoft ontving C ‘ s in de raad van bestuur van Greenpeace als het gaat om duurzame energie.
+De geïntegreerde Europese aanpak voor onderzoek en innovatie in de industrie is door zijn aard op alle bedrijfstakken van toepassing.
+Hij verzon dat Gary gewelddadig was, wat niemand anders vermeld heeft, En hij zet Mandy neer als een afgunstige verleidster terwijl wij niets anders horen als dat ze charmant was.
+In de voorstellen van de Commissie komt bij alle landbouwproducten het woord „daling" voor.
+Toch wil ik dat doen. Wat mij in dit verslag bijzonder verheugt, is dat het ervoor zorgt dat in de eerste plaats het belang van de Europese NGO's en hulporganisaties wordt onderstreept.
+We moeten er wel voor waken alle mannen dezelfde kwalijke bedoelingen toe te dichten, bijvoorbeeld wanneer het gaat om de bescherming van de rechten van het kind of om milieubescherming, om maar enkele terreinen te noemen die door de rapporteur in dit verband ter sprake zijn gebracht.
+Finland heeft hierop gereageerd door de belastingtarieven voor alcoholhoudende dranken over de hele linie met gemiddeld 33 % te verlagen, wat veruit de meest ingrijpende wijziging in 40 jaar is geweest.
+Andere wereldwijde problemen met grensoverschrijdende gevolgen in de Europese Unie en de ACS-landen zijn onder meer vrede en veiligheid (met inbegrip van terrorisme, extremisme en internationale criminaliteit), milieu (in het bijzonder biodiversiteit), migratie, gezondheid en financiële kwesties (met inbegrip van internationale financiële structuren, financiële stromen en belastingen).
+Verder wordt in de definitie van het begrip "vrijhandelsgebied" in artikel XXIV/8b van de GATT-overeenkomst bepaald dat in een vrijhandelsgebied douanerechten en andere handelsbeperkende maatregelen in beide richtingen en in "vrijwel de gehele handel" moeten worden afgeschaft.
+Eis elf: Onmiddellijke algemene kwijtschelding van schulden voor iedereen.
+Daarom steun ik het verslag van de heer Cashman. Het volgt de essentie van het voorstel van de Commissie dat gericht is op de communautisering van het beheer van de buitengrenzen om zo te garanderen dat bij controles overal dezelfde normen en dezelfde voorwaarden gelden voor de toelating van onderdanen van derde landen.
+Het is niet de bedoeling om de functionele economie over de hele lijn door te drukken, maar om ze te ondersteunen waar zij antwoorden biedt op de genoemde nieuwe uitdagingen.
+Lund, adjunct - directeur van het Centrum voor Beleidsalternatieven aan het Massachusetts Institute of Technology, van „problemen over de hele linie voor iedereen die de invloed ondervindt van nieuwe technologieën in de fabriek en op het kantoor ”.
+In weergaloze campagnes worden de vluchtelingen en bloc als criminelen bestempeld, worden zij op demagogische wijze verantwoordelijk gesteld voor de vele proble men in onze samenleving, wordt de aandacht afgeleid van de eigenlijke schuldigen, worden de slachtoffers tot daders verklaard.
+Kortom, over de hele linie zijn we erg tevreden met het resultaat, waarmee wij de heer Moreira da Silva nogmaals feliciteren.
+Daarbij tekent het Comité aan dat het streven naar een volledige en gelijkmatige heffing van de BTW in sommige staten nog aanzienlijke verbetering behoeft.
+Hij brengt de bevolking ellende en verwoesting en verzwakt de positie van de industrielanden in de mondiale context van duurzame ontwikkeling.
+Alleen als we de burgers van de EU ervan overtuigen dat hier daadwerkelijk prestaties worden beloond en niet zomaar forfaitaire geldsommen worden uitgedeeld, krijgt het gemeenschappelijke landbouwbeleid de erkenning die het verdient.
+Om eerlijke concurrentievoorwaarden te garanderen, is het van wezenlijk belang dat in alle landen dezelfde redelijke niveaus van steun gelden.
+Wij zeggen nee tegen dit Europa van de schaamte dat van de Oeral tot de Atlantische oceaan gaat!
+Op een groot aantal punten waarover sinds 2002 in de Doha-ronde wordt onderhandeld, heeft de EU zich steeds ingezet voor de verwezenlijking van haar doelstellingen inzake de bevordering van mondiale duurzame ontwikkeling over de hele linie.
+Het "think small first"-beginsel wordt over de hele lijn op deze richtlijnen toegepast om de regeling af te stemmen op de behoeften van de kleine en middelgrote ondernemingen.
+Er is een toename van de handel binnen de Europese Unie, 10 procent voor alle landen samen en 17 procent voor sommige landen zoals Nederland, Spanje, België en Oostenrijk.
+3 over zestien leden in hel Europees Parlement, onder wie de voormalig Olympisch en wereldkampioene skiën Marjo Matikainen-Kallström, een quiz­master en twee ex-ministers van Buitenlandse Zaken.
+Daarom is het belangrijk dat verbranding overal even duur is en overal aan dezelfde hoge milieu-eisen voldoet.
+Heel wat neurologieonderzoek baseert zich op weefsel bevlekkend, op cel-gebaseerde analyses, westelijke vlekken, en stroomt cytometry, en zodat is het ons doel om innovatieve en hoogstaande antilichamen te ontwikkelen die die toepassingen in de gebieden kunnen over de hele linie richten die wij, zoals en autophagy proteïne hebben vermeld die misfolding.
+Dat bereiken we niet met de kaasschaafmethode: er is een allesomvattend belastingsysteem voor energie nodig.
+3.2 Europa heeft behoefte aan permanente ontwikkeling van duurzame energie, maar ook aan consequente energiebesparingen, efficiënter energiegebruik over de hele linie en structurele veranderingen op verscheidene terreinen (bijv. het vervoersbeleid).
+Kan de Commissie in dit verband antwoord geven op de volgende vragen: Hoe denkt zij ervoor te zorgen dat de doelstelling om vóór 2020 3 procent van het bbp aan onderzoek te besteden over de hele linie zal worden verwezenlijkt zonder dat er verschillen optreden in de investeringen van de lidstaten?
+In plaats van strikte beperkingen ten aanzien van verrijking in het algemeen zijn sommigen voorstander van selectieve beperkingen voor bepaalde levensmiddelen of levensmiddelencategorieën die kunnen worden verrijkt.
+De Commissie heeft ook de nodige niet-wetgevende maatregelen in gang gezet; bij effectbeoordelingen wordt nu systematisch een 'MKB-test' uitgevoerd om de kwaliteit van de wetgeving te verbeteren.
+Volgens de GOC is de sanctie algemeen van toepassing in alle geografische gebieden waar alle producenten-exporteurs gevestigd zijn en derhalve is er geen sprake van regionale specificiteit.
+Je moet gekleurde kubusjes over het scherm schieten zodat ze bij de aangegeven driehoeken komen. Er zijn twee vormen van het spel, beide met 6 stadia van toenemende moeilijkheid, met elk stadium bestaande uit 5 levels.
+De heer Dalsager, lid van de Commissie. — (DA) Mevrouw de Voorzitter, ik wil in eerste instantie de heer Bocklet en de Commissie voor de landbouw danken voor het verslag over het voorstel van de Commissie ter verhoging van de doeltreffendheid van de landbouwstructuren.
+Een betere bekendheid met ICT is onontbeerlijk om in de op kennis gebaseerde economie succes te boeken.
+De diversiteit die migratie met zich meebrengt is een aspect dat op een horizontale manier moet worden meegenomen in de formulering en tenuitvoerlegging van sociale beleidsmaatregelen.
+Dit zijn de lidstaten die over de hele linie negatieve ontwikkelingen hebben meegemaakt vanuit reeds moeilijke uitgangspunten.
+Mijn derde punt is dat ook ik het belangrijk vond dat in het vervolg op deze richtlijn alle personeelsleden die een schakel vormen in de veiligheidsketen en die ook maar enigszins betrokken zijn bij het besluitvormingsproces, geregistreerd moeten worden, want wat dit betreft moeten we over de hele linie harmoniseren en mobiliteit garanderen.
+Cultuur zou dus een vitaal en horizontaal geïntegreerd element moeten zijn binnen het brede spectrum van externe beleidslijnen waaruit het buitenlands beleid van de EU bestaat.
+Een te hoge totale fluorinname kan daarentegen schadelijke gevolgen hebben voor de volksgezondheid.
+De NCDD-partners brengen die samenwerking nu op een hoger plan door over de hele breedte van het publieke domein te zoeken naar de beste oplossingen.
+Dan, $10 bonus voor deze helden.
+"Selectiviteit" onderscheidt staatssteun van zogenaamde "algemene maatregelen" (namelijk maatregelen die automatisch voor alle ondernemingen in alle economische sectoren van een lidstaat van toepassing zijn (bv. de meeste nationale fiscale maatregelen)).
+Op grond hiervan stellen wij voor een gemiddelde tariefverlaging te waarborgen van ten minste 33% over de hele linie op industriële produkten waarbij wij sterke verlagingen aanbieden op gebieden die van groot belang zijn voor onze handelspartners van het vierpartijen overleg.
+8.6 In het kader van de uitbreiding richting Oost-Europa mogen er in geen geval regelingen worden getroffen die een aantasting betekenen van het uitgangspunt dat in alle regio's van de uitgebreide EU landbouw mogelijk moet zijn.
+De financiering zal vooral gericht zijn op horizontale initiatieven die aan tal van sectoren ten goede komen, maar niet tot stand kunnen worden gebracht via één sectorgebaseerd beleid of één enkele lidstaat, zoals maritieme ruimtelijke ordening, geïntegreerde maritieme bewaking en mariene kennis.
+Met het programma moet de uitvoering worden aangestuurd en moeten vernieuwing en verandering in gang worden gezet. Zo kunnen er op Europees niveau transversale maatregelen worden getroffen voor prioritaire thema’s.
+Ik ben het in grote lijnen eens met de veronderstelling die aan uw vraag ten grondslag ligt, namelijk dat het beter is algemene maatregelen voor de hele Gemeenschap in te voeren dan in elke lidstaat andere maatregelen, maar in sommige gevallen is een individuele beslissing van een lidstaat of een bijzondere, van de communautaire lijn afwijkende maatregel gerechtvaardigd, bijvoorbeeld als zich in die lidstaat bijzondere omstandigheden voordoen.
+Dit zal systeembreed branch en tag verwijdering door middel van een push weigeren - geen enkele gebruiker mag het meer. Om remote branches te verwijderen, moet je de ref bestanden handmatig verwijderen van de server. Er zijn ook interessantere manieren om dit per gebruiker af te dwingen door middel van ACL's, zoals je zult leren aan het eind van dit hoofdstuk.
+We moeten ook weten hoe de algemene situatie in de lidstaten is.
+Op nationaal niveau moet over de hele linie voedsel ter beschikking worden gesteld, zodat scholen maaltijden kunnen aanbieden (ook tijdens schoolvakanties).
+Er zou iets goeds uit die discussie kunnen komen, als regeringen van landen met een hoge belasting tot de conclusie kwamen dat lagere belastingen in het algemeen, en niet alleen in deze frivole uithoek van de economie, goed zijn voor de werkgelegenheid.
+Wat betreft uw vraag of de beperking tot 50% ook geldt is voor kleinere lidstaten met een beperkte culturele markt en of hier een uitzondering kan worden gemaakt, kan ik u het volgende antwoorden: de beperking tot 50% geldt in principe zonder onderscheid voor alle lidstaten.
+Hiervoor is nodig dat het handels-, het schulden- en het hulpbeleid van zowel de EU als de VS over de gehele linie worden verbeterd, met name voor Afrika.
+We hoorden net van een ander vliegtuig dat er zwarte rook uit uw linker motor komt.
+Daar de Commissie een speciaal actieplan ter bevordering van gelijke kansen voor de vrouw heeft voorgesteld, waarin een vergelijkend onderzoek van de belastingstelsels een centrale plaats inneemt, is dit memorandum zeer toe te juichen.
+Het kwartet plukt dankbaar inspiratie uit alle hoeken van de old school death metal catalogus en gaat met indrukwekkend gemak van groovy naar catchy naar bruut - en toch melodieus en pakkend - en doet dat met een volle (Dan Swanö approved) sound.
+Wat wij zouden moeten doen, is algemene rechtvaardige tarieven invoeren, waarbij producenten die zich niet aan de ILO-eisen en milieueisen houden, moeten betalen.
+Deze logica is op ook toe te passen op andere infectieziekten en dat zou ook moeten.
+Ik weet wel dat u gezegd hebt dat die wetten niet integraal zouden worden toegepast* dat de akkoorden van Londen het mogelijk hebben gemaakt de positie van Eu ropa in dit opzicht te versterken, maar ik zie niet erg in waar de vrijhandelsgeest zit op dit gebied.
+Zoals de vorige spreker al zei, is de enige manier om een verbod op vlees- en beendermeel te realiseren een algeheel verbod is.
+Dan kan iedereen blijven.
+Wat de betrekkingen met andere Europese landen aan gaat, verzoek ik U onderscheid te maken tussen informatie en participatie.
+Het beginsel "think small first" wordt op al deze richtlijnen toegepast om het systeem op de behoeften van kmo's toe te snijden.
+In het ontwerp van de Raad wordt per rubriek van de financiële vooruitzichten de volgende toe lichting toegevoegd: de landbouwuitgaven die worden gedekt door het submaximum 1 a) zijn forfaitair verminderd met 453 miljoen euro, waardoor deze op het peil van de eerste lezing van de Raad kunnen worden gehandhaafd.
+Het hoopt tevens dat de bescherming tegen oneerlijke handelspraktijken hiermee versterkt kan worden omdat veralgemeende toepassing van handelsnormen volgens hem aan een dergelijke verbetering kan bijdragen.
+Het werkt bovendien sneller dankzij vlottere response over de hele linie.
+Voor bepaalde produkten uit sectoren in moeilijkheden was de Gemeen schap genoopt het preferentieaanbod op het niveau van 1983 te handhaven maar voor gevoelige produkten werd een toename met 5 à 15 % toegestaan en voor niet-gevoelige produkten is de toename doorgaans 8,6 %.
+Ik zie uit naar uw vragen en opmerkingen, en zal mijn uiterste best doen om daarop in te gaan.
+Bevordering van de gelijkheid van de geslachten moet horizontaal op alle punten van de sociale agenda worden nagestreefd; in aanvulling daarop moet er een aantal specifieke maatregelen worden genomen om vrouwen toegang tot de besluitvorming te geven en om de rechten op het gebied van gelijkheid en van de combinatie van gezins- en beroepsleven te versterken.
+Maar dit moet dan wel de komende periode over de hele linie consistent gebeuren.' _ Voor meer informatie kunt u contact opnemen met Daniëlle de Jong, woordvoerder AFM, via 020-797 2129 of danielle.de.jong@afm.nl Gerelateerde doelgroepen Accountantsorganisaties Meer weergeven Minder weergeven De AFM maakt zich sterk voor eerlijke en transparante financiële markten.
+Algemene id zeggen scoort ongeveer 3/5 in de raad van bestuur
+een trans-Europese regeling met algemene toepassingsvoorwaarden en gemeenschappelijke criteria voor de vaststelling van het bedrag van het voorschot;
+Als gewasbeschermingsmiddelen echter een strenge toelatingsprocedure hebben doorlopen, is het onlogisch op het gebruik daarvan een algemeen reductiepercentage toe te passen.
+Het voorzitterschap heeft een tijdschema en werkprogramma vastgesteld die hopelijk zullen waarborgen dat de bijeenkomst in Tampere over de hele linie zo grondig wordt voorbereid dat een gedenkwaardige stap vooruit wordt gezet bij de vaststelling van de politieke richtsnoeren voor het toekomstige Europese beleid inzake justitie en binnenlandse zaken.
+Aangezien preventie de sleutel is voor een algemeen en samenhangend fraudebestrijdingsbeleid, geeft de Commissie voorrang aan de ontwikkeling van preventiemaatregelen die over de gehele linie op alle beleidsterreinen van de EU van toepassing zijn, zoals het fraudebestendig maken van de wetgeving en maatregelen voor contractbeheer.
+In termen van het potentiële effect op de voedselindustrie zou de toepassing van de verplichte voedingswaarde-etikettering in de gehele industrie een groter effect sorteren als zij onmiddellijk werd toegepast.
+We zullen op geen enkel punt toegeven wanneer het democratische grondrecht van het Parlement, namelijk het vaststellen van de begroting, wordt ondermijnd.
+Het is ingewikkeld omdat het niet zeker is dat de regels die worden aangenomen in zo'n gevoelige fase voor alle sectoren tegelijk op dezelfde wijze gelden.
+Ik geloof niet dat ik teveel zeg als ik stel dat er zeer regelmatig nauwe contacten bestaan tussen mijn collega Dalsager en de Commissie voor de land bouw van het Europese Parlement.
+Oude post 09 01 04 01 en oud artikel 09 02 01
+Een dergelijke benadering zou wel eens contraproductief kunnen zijn en de voordelen te niet doen die een horizontale benadering van de Roma-problematiek in het totale beleid van de Europese Unie met zich mee zou brengen.
+Daarnaast dient er massaal te worden geïnvesteerd in opleidingen, om de competentie van de Europese werknemers over de hele breedte te verhogen.
+Het feit dat wij voor deze vervoersvorm sancties hebben ingevoerd, mag er niet toe leiden dat er nergens aandacht aan wordt besteed, uit angst dat ook op andere terreinen sancties zullen worden ingevoerd.
+Zoals de marktomstandigheden zich thans ontwikkelen, zijn er voor banken — anders dan tijdens het dieptepunt van de crisis — doorgaans geen ernstige hinderpalen meer om op de markt toegang te krijgen tot liquiditeit.
+Zoals u kunt zien, heeft het leven een grotere waarde in termen van het Sattva subtiele basis-component 'kruiselings' de weergave in vergelijking tot zelfs religieuze plaatsen zoals weergegeven in het tabel hierboven.
+Deze problemen stellen zich voor alle veehouders in de hele Europese Unie.
+Vol gens de Commissie moeten de desbetreffende maatregelen evenwel horizontaal worden genomen en mogen ze niet uitsluitend voor bananen gelden.
+Ons streven naar betere regelgeving moet over de hele linie van toepassing zijn, voortbouwend op de vooruitgang die reeds is geboekt met de effectbeoordeling en het programma voor gezonde regelgeving (REFIT).
+Het uitbannen van corruptie over de hele linie vereist een tweede, veel moeilijker stap: een verandering van hart, of veeleer, een verandering van vele harten.
+Natuurlijk kunnen de grootste†drie marktpartijen zich niet veroorloven om zulke hoge percentages over de hele linie aan hun respectieve gefranchisede winkels aan te bieden; hun winstgevendheid zou spoedig verslechteren.
+Dit zou zeker in deze moeilijke tijden, waarin de wereldeconomie en de internationale stabiliteit ernstig op de proef worden gesteld als gevolg van de recente terreuraanslagen in de Verenigde Staten, bijzonder goed uitkomen.
+De huidige tekorten in de EU hebben niet alleen over de hele linie implicaties voor de gezondheid en het welzijn van dieren evenals voor de voedselveiligheid en volksgezondheid in de Gemeenschap, maar ze ondergraven ook het vermogen van de EU om de doelstellingen van de agenda van Lissabon te verwezenlijken en de vruchten te plukken van de enorme mogelijkheden die de Europese landbouw en de aquacultuur op volle zee bieden voor onderzoek en ontwikkeling op het terrein van diergeneesmiddelen.
+De pragmatische aanpak van Zanders bood het Agentschap de mogelijkheid om in de breedte en de diepte te kijken waardoor het mogelijk was om kosten te besparen en zowel de efficiency als de kwaliteit te verbeteren.
+Weliswaar moet in de Europese Unie worden gestreefd naar zo veel mogelijk economische groei, maar ook een eerlijke verdeling van de vruchten van die groei dient overal te worden bevorderd, waarbij het lot van de meest kwetsbaren speciale aandacht behoort te krijgen.
+Wat de melk betreft zijn wij tegen de voorstellen van de Commissie en het Parlement, meer bepaald tegen de verlenging van de melkquota's met vijf jaar.
+Die groep heeft ook de taak, en daarmee ga ik in op een ander punt uit uw verslag, permanent de verschillende door de Commissie voorbereide initiatieven te onderzoeken - dat was een aanbeveling die u had gedaan - om erop toe te zien dat er over de hele linie in alle communautaire beleidsterreinen rekening gehouden wordt met de wettige belangen van de ultraperifere regio's.
+Dit amendement zou betekenen dat deze verplichting algemeen wordt, zelfs voor opdrachten betreffende zaken die naar hun aard niet bedoeld zijn om door gehandicapten te worden benut (bijvoorbeeld de bouw van kazernes of van opleidingsruimten voor havenpolitie).
+Dat is immers de enige manier om het gelijkekansenbeleid in de hele regering te integreren en dit beleid een gezicht te geven.
+Sommige GATS-disciplines – zoals de clausules betreffende meestbegunstiging en de doorzichtigheid – gelden over de hele linie voor alle onder de GATS vallende sectoren; de bepalingen betreffende specifieke verbintenissen – markttoegang, nationale behandeling en eventuele bijkomende verbintenissen - zijn echter slechts van toepassing voor zover de landen in de desbetreffende sector een verbintenis zijn aangegaan.
+Tevens is het natuurlijk het jaar van de tenuitvoerlegging van het Verdrag, en hoewel we blij kunnen zijn over de aandacht die in dat document aan de tenuitvoerlegging wordt besteed - en hoewel ik van mening ben dat het een uitstekend idee is om in de toekomst met de lidstaten samen te werken om voor de tenuitvoerlegging van de wetgeving over de hele linie te zorgen - zou ik liever hebben gezien dat in dat document iets stond over het stuk wetgeving dat voor onze burgers van centraal belang zal zijn: het burgerinitiatief.
+Comics zijn soms moeilijk te volgen omdat personages gedood en opnieuw tot leven gewekt worden, of omdat er verschillende canons zijn in verschillende strips voor hetzelfde personage, waardoor dit niet voor iedereen opgaat maar het gebeurt nog altijd vaak.
+... HPD heeft verbeteringen getoond in alle geledingen. Perfect.
+Er is behoefte aan ambitieuze doelstellingen, stelt LIPPONEN vast. Maar als de harmonisatie van de wetgeving te snel verloopt, is dat geen goede zaak.
+Natuurlijk zorgt adidas dat de kwaliteit van al zijn producten hoog is, en de skate division is daar geen uitzondering op.
+Natuurlijk moeten we verantwoordelijk omspringen met onze financiën en prioriteiten stellen, maar dat bereik je niet met een algehele bezuiniging, zonder onderscheid, van 10%.
+Zoals ik een maand geleden al zei, ben ik bereid met hart en ziel aan een debat over dit onderwerp deel te nemen, maar zolang ik deze functie bekleed en tenzij het Parlement en de Raad hief formeel anders over beslissen, zal ik de mening toegedaan blijven dat jeder land dat zich voor zijn ontwikkeling inzet en tracht zijn eigen identiteit te bewaren — en alle streven dit na — onze steun verdient.
+Ook wij zijn voor een concept van behoorlijk werk dat in loonsverhogingen voorziet en in de invoering van een wettelijk minimumloon in alle 27 lidstaten.
+50 over de hele lijn op het paard met nummer 9.
+Oostenrijk boekt goede vooruitgang bij de uitvoering van zijn nationale hervormingsprogramma, met name op micro-economisch gebied waar, behalve ten aanzien van de concurrentie in de dienstensector, op alle gebieden aanzienlijke maatregelen zijn genomen.
+Vraag nr. 79 van de heer Papoutsis Betreft: Europese stichting voor de veiligheid op zee
+rapporteur voor advies van de Commissie cultuur en onderwijs. - (DE) Mevrouw de Voorzitter, commissaris, dames en heren, politieke initiatieven voor meer snelle internetverbindingen in heel Europa zijn in principe een goede zaak.
+Het doet ons daarom genoegen dat in dit verslag de nadruk wordt gelegd op bewustmaking en een algemene, homogene mobilisering teneinde een goed beeld te schetsen van deze plaag, die vervolgens bestreden dient te worden.
+De Voorzitter. - Aan de orde is de aanbeveling voor de tweede lezing (doc.
+1.14 Het Europese accreditatiesysteem, dat bedoeld is als een openbare dienst van algemeen belang, moet uitgaan van internationaal erkende normen en heldere definities en dient ervoor te zorgen dat de resultaten van conformiteitsbeoordelingen algemeen worden erkend en dat onnodige overlappingen van beoordelingen worden voorkomen.
+De Raad heeft een gemeenschappelijk standpuntaangenomen over de aanpassing van de EG-en Eur-atom-kaderprogramma’s in verband met de uitbreiding van de Unie, waarmee het totaalbedragmet 6,5% (800 miljoen ecu) wordt verhoogd, lineair verdeeld over de verschillende programma’s.
+Bovenop de integratie binnen bepaalde sectorale beleidsgebieden is de Commissie er bovendien in geslaagd de coördinatie te verbeteren en een omvattender, strategischer aanpak van de sectorale beleidsvorming te ontwikkelen die naar verwachting een blijvend positief effect zal sorteren en nog verder zal worden uitgebouwd.
+Het hoofddoel van de nieuwe verordening is ervoor te zorgen dat het kennisniveau wordt verhoogd, waardoor het welzijn en de veiligheid van de consument en de werking van de interne markt worden bevorderd.
+Het doel van het politieke Europa moet zijn om democratische en doeltreffende instellingen te stimuleren om op beide terreinen en over de hele linie beleid te ontwikkelen teneinde, voor zover wij dat willen en nodig hebben, te kunnen samenwerken in ons gemeenschappelijk belang.
+4.3 Naast deze voordelen, die niet worden betwist maar wel door sommigen worden gerelativeerd, stelt zich de wel controversiële vraag of het al dan niet gunstig is om een "sterke" munt te hebben.
+Gelukkig heeft één regio in het Verenigd Koninkrijk, York, een en ander begrepen en nu zelf een ontwikkelingsprogramma naar de Commissie gestuurd.
+De Commissie blijft dan wereldwijd in meerdere sectoren aanwezig, waardoor zij ook wereldwijd invloed kan uitoefenen en in alle landen een hefboomeffect kan creëren.
+Het is toe te juichen dat dé Commissie het aandeel van de hernieuwbare energiebronnen op 12 % wil brengen. Dat betekent een verdubbeling van het huidige aandeel.
+Ik stel de Commissie die vraag nu en als zij daar nu geen antwoord op kan geven, dan hoop ik dat dat volgende week in Belfast wel het geval zal zijn.
+Ontbreken van duidelijke en relevante informatie over gezondheidsrisico's terug te brengen óf men richt zich op zware drinkers of specifieke risico's zoals rijden onder invloed.
 Nauwgezet overleg over de financiële vooruitzichten op het niveau van de drie instellingen is een absolute voorwaarde voor een gecontroleerde ontwikkeling van de communautaire uitgaven. Bovendien biedt een dergelijke aanpak garanties voor de groei, het concurrentievermogen, de werkgelegenheid en de economische en sociale samenhang in het kader van een stabiele begroting.
-Het moet de Commissie wel degelijk iets uitmaken of een afwijking van het criterium van 3 procent of het minimumdoel van 60 procent van de overheidsschuld te wijten is aan een verhoging van de lopende uitgaven of een algemene vermindering van de belastingen, of veeleer aan een beleid tot herstel van de openbare en particuliere investeringen - in bijvoorbeeld onderzoek, opleiding of herscholing van oudere werknemers die langer actief willen blijven -, zeer zeker indien deze investeringen ook formeel door de Commissie worden erkend als zijnde doelstellingen van gemeenschappelijk belang.
-Continue aanpassing klinkt misschien heel simpel, “maar de structuur en de infrastructuur te ondersteunen, dat is een fundamentele verandering, en dat moet gebeuren via de raad van bestuur,” Dehghani zegt. “Het is echt triest, want soms gaan we door een heleboel hindernissen en doen experimenten en wij vinden dat een erg kleine verandering kan een dergelijk groot verschil in de bottom-line, maar wij hebben niet de mogelijkheid om dat een productie gereed code die kan schalen en kunnen daardoor al het verkeer.”
-De onlangs goedgekeurde strategie van de Verenigde Naties voor de intensivering van de internationale samenwerking met derde landen in de strijd tegen het terrorisme is ook een belangrijke stap vooruit en de Europese Unie is bereid om haar samen met alle leden van de Verenigde Naties uit te voeren. Dit is een van de toekomstige prioriteiten van de Europese Unie.
-Onze landbouw is heel verscheiden en dat is een essentiële troef, niet alleen om het hoofd te bieden aan de buitenlandse concurrentie, maar ook en vooral om een beschermd en evenwichtig milieu te vrijwaren.
-= > Het werkgelegenheidsbeleid staat nu definitief bovenaan de Europese agenda. Door de nieuwe titel over werkgelegenheid in het Verdrag van Amsterdam is de werkgelegenheid erkend als zaak van gemeenschappelijk belang. De Werkgelegenheidstop te Luxemburg gevolgd door de goedkeuring van de werkgelegenheidsrichtsnoeren voor 1998 en de indiening van nationale actieprogramma's voor de werkgelegenheid hebben de coördinatie van het werkgelegenheidsbeleid van de lidstaten gestimuleerd door de ontwikkeling van een geïntegreerde werkgelegenheidsstrategie. = > De Raad heeft verscheidene belangrijke wetgevingsvoorstellen goedgekeurd, en daarmee bijgedragen tot de vervollediging en consolidering van het kader van minimale sociale vereisten ter onderbouwing van de interne markt. Deze vooruitgang is vergemakkelijkt door de grotere samenwerking in het besluitvormingsproces met de sociale partners, ingevoerd bij de Overeenkomst betreffende de sociale politiek. = > De Commissie heeft een reeks gedetailleerde en ambitieuze werkprogramma's goedgekeurd. Deze beleidsinitiatieven - zoals het Actieplan voor het vrij verkeer van werknemers en het Groenboek over de werkorganisatie - zijn bouwstenen voor de lopende vernieuwing van het sociaal beleid. Bedoelde teksten staan vermeld in bijlage 1. = > De discussie over het sociaal beleid is verbreed en verdiept op allerlei gebieden van gemeenschappelijk belang - zoals de demografische ontwikkelingen, de modernisering van de sociale zekerheid en de bestrijding van racisme - waar een gemeenschappelijke Europese discussie, samenwerking en uitwisseling van informatie en goede praktijken duidelijk een toegevoegde waarde hebben. = > De sociale dialoog levert degelijke resultaten op en de maatschappelijke dialoog is rijper geworden, wat de legitimiteit en de doeltreffendheid van de activiteiten op Europees niveau vergroot. = > De banden tussen het sociaal beleid en andere communautaire beleidslijnen zijn aangehaald vanuit de overtuiging dat sociale vooruitgang over de hele lijn moet worden bewerkstelligd. Voorbeelden hiervan zijn het streven naar gelijke kansen'voor mannen en vrouwen op alle gebieden, de integratie van vereisten ter bescherming van de gezondheid in andere communautaire beleidslijnen en de mededeling over milieu en werkgelegenheid uit 1997. Page 8
+roept de Commissie op om dit beginsel voortaan zonder uitzondering toe te passen en benadrukt daarbij de voorbeeldfunctie en bijzondere verantwoordelijkheid van het leidinggevende personeel op de hoogste niveaus;
+Dat we er wederom in zijn geslaagd om in de volle breedte te groeien, laat zien dat we op alle fronten in beweging zijn.
+Wij hebben er in de Vervoerscommissie het volste vertrouwen in dat al de door ons goedgekeurde infrastructuurkredieten voort aan zullen worden besteed.
+Beperking van sommige produkties mag niet steunen op algemene prijsverlaging.
+En 15 procent eraf voor iedereen. Wij willen één procent meer belasting voor de allerrijksten.
+Ik ben er zeker van dat adverteerders en agentschappen over de hele linie zijn echt na te denken over deze Facebook-gegevens exploitatie en hoe ze gaan om de gegevens te gebruiken.
+In het algemene debat complimenteerden sprekers ongeacht hun achtergrond, de werkgroep met haar conclusies, en haar voorzitter met zijn resultaat, namelijk over een ingewikkelde zaak, die in het verleden aanleiding is geweest tot bezorgdheid en onenigheid, een verslag op te stellen waarover een hoge mate van consensus bestaat.
+Met betrekking tot de twee amendementen is de Commissie van plan akkoord te gaan met amendement 2, dat beoogt het niveau van teruggooi te beperken in plaats van direct een volledig verbod in te stellen over de hele linie.
+Talrijke landen in Zuid-Europa en elders bevinden zich in een deplorabele economische situatie, terwijl het Internationaal Monetair Fonds, de Europese Centrale Bank en de Europese Commissie immense horizontale kortingen op alle staatsuitgaven eisen en de publieke investeringen in onderzoek ongeveer tot nul zijn gereduceerd.
+Uit de resultaten blijkt ondubbelzinnig dat er sprake is van een sterk ontmoedigende werking ten aan zien van de schepping van opleidingsplaatsen binnen onder nemingen. Dit kan op basis van per land beschikbare gegevens ook voor andere Lid-Staten, zoals Frankrijk, worden gesteld.
+Finland heeft hierop gereageerd door de belastingtarieven voor alcoholhoudende dranken over de hele linie met gemiddeld 33% te verlagen, wat veruit de meest ingrijpende wijziging in 40 jaar is geweest.
+Naar een sterk concurrentievermogenin heel Europa
+De liberale fractie wil de toegang van de burger tot de rechter vergemakkelijken, de drempel als het ware verlagen.
+Maar dat kan niet met een generieke bezuiniging van 10%.
+Ook de uitbreiding van de werkingssfeer van IPPC-richtlijn 96/61/EG tot de intensieve viskweek zou leiden tot betere prestaties op milieugebied in het algemeen en zou de Europese consument kunnen geruststellen over de ecologische duurzaamheid van de sector.
+Maar dit moet dan wel de komende periode over de hele linie consistent gebeuren.' _ Voor meer informatie kunt u contact opnemen met Daniëlle de Jong, woordvoerder AFM, via 020-797 2129 of danielle.de.jong@afm.nl De AFM maakt zich sterk voor eerlijke en transparante financiële markten.
+Met de algemene toepassing van het partnerschapsbeginsel (gekoppeld aan een Europese gedragscode voor samenwerking) waarvoor wordt uitgegaan van artikel 5 van het voorstel voor een verordening houdende gemeenschappelijke bepalingen, worden meerdere doelstellingen nagestreefd.
+In feite gaat het uit van de stelling dat het binnen afzienbare tijd mogelijk zal zijn om in alle staten hetzelfde economisch beleid toe te passen, wat betekent dat de problemen, en dus ook onze samenlevingen, onder één noemer zullen worden geplaatst.
+China heeft over de hele linie vorderingen gemaakt, waardoor het land weer een stapje dichter bij de vervulling van de vier nog resterende criteria voor de toekenning van de status van markteconomie is gekomen.
+Als wij kijken hoe de landbouwprijzen zijn veranderd sinds 1992, dan kunnen wij constateren dat over het hele front ongeveer een vermin dering van de landbouwprijzen in Duitsland heeft plaats gevonden met 107c en een verhoging van de landbouwprijzen in Italië van 40%.
+Daarom zouden de lidstaten de laagste inkomens van belasting vrij moeten stellen en hoe dan ook de drempel moeten verlagen waardoor om bijvoorbeeld fiscale redenen zelfs het aannemen van tijdelijk werk wordt tegengegaan.
+Het EP moet vooraf met de Commissie en de Raad besluiten wanneer gedetailleerde wetgeving noodzakelijk is, wanneer kaderwetgeving volstaat en wanneer een vorm van coregulering of zelfregulering mogelijk is.
+Daarnaast vinden ook wij het van belang dat er in de toekomst op alle beleidsgebieden van de Unie meer aandacht wordt besteed aan de behoeften en belangen van jongeren.
+'The Insatiable Weakness' is kortom een avontuurlijk album, dat niet over de gehele linie even sterk en consistent is, maar wel een uitdaging is voor de fan die van een uitdaging houdt.
+Bevordering van de gelijkheid van de geslachten moet horizontaal op alle punten van de sociale agenda worden nagestreefd; in aanvulling daarop moet ereen aantal specifieke maatregelen worden genomen om vrouwen toegang totde besluitvorming te geven en om de rechten op het gebied van gelijkheid envan de combinatie van gezins- en beroepsleven te versterken.
+In deze mededeling zijn middelen voorgesteld om het EU-beleid doeltreffender te maken door het vastleggen van doelstellingen op kort en middellange termijn en van actiepunten die bedoeld zijn om de relaties tussen de EU en China in het algemeen nader toe te spitsen met het oog op het bereiken van de langetermijndoelstellingen van de Unie bij de betrekkingen met China.
+Toegewijd bestuur Op de Diversity and Inclusivity Day, werd het UM-beleid besproken dat een omgeving moet gaan creëren waarin iedereen de ruimte krijgt om andere te inspireren en geïnspireerd te worden.
+Dit zou over de hele linie gelden voor de betrokken sectoren, behalve als dat uitdrukkelijk is aangegeven.
+Het design, dat werd ontworpen in samenwerking met de ontwerpstudio SYN, overtuigde de vakjury over de hele linie en wordt bekroond met de "Red Dot" zegel, de op één na hoogste onderscheiding van het instituut.
+Ten tweede worden wij door de uitbreiding geconfronteerd met een enorme uitdaging. Het Parlement heeft zijn ongerustheid tot uiting gebracht over het gevaar dat er een vlucht van knappe koppen naar het Westen zal ontstaan.
+Dit geldt eveneens voor de gevallen waarin het normale tarief de regel is, zonder dat enig verlaagd tarief kan worden toegepast, en waarin een minderheid van lidstaten op grond van derogaties van deze regel mag afwijken en tarieven mag toepassen die sterk onder die in de rest van de Gemeenschap liggen.
+Wat volgt is een overzicht van recente uiteenlopende sociaal-economische ontwikkelingen, waarin de meest opmerkelijke ontwikkelingen in de EU en de afzonderlijke lidstaten voor het scorebord in het algemeen en voor elk van de vijf indicatoren in kaart worden gebracht.
+a) de gedetailleerde beschrijving van de procedure voor de opstelling door de Commissie van de lijst van kandidaten (na een open sollicitatieprocedure waarvoor in het Publicatieblad van de Europese Gemeenschappen en op andere plaatsen een oproep tot het tonen van belangstelling is verschenen); deze beschrijving is overbodig aangezien het bij de voorgestelde procedure om dezelfde procedure gaat die al voor alle agentschappen wordt toegepast;
+En verder is het van belang dat de technische controleniveaus doeltreffend zijn en dat wagens uit de omloop worden genomen die niet aan deze modellen voldoen.
+Dat betekent dat elk jaar opnieuw de bestaande mechanismen kunnen worden bijgesteld in het licht van het voorafgaande jaar. Daar gaat het precies vandaag om.
+Wij hebben hier te maken met situaties over de gehele linie waarvan zowel vrouwen als mannen het slachtoffer zijn.
+Met betrekking tot de MEDA-verordening, waarover de heer Sarlis het had, en tot de verdeling van de fondsen voor de verschillende mediterrane landen, zoals het Europees Parlement heeft voorgesteld, achtte de Raad het belangrijk het conflict tussen Griekenland en Turkije zo snel mogelijk te regelen, zoals ook de heer Prodi al heeft gezegd, om de MEDA-verordening ten gunste van alle belanghebbende landen, met inbegrip van Turkije, ten uitvoer te kunnen leggen, mede ter uitvoering van de douane-overeenkomst tussen de Europese Unie en Turkije.
+hij verlangt dat de Commissie, in overleg met de lidstaten, het Europees Parlement en alle andere belanghebbende partijen, in het kader van de komende strategische evaluatie op het gebied van betere regelgeving, die begin 2008 zal plaatsvinden, nagaat hoe de Commissie, de Raad en de lidstaten de bestaande instrumenten van betere regelgeving, waaronder het analyseren van de administratieve kosten in effectbeoordelingen, feitelijk over de hele linie toepassen op nieuwe voorstellen en bestaande wetgeving, vooral die welke de interne markt raken, en of de instrumenten voor verdere verbetering vatbaar zijn.
+Ziekte aan de andere kant van het bord zal niet gaan verdwijnen totdat de bevolking voldoende licht heeft geabsorbeerd om te geloven dat ze ziekte-vrij kan zijn – geloof schept werkelijkheid.
+Acht de Commissie het in dit verband wenselijk een gespecialiseerde instantie op te richten, die zich bezig houdt met vereenvoudiging van procedures, de vaststelling van gemeenschappelijke doelstellingen en selectiecriteria, en die ook aan de geïnteresseerden informatie verstrekt over de programma's van de EU ter ondersteuning ter bevordering van innovatieve groene technologie?
+Helaas is die vooruitgang niet overal gelijkelijk verdeeld en zijn vooral vrouwen die op het platteland of in de informele sector werken, er nog steeds heel slecht aan toe.
+de afloop van de Ontwikkelingsagenda van Doha ten gunste van ontwikkeling te versterken
+Ten eerste, in tegenstelling tot reset --hard, is checkout veilig voor de werk-directory; het zal controleren dat het geen bestanden weggooit waar wijzigingen in gemaakt zijn. Eigenlijk is het nog iets slimmer dan dat - het probeert een triviale merge in de werk directory te doen, zodat alle bestanden die je niet gewijzigd hebt bijgewerkt worden. Aan de ander kant zal reset --hard eenvoudigweg alles zonder controleren vervangen.
+Vooral de intentie om tot een werkelijke coördinatie van het sociaal-economisch beleid in de volle breedte te komen, spreekt mij zeer aan.
+Te oordelen naar het aantal geregistreerde octrooien valt op dat de positie van de drie grote industriële mogendheden per technologische sector verschilt: de geavanceerde technologie wordt gedomineerd door Japan, terwijl de Amerikaanse industrie in alle bedrijfstakken sterk aanwezig is en in Europa, waar de kosten voor het registreren van octrooien trouwens veel hoger zijn, het aandeel van de traditionele sectoren aan het toenemen is.
+Als wij de Conventie willen laten slagen en Europa in de toekomst slagvaardig willen maken, is het naar mijn mening van doorslaggevend belang dat wij de Europese Unie vergaand democratiseren en de rechten van de individuele burgers versterken.
+Die kapitaalbuffer is voor alle banken ook toereikend wanneer deze wordt getoetst aan de nieuwe voorschriften van de richtlijn kapitaalvereisten IV voor de evaluatie van het eigen vermogen van banken.
+Als een team een ​​doelpunt scoort (achtereenvolgens alle doelnummers over het bord raken en eindigen op de doellijn van het andere team {de dubbele 6 of 11}), verdient dat team 6 punten en heeft het de mogelijkheid om voor een extra punt te gooien.
+Dit levert een een brede uitdaging op voor de innovatie- en onderzoeksactiviteiten van de automobielindustrie.
+In lijn met de NWO breed ingezette harmonisatie en vereenvoudiging van financieringsinstrumenten is de ZonMw Open Competitie een vervanging van de programma's ZonMw TOP-subsidies én Investeringen Middelgroot.
+Uit het onderzoek van de nationale hervormingsprogramma’s van de lidstaten, dat in het jaarlijkse voortgangsverslag van de Commissie en in het gezamenlijk verslag over de werkgelegenheid is opgenomen, blijkt dat de lidstaten de hervormingen van het werkgelegenheidsbeleid over de hele linie dienen voort te zetten overeenkomstig de prioriteiten die in de richtsnoeren voor 2005-2008 zijn vastgesteld.
+De daadwerkelijke bevordering hangt af van verschillende elementen, in die zin dat er in de eerste plaats een vacature dient te zijn voor een post van een hogere rang, en in de tweede plaats, dat hij op de lijst van voor bevordering in aanmerking komende kandidaten moet blijven staan.
+Naar mijn mening is het overal toepassen van een 50/50-balans tussen mannen en vrouwen geen bewijs dat we echt bezig zijn met gelijke behandeling.
+Daar zal voor het eerst een experiment met uitsluitend elektronisch betalingsverkeer in een grotere ruimte worden uitgevoerd.
+Wij herinneren er ook aan dat de genderdimensie in al het communautaire beleid tot uitdrukking moet worden gebracht en vestigen met name de aandacht op …
+Deze mededeling spitst zich toe op de fundamentele rol van het onderwijs en op het vaststellen van wijzen waarop de inspanningen van de lidstaten kunnen worden ondersteund, hetzij in specifieke onderwijssectoren (hoofdstuk 2), hetzij op alle niveaus (hoofdstuk 3).
+Het ESC baseert zich in dit advies op hetzelfde uitgangspunt, maar volgt een iets andere benadering: fraude - met name belastingfraude - is slechts een van de activiteiten van de georganiseerde misdaad, die zich in haar activiteiten niet tot één sector beperkt.
+De gelijkheid van kansen is een horizontale prioriteit in al­le actieprogramma's op het gebied van on­derwijs, opleiding en jeugdzaken.
+De richtlijnen inzake gelijke behandeling van mannen en vrouwen moeten over de gehele linie worden toegepast en gelden dus ook ten aanzien van transseksuelen. De Commissie is derhalve bereid om dit standpunt waar nodig te verdedigen.
+Ik zou graag enkele statistieken geven die specifiek betrekking hebben op de Ierse situatie, niet omdat ik hiermee kritiek wil uitoefenen op de Ierse regering, maar omdat – als we op dit terrein volledige samenwerking nastreven – het noodzakelijk is te laten zien hoe slecht de situatie in sommige landen is.
+De Raad en de Commissie zullen nooit met een algemene verhoging met 1% instemmen.
+Door het voordeel van een partnerschap met Microgaming, Grand Hotel krijgt het voordeel van de 128-bits SSL-codering, meestal de standaard over de hele linie in de game-industrie momenteel. Alle verkeer wordt gewaarborgd door deze indeling en communicatie blijven privé en handig. Verder is er eCogra te beschouwen als goed, een onafhankelijk accountantsbureau, erkend voor de spelers als casino'S vrijwillig naar hun bewaking.
+Dit selectieve karakter onderscheidt staatssteunmaatregelen van algemene economische-ondersteuningsmaatregelen die globaal genomen gelden voor alle bedrijven in alle sectoren van economische activiteit.
+De 15de afdeling is trots om daling te rapporteren van 20% in zware misdaden in de laatste drie periodes.
+Zij zijn van mening dat de burgers ook in hun dagelijks leven en hun dagelijkse omgeving toegang moeten hebben tot informatie over de EU. Tot slot vinden zij een allesomvattende samenwerking tussen de EU en nationale educatieve instellingen noodzakelijk met het oog op de kennisoverdracht inzake culturele, historische en politieke verbanden.
+Het is dan ook dienstig in de mogelijkheid te voorzien om horizontaal in het kader van deze richtlijn maximumgehalten voor ongewenste stoffen en producten in toevoegingsmiddelen vast te stellen.
+In dit verband is het essentieel dat de genderdimensie automatisch in alle activiteiten wordt bevorderd en geïntegreerd.
+Zo worden algemene subsidies die niet bepaalde bedrijven ten opzichte van andere bevoordelen,doorgaans niet geacht de handel te verstoren.
+Maar over de gehele linie mis ik de energie, de kwaliteit én het vuur van bands als Molly Hatchet of Atlanta Rhythm Section; dat niveau benaderen deze jongens simpelweg niet.
+De horizontale gevolgen van de vereenvoudiging moesten gepreciseerd worden.
+We konden suiker volledig elimineren voor alle bereide producten en frisdranken en het vervangen met volledig natuurlijk vers fruit.
+Het “statistisch effect” zoukunnen worden gecompenseerd door een overgangsregeling of door een verhoging van de drempel om voor steun in aanmerking te komen.
+BRENGT IN HERINNERING dat instemming met sociale doelstellingen niet voor protectionistische doeleinden mag worden aangewend; het doel is het bereiken van sociale vooruitgang over de gehele linie, waarbij er voor gezorgd moet worden dat deze eerlijk wordt verdeeld ten behoeve van allen;
+Op grond van de verzoekschriften die we hebben ontvangen stelt de Commissie verzoekschriften dat emigranten ook mensen zijn.
+Daarna kunt u ook leren om vrij over het board te kunnen bewegen en uw darts daar te krijgen waar u ze hebben wilt.
+Tegelijkertijd is algehele afschaffing nodig van de medeverantwoordelijkheidsheffing, die gelijkelijk wordt toegepast op alle producenten, en vervanging daarvan door een speciale heffing op de „melkfabrieken" die niets anders zijn dan werkplaatsen voor verwerking van geïmporteerde voedingsstoffen, zonder enige eerbied voor het milieu.
+De Lid-Staten doen de Commissie mededeling van hun toelatingsvoorwaarden voor nieuwe netwerkexploitanten en dienstverrichters.
+Het is onwaarschijnlijk dat verhoging van heffingen over de hele linie doeltreffend zal zijn, aangezien deze geen rekening houdt met de vereiste differentiatie.
+De Unie wordt efficiënter naarmate zij democratischer wordt. Medebeslissing voor het Europees Parlement over de hele linie en een drastische versterking van de rol van nationale parlementen zijn daarvoor essentieel.
+NGO's kunnen beslissen een procesvoe-ringsstrategie te volgen, of procesvoeringsprioriteiten te leggen, of een grensoverschrijdende dienstverlening aan te bieden.
+Europa moet namelijk de zekerheid hebben dat een versnelde procedure niet algemeen en systematisch wordt toegepast, en dat de behoefte aan internationale bescherming, asielrecht en het principe van niet-uitzetting worden gegarandeerd.
+De crisis in de landbouw, een buitengewoon kwetsbare sector, krijgt de dimensies van een ware ramp.
+Ik heb voor dit document gestemd, omdat in het algemeen steeds meer wordt erkend dat visserijbeheer gebaseerd moet zijn op actuele nauwkeurige wetenschappelijke kennis van de situatie van de visbestanden.
+Het is ontzettend jammer dat juist nu ook de criteria van Kopenhagen, die voor elke kandidaat-lidstaat gelden, daar in gevaar zijn.
+Deze procedures worden systematisch bij de aanwerving van nieuwe arbeidskrachten in alle functies toegepast, zonder dat daarbij onderscheid wordt gemaakt naar nationaliteit.
+Van zeer goed of uitstekend functioneren is sprake, als je in de volle breedte ver boven de gestelde eisen functioneert en aantoonbaar excellente resultaten behaalt.De toelage bedraagt ten hoogste 15% van jouw salaris.De functioneringstoelage kan (in beginsel) voor maximaal één jaar worden toegekend, maar kan worden verlengd als naar de mening van de faculteit of eenheid nog steeds sprake is van zeer goede of uitstekende vervulling van je functie.
+Wil de Unie het gebruik van duurzame energiebronnen stimuleren, dan moeten op een groot aantal van haar beleidsterreinen - waaronder landbouw, externe aangelegenheden, onderzoek, technologische ontwikkeling en demonstratie, fiscaal beleid, en regionaal en milieubeleid - initiatieven worden ontplooid.
+Over en weer is vooruitgang noodza­kelijk als dubbele fundering voor stabiele en construc­tieve betrekkingen tussen de landen van Oost en West."
+Het voorstel is in het algemeen verenigbaar met de besluiten van de Top van februari en het interinstitutionele akkoord dat daar daarmee gesloten werd veronderstelt terugkeer tot budgettaire normaliteit en biedt het Parlement een kans om de eerste lezing aan te vragen in een rustig klimaat, zonder twijfel een grondslag voor doeltreffende politieke besluiten.
+Deze aanbevelingen van de Commissie bieden een horizontale analyse van de belangrijkste vraagstukken in verband met de ontwikkeling en integratie van de ultraperifere regio's.
+Ik weet wel dat u gezegd hebt dat die wetten niet integraal zouden worden toegepast, dat de akkoorden van Londen het mogelijk hebben gemaakt de positie van Europa in dit opzicht te versterken, maar ik zie niet erg in waar de vrijhandelsgeest zit op dit gebied.
+De vrijheid van meningsuiting, vereniging en vergadering dient bij wet en in de praktijk ten volle te worden gegarandeerd, en er dient een sterke traditie van respect voor de mensenrechten over de hele lijn te worden opgebouwd, meer bepaald de bescherming tegen alle vormen van discriminatie in de politiek en in het dagelijkse leven.
+We mogen niet de moeilijkheden in verband met dit onderwerp onderschatten. Ik wil in ieder geval volkomen duidelijk maken dat ik er persoonlijk voorstander van ben dat de beginselen van pluralisme van informatie over de gehele linie worden nageleefd.
+De synchronisatie van deze processen zal de beleidscoördinatie op alle fronten versterken om het economisch groeipotentieel van de EU te verhogen en te streven naar volledige werkgelegenheid tegen het jaar 2010.
+Besluit 94/268/Euratom van de Raad betreffen­de een kaderprogramma voor communautaire acti­viteiten op het gebied van onderzoek en onderwijs voor de Europese Gemeenschap voor Atoomener­gie — PB L 115 van 6.5.1994 en Buil. 4­1994, punt 1.2.70
+Wanneer u de racer verslaan, vervangt u de rangschikking van hiCubefieldCubefieldSchuif over de hele linie terwijl het vermijden van kubussen.
+De tweede verdedigingslinie is manipulatie op macro-niveau van de kapitaaleisen, wat zowel over de hele linie als op specifieke marktsegmenten, zoals hypotheken, kan worden toegepast.
+Het EP is teleurgesteld dat de Europese regeringsleiders wel veel nadruk leggen om democratie en openbaarheid, maar in hun conclusies over de Top van Tampere op geen enkele manier verwijzen naar de inbreng van het Europees Parlement.
+Er dienen over de hele linie maatregelen te worden genomen om het aantal vrouwen dat werkzaam is in de informatie- en telecommunicatie-industrieën uit te breiden.
+Het is niet een kwestie van het verdedigen van een , maar van kijken hoe we in deze nieuwe omstandigheden kwalitatief hoogwaardige diensten voor al onze burgers kunnen waarborgen.
+Waar ik niet van houd en nooit van gehouden heb, is de manier waarop de Raad de Europese begroting aanpakt. Ieder voorstel van Commissie of Parlement met de botte bijl wegsnoeien is geen begrotingstechniek maar een echt voorbeeld van een financiële slachtpartij.
+Het dringt aan op een ver laging van de belastingdruk, met name via een veralgemening van de experimentele maatregelen voor verlaging van de BTW op alle arbeidsintensieve activiteiten.
+Deze door de Commissie aanbevolen produktieverminderingen zijn een minimum en kunnen worden gerealiseerd door een combinatie van, ten eerste uit-koopregelingen, ten tweede algemeen geldende
+Duurzame ontwikkeling verwijst immers zonder meer naar alle sectoren van het economisch en maatschappelijk leven, terwijl regionale integratie meer betrekking heeft op economische samenwerking via specifieke handelsovereenkomsten en -maatregelen.
+Dat geldt horizontaal, maar ook sectoraal en met name is dit van toepassing op de zeevaartsector.
+Het is daarom essentieel dat we overal in de EU de bureaucratie bij het gebruik van middelen uit de Europese fondsen terugdringen.
+Dat punt heeft het voorzitterschap welbewust niet overgenomen. De reden daarvan is dat met de al toegenomen werklast ten gevolge van de uitbreiding, het niet verantwoord is het Hof nu onmiddellijk ook te belasten met de rechtspraak op het gehele terrein van Justitie en Binnenlandse Zaken.
+Het breed inzetten van het cohesiebeleid is de enige manier om het welslagen van de Europa 2020-strategie te garanderen.
+Chuzzle - Sleep je schattige vriendjes over het bord op Zylom!
+Met betrekking tot de innovatieve industrie heeft de Commissie voorgesteld de periode voor gegevensbescherming overal vast te stellen op tien jaar. Zij beschouwt dit als essentieel voor een soepeler werking van de interne markt.
+Persverslag door onafhankelijke, door de orde van geneesheren aangewezen artsen.
+In de tweede plaats is de regeling niet van invloed op de concurrentie, aangezien elke onderneming voor de stimulans in aanmerking komt als zij aan een Europese effectenbeurs wordt genoteerd. De regeling is algemeen van toepassing in alle economische sectoren en alle bedrijfstakken; het gaat bijgevolg om een niet-selectieve maatregel.
+Er hebben over de hele linie constante verbeteringen plaatsgevonden op het punt van het respect voor de mensenrechten.
+Maar ik vraag me af of het in het belang van het behoud van wilde vogels is als deze met alle geweld beschermd worden en elke soortbeheersing verboden wordt.
+In het land dat ik het beste ken, waar we zijn meegevoerd naar een algemene verlaging van de btw met 2,5 procent - met, aldus de heer Allister, economisch gezien weinig of geen duidelijke respons of uitkomst - denk ik dat het veel doeltreffender zou zijn geweest om de maatregel te concentreren op bepaalde delen van arbeidsintensieve lokale sectoren en daar de btw substantieel te verlagen van 17,5 procent naar het lage tarief van 5 procent of nog lager.
+Betere stadsplanning zal door de bank genomen leiden tot grotere levenskwaliteit en nieuwe banen scheppen omdat zij een impuls geeft aan de markt voor nieuwe technologieën en groene architectuur.
+Druk op de linker en rechter pijl toetsen om te sturen, op en neer toetsen om de snelheid en de spatiebalk controle om te springen.Cubefield 4,805 toneelstukken CubefieldSchuif over de hele linie terwijl het vermijden van kubussen.
+Een nog op te richten Netherlands Academy of Religion waarin onderzoekers uit alle geledingen samenkomen, lijkt de commissie een geschikte organisatievorm om een dergelijk breed onderzoeksprogramma uit te voeren.
+Men is unaniem van mening dat van ontwikkeling pas sprake kan zijn als er algemene voorwaarden voor vrede en veiligheid worden gecreëerd.
+De heer Wynn (S), schriftelijk. — (EN) De begroting 1994 wordt voorbereid zonder dat een interinstitutioneel akkoord is gesloten.
+"Het is duidelijk dat er geen behoefte is aan totale harmonisatie van de belastingstelsels van de lidstaten.
+Drugspreventiestrategieën en -programma's worden bepaald door de prioriteit die wordt gegeven aan het terugdringen van drugsgebruik in het algemeen of aan een focus op risicofactoren voor blijvend en potentieel problematisch gebruik.
+We stellen niet eerst vast hoe er in Europa in het algemeen wordt gedacht over gegevensbescherming om vervolgens die visie horizontaal toe te passen op alle mogelijke onderwerpen en internationale partners of het nu, zoals vandaag, om de Verenigde Staten gaat, of in de toekomst om China, Zuid-Korea of Saoedi-Arabië; kortom, alle internationale partners die hetzelfde soort gegevens opvragen.
+Ik vind het goed dat in het verslag wordt benadrukt dat de steun transparant moet zijn.
+De Raad en de vertegenwoordigers van de regeringen van de lidstaten, in het kader van de Raad bijeen, vertrouwen erop dat de aandacht nu zal worden gericht op de constante kwaliteit van de uitvoering van de bijstand overal in alle ontwikkelingslanden, en
+Sommige delegaties vinden dat de quota in alle lidstaten moeten worden verhoogd.
+Zodra we ervan overtuigd zijn dat de besmetting een halt is toegeroepen, zullen we ons concentreren op wat er is gebeurd in de informatiesector, op het punt van de onderzoeksprotocollen en in termen van de coördinatie over de hele linie toen de crisis zich voordeed, en we zullen ons dan bezinnen op de vraag of we meer hulpmiddelen en nauwere Europese coördinatie nodig hebben.
+Het IR­DAC moet de Commissie van advies dienen bij de voorbereiding en de tenuitvoerlegging van het communautaire beleid op het gebied van het industriële onderzoek­ en ontwikkelingswerk.
+Het tweede niveau is dat van ICT als een facilitator op alle terreinen en in alle sectoren met economische activiteit.
+En niet alleen actie van de zijde van het Ministerie van Handel, maar over de gehele linie, van de regelgevingsinstanties en de ministeries die in alle onderdelen van de Chinese economie de markttoegang beperken en de wetshandhaving belemmeren.
+Het zou uiteraard onmogelijk zijn dergelijke maatregelen zonder meer meteen voor een onbeperkt aantal projecten tegelijk te treffen.
+Ik ben er zeker van dat u mij gaat antwoorden dat er geen dergelijk artikel in ons Reglement staat.
+Dit programma dat van toepassing is op alle sectoren, betreft in de eerste plaats de zeer kleine ondernemingen die werkgelegenheid bieden aan 1 à 2 personen en heeft een gering concurrentievervalsend effect.
+Oostenrijk boekt goede vooruitgang bij de tenuitvoerlegging van zijn nationale hervormingsprogramma, met name op micro-economisch gebied waar, behalve ten aanzien van de concurrentie in de dienstensector, op alle gebieden aanzienlijke maatregelen zijn genomen.
+Hoe het ook zij, voor ons blijft de hamvraag of wij moeten eisen dat deze verlaging aan alle landbouwers zonder onderscheid wordt opgelegd, dan of wij van de grote landbouwers moeten eisen dat zij hun produktie meer inkrimpen dan de kleine.
+De k oersen zetten door...
+(20) De verkoop van Moulinex is in het algemeen aanzienlijk gedaald tussen 2000 en 2002.
+Zo speelt vanuit het oogpunt van het managements de Q-certificering die door de Kooperationsgesellschaft ServiceQualität Deutschland aan alle 17 Welcome-bedrijven is toegekend een belangrijke rol als het om klanttevredenheid en verbetering van de dienstverlening gaant. Na een intensief marktonderzoek hebben de Welcome-hotels reeds in 2010 besloten om de kwaliteit van de dienstverlening, die voornamelijk gericht is op het verbeteren van de klanttevredenheid en de dienstgerichtheid, in de gehele groep te implementeren.
+Deze vaardigheden moeten thans ontwikkeld worden.
+Het ESF wil daarbij verzekeren dat de hulpbronnen op de doeltreffendste manier worden gebruikt ten gunste van de prioriteiten van de Gemeenschap, meer in het bijzonder: verbetering van de toegang tot en de kwaliteit van onderwijs en initiële opleiding, in het bijzonder door middel van de progressieve ontwikkeling van een programma dat een gekwalificeerd onderwijs of een gekwalificeerde opleiding garandeert voor alle jongeren (YOUTHSTART), maar ook door middel van de bevordering van het menselijk potentieel op het gebied van onderzoek, wetenschap en technologie (in de doelstellingen 1, 2, 5b en 3);
+De Raad is verheugd dat er opnieuw vooruitgang is geboekt bij de uitbreiding en het gebruik van de databank inzake markttoegang waarover de Europese exporteurs via Internet kunnen beschikken, en bij de ontwikkeling van een algehele aanpak voor markttoegangsbelemmeringen in derde landen.
+De mobiele breedbandtoegang op het hele grondgebied is een primaire vereiste, in het belang van de Europese burgers. Daarnaast moeten we echter ook blijven werken aan de verbetering van de openbare en commerciële omroepdiensten, die een belangrijk instrument zijn voor de informatie en voor de culturele diversiteit.
+Het vereiste dat zeggenschap over een andere onderneming wordt uitgeoefend is dan ook een horizontaal criterium dat voor alle ondernemingen geldt, ongeacht hun omvang, de bedrijfstak waarin zij actief zijn of enig ander onderscheid.
+Het beginsel, dat goed blijkt te werken voor de goederenmarkt, zal nu ook in al zijn onderdelen worden toegepast op de dienstenmarkt.
+Niet alleen de eenheid voor Europa, maar ook haar concurrentiepositie als zodanig is ermee gemoeid.
+De heer Boual merkt op dat de EU op al haar beleidsterreinen moeilijkheden ondervindt om vooruitgang te boeken.
+Hoe de beoordelingen over de hele linie gestegen zijn vanwege mij.
+– Mevrouw de Voorzitter, geachte afgevaardigden, ofschoon ik niet over precieze gegevens beschik, kan ik stellen dat een algemene toepassing van de regels die in de gemeenschappelijke consulaire visumvoorschriften staan, zeer belangrijke gevolgen heeft voor de Europese Unie. Het gaat namelijk om duizenden mensen die verzoeken om toegang tot de Unie en een visum aanvragen.
+worden in partijen met extreem-rechtse ideeën of partijen die vreemdelingenhaat in hun programma opnemen.
+Om misbruik tegen te gaan komen alleen bedrijven met meer dan 300 bomen voor deze rooisubsidie in aanmerking.
+Een tekortkoming van deze verordeningen is dat zij lineair zijn, gelijk voor het geheel van een zeer gevarieerde werkelijkheid.
+Volgens het Comité zou de Commissie een comparatief onderzoek moeten (laten) uitvoeren naar het spaargedrag in de lid-staten, of zelfs de oprichting van een klein instituut moeten overwegen om alle gegevens betreffende het sparen te onderzoeken en de nodige studies te verrichten.
+— maximaal 5 % van de landbouwproductie vorm van: mag steun krijgen in het kader van de „blue box”; er is
+De eis van eenvoud is zonder uitzondering van toepassing op alle wetgevingsvoorstellen, en ook op operationele procedures.
+U begrijpt dat het sturen van een dergelijk proces geen eenvoudige taak is, maar ook ten aanzien van dit punt heeft minister Frattini, als voorzitter van de IGC, de deur open willen houden. Hij heeft aangegeven te hopen dat de kwestie in een breder perspectief wordt geplaatst en dat men zich realiseert dat meer efficiëntie bij het zoeken naar een oplossing betekent dat de akkoorden die gesloten worden te zijner tijd ook gemakkelijker kunnen worden gewijzigd.
+De aanzet om de eisen inzake volksgezondheid te integreren in de beleidsvormen van de EU is het mogelijke ver­band geweest tussen BSE en de nieuwe variant van de Creutzfeld-Jakob-ziekte (CID).
+Ik mag er misschien nogmaals aan herinneren, dat deze hulp wordt verleend via de nietgouvernementele organisaties, waarvan de activiteiten door de UNBRO worden gecoördineerd, en dat deze hulp strikt onder worpen is aan de mogelijkheid voor de verantwoordelijke nietgouvernementele organisaties het gebruik er van in de kampen te kunnen controleren.
+Er zijn geen ratings medegedeeld voor CNRC of haar dochterondernemingen.
+We moeten eerst een manier vinden waarop we alle lidstaten hiertoe aan kunnen zetten. Tot die tijd heeft het geen zin als slechts één lidstaat het programma implementeert, en datzelfde geldt voor twee of zelfs drie, vier of vijf lidstaten.
+Er zou iets goeds uit die discussie kunnen komen, als regeringen van landen met een hoge belasting tot de conclusie kwamen dat lagere belastingen in het al gemeen, en niet alleen in deze frivole uithoek van de economie, goed zijn voor de werkgelegenheid.
+De bevoegdheden van artikel 6 van de richtlijn zijn door alle lidstaten waar zij vóór de omzetting van de richtlijn ontbraken vrijwel integraal overgenomen.
+Het bij iedereen vergroten van de kennis en vaardigheden met betrekking tot ICT is een onmisbare voorwaarde voor succes in de kenniseconomie.
+Wij zullen deze programma's dus in hun onderling verband bestuderen, die verschillende bestaande instrumenten aanwenden en daaraan toevoegen wat nodig is, niet alleen met extra subsidies, maar ook met gebruik making van alle andere financiële instrumenten waar over de Gemeenschap beschikt. Hierbij denk ik onder andere aan leningen waarvoor een rentevergoeding kan worden gegeven en bijdragen van de Europese Investeringsbank.
+Het kapot bezuinigen van hele nationale economieën valt misschien in de smaak bij de Europese grote fondsen en banken, maar noch Ierland noch de monetaire unie en de ECB zijn hiermee geholpen.
+Het is belangrijker dan ooit om overal vooruit te lopen op mogelijke ontwikkelingen, we moeten de critici de wind uit de zeilen nemen.
+Ik vind dat wij hieraan moeten blijven herinneren en het verbaast mij dat hier zo weinig over dit aspect wordt gesproken!
+Het is ongelooflijk dat zoiets in alle mogelijke kinderprogramma's zomaar kan.
+'Syndenes Magi' was de naam van dit album, geen slechte plaat maar eentje die niet sterk genoeg was over de hele linie om echt interessant te blijven.
+Het landbouwbeleid van de toekomst moet in ieder opzicht duurzaam zijn: economisch, sociaal, maar ook ecologisch.
+coördinatiemechanismen die ervoor moeten zorgen dat over de gehele lijn voortgang wordt geboekt bij de 20 initiatieven die de Commissie heeft vastgesteld als bijdrage voor efficiënter hulpbronnengebruik en andere initiatieven die aan deze lijst kunnen worden toegevoegd;
+In dit onderdeel worden de transversale voorstellen van de externe evaluatieverslagen behandeld om een discussie daarover mogelijk te maken.
+Het beginsel “think small first” wordt op al deze richtlijnen toegepast om het systeem op de behoeften van kmo's toe te snijden25.
+Deze investeringen zorgen voor arbeidsplaatsen, geven anderen de gelegenheid te werken, verruimen de sociale omgeving van kinderen en ouders en verschaffen de samenleving enorme kennis over hoe wij allen betere ouders kunnen worden.
+Samen kunnen we ons in de volle breedte verder ontwikkelen op de wereldmarkt.’
+Ingevolge de punten 5 tot en met 11 van de Mededeling van 2009 inzake opleidingssteun 2009 wordt steun als gerechtvaardigd beschouwd wanneer de lidstaat kan aantonen dat hiermee een gebrek aan investeringen in opleiding — een marktfalen dat algemeen waarneembaar is in de Europese Unie — wordt tegengegaan.
+Dit selectieve karakter onderscheidt staatssteunmaatregelen van algemene economische-ondersteuningsmaatregelen die globaal genomen gelden voor alle bedrijven in alle sectoren van economische activiteit in een lidstaat.
+Voorts moeten er uitvoerige gezondheidseffectbeoordelingen en evaluaties van alle wetgeving over de hele linie worden uitgevoerd, teneinde een platform te bieden voor gezamenlijk denken en besluitvormers beter in staat te stellen de echte kosten van beleidsinitiatieven voor de volksgezondheid vast te stellen.
+Mijnheer Van Velzen, in dit opzicht denk ik niet dat het door u gegeven voorbeeld van Nederland kan worden veralgemeend tot heel Europa.
+Zoals u weet maakt de Commissie zich er al lange tijd sterk voor de genderproblematiek mee te nemen in onze buitenlandse betrekkingen.
+Er zijn geen aanwijzingen dat Koreaanse scheepsbouwers erin zijn geslaagd om de prijsniveaus over de hele linie te verhogen, zoals herhaaldelijk is verkondigd.
+Enerzijds stel ik vast dat Litouwen te maken heeft met de klassieke problemen van een kandidaat-land, die niet erg specifiek zijn voor het land zelf en die ik derhalve niet hoef te herhalen.
+Dat betekent dus meer flexibiliteit en minder zekerheid wat de banen betreft. Ook dringt zij aan op algemene privatisering ter versterking van het mededingingsvermogen en de kapitaalopbrengst.
+Sedert de Europese Raad van Cardiff is in het inhoudelijke onderzoek van de in Agenda 2000 op genomen en door dé Commissie voorgestelde wetteksten al grote vooruitgang geboekt.
+Resumerend kan gesteld worden dat het tempo van de aanpassing over de gehele linie aanzienlijk moet worden opgevoerd en dat de aanpassingen gepaard moeten gaan met de oprichting en versterking van de nodige administratieve structuren.
+Om deze en nog vele andere redenen wordt de NWV door de Schriftgeleerden verworpen. Dr. Julius Mantey, schrijver van "A Manual Grammar of the Greek New Testament" (oftewel "Een grammaticale handleiding van het Griekse Nieuwe Testament") noemde de NWV een "schokkende wanvertaling".
+Voorts blijft Afghanistan een zeer belangrijk onderwerp in de dialoog met onze strategische partners.
+Met een behendige bevoorradingsketen, top logistiek en simpele processen, werken we er aan om kosten overal te verlagen om jou verrassend laaggeprijsde nieuwe kits aan te bieden.
+Ik zou controleren, en dubbel controleren of uw RDP toegang is alleen toegestaan ​​om specifieke echte gebruikers, en niet over de hele linie om elk domein admins en testaccounts, Zorg ervoor dat deze accounts hebben goede wachtwoorden.
+Daar de Gemeenschap verplicht is, de vrijhandelsovereenkomsten volgens de desbetreffende GATT-bepalingen op te zetten, is zij genoodzaakt in het bilaterale handelsverkeer douanerechten en andere beperkende handelsvoorschriften binnen een bepaald tijdsbestek voor "vrijwel de gehele handel" af te schaffen.
+1. de extra kosten van de extra rechten zich zullen vertalen in blijvend hogere ticketprijzen voor alle passagiers;
+De Fractie van de Europese Sociaal-Democraten steekt haar mening wat dat betreft niet onder stoelen of banken. Mijn collega’s en ik weten zeker dat de moeilijkheden die een handicap met zich meebrengt een horizontale en geïntegreerde benadering vergen, in navolging van bestaande voorzieningen op het gebied van gelijke kansen tussen mannen en vrouwen.
+Het wordt gedaan in sommige winkels. En het moet over de hele lijn gedaan worden in Amerika, binnenkort, en snel.
+D. Hulpdiensten voor vervoer over de weg
+Het doel is de algemene sociale vooruitgang en de rechtvaardige verdeling ervan voor iedereen.
+Effect van een op zichzelf staande expansie in Frankrijk en een expansie die heel de EU betrof
+De mogelijkheden zijn: een gebouw of handwerksman uit de etalage pakken, een eerder aangenomen handwerksman inzetten bij een eigen gebouw-in-aanbouw, of, in noodgevallen, passen.
+Als wij de lidstaten zo'n bewegingsruimte niet gunnen, als wij dus daarvoor in de plaats een horizontale maatregel van kwantitatieve beperking voorstaan, zonder rekening te houden met de specialisaties en het potentieel van elk land afzonderlijk, zullen wij de situatie alleen nog maar meer uit balans rukken; dan gaan bepaalde landen, zoals Italië, nog minder investeren in de veehouderij zonder dat er inkomensalternatieven komen, en dan wordt er dus door die landen nog meer tol betaald aan de meer bevoorrechte EG-landen.
+Aangezien echter algemeen wordt erkend dat de procedures over de hele linie moeten worden vereenvoudigd en geharmoniseerd, hopen wij dat deze overgangsregeling maar kort zal gelden.
+Er moet dus worden gezorgd voor een principe dat te veel afgaan op kredietratings voorkomt overeenkomstig de beginselen van de Raad voor financiële stabiliteit, en dat via die raad van toepassing is op alle financiële-marktpartijen.
+Goed, in de derde wil ik $ 40 verspreid op High Hat.
+Heeft een alleen in schijn egalitaire parameter nog zin, waarbij gelijke maatregelen worden genomen voor personen en in contexten die alleen voor de statistiek gelijk zijn?
+Geleidelijk ziet men een veralgemening van de opleidingen die gebaseerd zijn op een Initiatie voor nieuwe technologieën; een dergelijk beleid wordt in vele nationale onderwijsstelsels gevolgd.
+De deelnamecijfers zijn over de hele linie aan het stijgen, maar er zijn toch nog steeds aanzienlijke verschillen te constateren tussen landen die een lange traditie op het gebied van de volwasseneneducatie hebben (vooral in Noord-Europa) en de overige landen waar nog veel vooruitgang zou kunnen worden geboekt.
+Zij heeft zich beperkt tot de doelstelling die de Commissie zelf heeft aangegeven, namelijk de toepassing van het princi­pe van de roll-over, de standstill.
+In het algemeen moet bij het opzetten en uitvoeren van EU-uitgavenprogramma’s echter op drie dingen worden gelet.
+Ik stel tot mijn genoegen vast dat met een reeks door de Commissie landbouw en plattelandsontwikkeling goedgekeurde amendementen de kredieten in rubriek 1a voor landbouw en plattelandsontwikkeling weer worden opgetrokken tot het niveau dat de Commissie aanvankelijk in haar voorontwerp van begroting had voorgesteld, en dat men zich distantieert van de lineaire vermindering die de Raad wil aanbrengen.
+Van de CTO’s kantoor is degene die ziet over de hele linie en moet proberen om te kijken naar doelen van het bedrijf, in tegenstelling tot de doelen van een individuele groep.
+Veertig procent van de totale HUD-opbrengst met ingang van nu.
+Waarom durft de Europese Unie hier eens geen 3'7c-norm vooruitschuiven?
+Ze zouden er goed aan doen de oktober coverage onder de loep te nemen om te zien wat de oorzaak was van de dip. #4: Gebruik data voor het meten van productprestaties Social proof gaat vandaag de dag over data en metrics.
+Dit is volgens mij binnen de huidige context - maar eigenlijk overal en altijd - een heel belangrijke vraag. We zullen er in het kader van het MEDA-Programma dan ook de nodige aandacht aan moeten besteden.
+Voorstel voor een besluit van de Raad tot aanpassing van Besluit 94/268/Euratom betref­fende een kaderprogramma voor communautaire activiteiten op het gebied van onderzoek en onderwijs voor de Europese Gemeenschap voor Atoomenergie, in verband met de toetreding van de Republiek Oostenrijk, de Republiek Finland en het Koninkrijk Zweden tot de Europese Unie.
+Er zal een discussie komen over de indicatoren en de methoden om te meten in hoeverre in de programmering rekening wordt gehouden met het principe van de gelijke kansen.
+Het EP vindt dat de belangrijkste prioriteit moet gaan naar de inbeslagname van crimineel verkregen geld, de bestrijding van het witwassen van geld.en van criminaliteit op Internet, met name pedofiele uitingen.
+Op hel gebied van de internationale samenwerking is de Raad ermee akkoord gegaan dat de deelneming van ile Gemeenschap aan de INTAS (Internationale Associatie 1er bevordering van de samenwerking met wetenschapsmensen van de nieuwe onafhankelijke staten van de voormalige Sovjet-Unie) gedurende de hele periode van het vierde kaderprogramma (19941998) wordt voortgezet.
+schriftelijk. - (RO) Het Europees Parlement is er met de stemming van dinsdag in geslaagd om de ontbrekende schakel toe te voegen aan de Europese wetgeving betreffende passagiersrechten, die algemeen zal worden toegepast vanaf het voorjaar van 2013.
+Zo wordt benadrukt dat het in aanmerking nemen van de genderproblematiek in de ontwikkelingssamenwerking als een transversale opdracht moet worden beschouwd, die in de gehele ontwikkelingssamenwerking ter harte moet worden genomen.
+Echt slechte songs zijn er niet terug te vinden edoch over de gehele lijn klinkt het album wat oppervlakkig.
+Windows 10 Bouwen 16215: usability verbeteringen over de hele linie
+Deze aanvulling is lineair over de verschillende specifieke programma's verdeeld.
+Zo kunnen deze steunmaatregelen bijvoorbeeld bestaan uit subsidies, renteloze of goedkope leningen, rentesubsidies, garanties die verleend worden tegen specifieke voorwaarden,0, vrijstellingen van belastingen en van parafiscale heffingen, levering
+Dat hij de lineaire en ongenuanceerde korting van 10% op de ontwikkelingsposten afwijst, is volkomen terecht.
+Om te voldoen aan de verplichtingen van de Wereldhandelsorganisatie en de toezeggingen bij de toetreding, heeft het land over de hele linie invoerrechten geschrapt en op grondige wijze wetten en regels herzien.
+De Commissie verzoekschriften is van mening dat de verhoging van de kredieten met 3procent, in vergelijking met de begroting 2005, voldoende is. Deze verhoging wordt met name gerechtvaardigd door de toegenomen werkdruk, als gevolg van het groter aantal klachten en communicatieactiviteiten.

@@ -1,6 +1,5 @@
+24 Juli 2012 – De Groene Amsterdammer (Amsterdam) 6 84 Euromythes (1/10) : "De Europese Unie is ondemocratisch" Bureaucratisch, verkwistend, in de greep van lobby's... de kritiek jegens de EU is legio, en is niet slechts te horen bij eurosceptici.
 Bureaucratisch, verkwistend, in de greep van lobby's... de kritiek jegens de EU is legio, en is niet slechts te horen bij eurosceptici.
 Het nieuwe album heet 'Lightslaying Rituals' en het zal de verstokte occultist zonder twijfel weer de nodige uurtjes aan duister luisterplezier opleveren.
-Meer Robert Bronwasser Locatie > Bekijk Ontwerper Saskia Nooij Door de wol geverfd en nu succesvol ontwerpster en eigenaar van Kywie wijn en champagnekoelers van schapenvacht.
-Hét juweeltje op de plaat is overigens 'Avalanche', een van de twee liedjes waar de piano (ja, die is er stiekem toch) de boventoon voert, en ook het enige moment dat Shannon ingetogen zingt.
-24 Juli 2012 – De Groene Amsterdammer (Amsterdam) 6 84 Euromythes (1/10) : "De Europese Unie is ondemocratisch" Bureaucratisch, verkwistend, in de greep van lobby's... de kritiek jegens de EU is legio, en is niet slechts te horen bij eurosceptici.
 Reportage (30/10/2012) Allemeersch-Van Parijs (Ruddervoorde, BE), een tandem die weet wat ze wil Wie durft te beweren dat enkel geroutineerde duivenmelkers aan de top kunnen staan, wel laat die maar eens naar het landelijke Ruddervoorde in West-Vlaanderen komen, de thuishaven van de tandem Allemeersch- Van Parijs.
+Meer Robert Bronwasser Locatie > Bekijk Ontwerper Saskia Nooij Door de wol geverfd en nu succesvol ontwerpster en eigenaar van Kywie wijn en champagnekoelers van schapenvacht.

@@ -1,500 +1,500 @@
-Op de lange duur?
-Op de lange duur zeker.
-'We zullen het oplossen'.
-En niet op de lange termijn.
-Op den duur niet.
-Op termijn is het onbeduidend.
-- Maar beter op lange termijn.
-Misschien is het maar beter zo.
-Op de lange duur verliest de gokker.
-Op lange termijn zijn we allemaal dood.
-Op den duur ↑ met 3 jaar
-(') Resolutie van 10 februari 1975, Publikatieblad nr.
-Uiteindelijk zal het het waard zijn.
-Dat is vaak voldoende, zelfs op lange termijn.
-Uiteindelijk heeft het ons geholpen denk ik.
-Dat is waar Albanië op termijn behoefte aan heeft.
-En op lange termijn, zal je daarvoor beloond worden.
-Het is moeilijk ons voor de geest te halen, dat wij in 1979 nooit over een voorstel van de Commissie stemden.
-En dat werkt op de lange termijn zelden stimulerend.
-En dat maakt misschien op de lange duur ook niets uit.
-Zo betaalt uw investering zich op de lange termijn terug.
-Dan doe ik je uiteindelijk een plezier.
-Maar op de lange termijn is een relatie met twee mannen niet te doen.
-Uiteindelijk is dat beter voor Deb...
-Uiteindelijk zal iedereen daar baat bij hebben.
-Dit alles is het meer dan waard op de lange termijn.
-Ik denk dat het je helpt op de lange termijn.
-Af en toe winnen we. maar op de lange termijn...
-Maar op de lange duur blijven zulke leraren niet populair.
-Op de lange termijn doemt een aantal andere onderwerpen op.
-Maar op langertermijn, zal het het waard zijn.
-Maar het is wel mensentaal.
-De EU is uiteindelijk een economische unie.
-Om het op de lange duur te gaan redden, met het huwelijk en al die dingen.
-De financiële situatie wordt meerjarig nog nijpender.
-Dat is op de langere termijn toch beter voor ons?
-En zal het op lange termijn werkelijk iets uitmaken?
-De prijs van Bitcoin Blijft Bullish op de lange termijn Ondanks Volatiliteit
-De Nederlandse ervaring bevestigt dit standpunt, vooral op langere termijn.
-Srinivas ploeg bewijst ons goed op lange termijn.
-Nee, later zal hij me nog dankbaar zijn.
-Alleen zo kun je winnen.
-Maar op de duur zal de geest het altijd winnen. ”
-Een A-versie die bovendien op termijn nog voordeliger is voor de portemonnee.
-Sommigen in dit Parlement willen deze strategieën op den duur combineren.
-Bovendien verschillen de eigendomsrechten in zake water en land van land tot land behoorlijk.
-Kunnen we ons dat op de lange duur veroorloven?
-Het is op lange termijn goedkoper om alles te ontkennen. Niet te vergeten minder gênant.
-Ik zie jou als een investering, bedoel ik.
-Ook kan het op termijn scouting, training en coaching verbeteren.'
-Ik bedoel, misschien krijgt hij uiteindelijk gelijk.
-Sterk of zwak, op de lange termijn storten ze allemaal in.
-Vrijhandel echter kan op den duur geen eenrichtingverkeer zijn.
-Doch honger en ellende kregen ten laatste de overhand over angst en vrees.
-Als je de kans te spelen, dan win je op de lange termijn.
-Dat is uiteindelijk voor iedereen beter, denk je nietF
-Dit is zeer verontrustend en op lange termijn onhoudbaar.
-Uiteindelijk is het voor jullie allebei beter.
-Op de lange duur wordt daardoor het beetje respect dat anderen voor je hebben, ondermijnd.
-Het is wreed, dat weet ik... maar het helpt wel op de lange termijn.
-Het zou inderdaad moeilijk zijn geweest... om het op de lange duur geheim te houden.
-Vele van deze factoren heb­ben de autoriteiten niet in de hand en het effect van asielbeleid op migratie is vrij beperkt.
-Maar uiteindelijk is 't het waard, dat beloof ik.
-Maar over een heel seizoen gezien maak je geen kans.
-Ik denk dat dit het op de lange termijn waard zal zijn.
-Zo brengt de heer Pöttering eerst onze rijkdommen in gevaar, door de vlam van de uitbreiding aan te blazen.
-Dit bespaart u honderden duizenden dollars in de lange termijn.
-En dit laatste, zo heeft de geschiedenis bewezen, zal de liquide middelen op de lange duur toch vernietigen ”, aldus Baxter vorig jaar.
-Wie van deze jongens zal dus op de duur beter af zijn?
-De Europese Unie moet op termijn een geloofwaardige oplossing vinden.
-Op de lange duur kan niemand van ons er op eigen kracht aan ontkomen.
-Dat is gezonder voor je op de lange duur.
-Het is nu even moeilijk, maar uiteindelijk is 'ivoor iedereen beter.
-'Schamp de dood.' Zeer succesvol op lange termijn.
-Dit geeft u onmiddellijke resultaten, maar op de lange termijn zal worden saboteren.
-Het zou natuurlijk wenselijk zijn als we op den duur een uniforme wereldnorm zouden krijgen.
-Jij bent ook niet veel beter van 'm geworden ?
-Zijn borst openen zal meer schade aanrichten op de lange termijn dan wij onder controle kunnen houden.
-Misschien is therapie maar een tijdelijke oplossing.
-Geen van deze gevolgen zou op de lange termijn in het belang van de gebruikers zijn.
-De andere maatregelen waren bedoeld om de financiële problemen van de onderneming op de lange termijn weg te werken.
-Van dwingende en onomkeerbare ontwikkelingen lijkt nauwe­lijks (zeker niet op langere termijn) sprake te zijn.
-Ik heb vandaag in elk geval de gelegenheid gehad U deze toelichting te geven.
-De Commissie stemt dan ook niet met die verwijzing in noch met die aangaande de fol-
-Als hier iets aan ontbreekt zijn lichamelijke symptomen op de lange duur onvermijdelijk.
-Weet je, uiteindelijk... zouden ze je de promotie aangeboden hebben.
-Zoek intussen een onderkomen.
-Zo ontstaan ongemerkt MIC-verontreinigingen en corrosie met op termijn desastreuze gevolgen.
-En tenslotte de moeilijke problematiek van de fiscale har­monisatie.
-Op lange ter mijn kunnen problemen alleen worden opgelost op de plaats waar ze ontstaan.
-Heb je nagedacht over wat uw project zal doen voor East Riverside op de lange termijn?
-Sommigen argumenteren dat ze gerechtvaardigd waren en waarschijnlijk op de lange duur honderdduizenden levens hebben gespaard.
-Ofschoon deze veranderingen niet altijd makkelijk waren, is zo’n opleiding op de lange duur nuttig.
-We weten allemaal dat... op de lange termijn, wat we doin ' met deze hond is een goede.
-Op lange termijn kunnen problemen alleen worden opgelost op de plaats waar ze ontstaan.
-Eén importeur in Spanje heeft de vragenlijst beantwoord.
-Die richtlijn, en met name artikel 12, lid 1, onder c), ervan, staat immers ook delegatie over een lange periode toe.
-Maar ik beloof jullie dat we later allemaal gelukkiger zullen zijn.
-de identiteit van de steunverlenende autoriteit;
-Dit kan pas na verloop van tijd worden gemeten op basis van duidelijk vastgestelde principes en methoden.
-Op de langetermijn zijn de prijzen flexibel en kunnen zij zich volledig aanpassen aan veranderingen in het aanbod en de vraag.
-Als je nu niet in onderwijs investeert, betaal je er op de lange duur voor.
-Mijn vraag is: hoeveel van deze verhalen zullen er op de lange termijn toe doen?
-Die expres-leveringen kosten echter wel handenvol geld. Is dat financieel haalbaar op lange termijn?
-Ten eerste zal het mogelijk worden het BBP-BNP van iedere lidstaat op den duur beter te bepalen.
-Onthoud, de makkelijkste weg ergens uit is meestal uiteindelijk de moeilijkste.Tijd is van cruciaal belang.
-De liberalisatie die de Commissie voor ogen staat, zal op korte termijn een wilde selectie en gevaarlijke braaklegging op sociaal en milieugebied met zich meebrengen, ook al zal daarmee wel een gelijke behandeling voor de producenten gerealiseerd worden.
-Centrale partijbesturen zouden natuurlijk de financiering van deze organen kunnen stopzetten, maar dergelijke maatregelen leveren slechte publiciteit op en zijn dus niet erg geliefd.
-Op langere termijn moeten investeringen worden toegespitst op milieubescherming en maatregelen tegen de klimaatverandering.
-Op de lange termijn is dit de meest zinvolle manier waarop de EU de NGO's kan steunen.
-De heb begrepen dat het Parlement zich even eens over dit voorstel buigt en zoals u weet kan de Raad het voorstel pas goedkeuren nadat hij het advies van het Parlement ter zake heeft ontvangen.
-Wellicht dat dit op de lange termijn ook tot een positieve betrouwbaarheidsverklaring kan leiden.
-Ook wij als afgevaardigden moeten druk uitoefenen op onze nationale parlementen.
-Wij wen sen er ook aan te herinneren dat de door de Wereld bank en het Internationaal Monetair Fonds genomen maatregelen de ontwikkelingsinitiatieven van de EEG, vooral in Afrika, tegenwerken.
-Dat kost ons $35 miljoen, maar dat maakt niet uit, omdat we weten dat we uiteindelijk zullen winnen.
-Yeah, het zijn gewoon, gewoon een paar vragen, die het gemakkelijker maken, op de lange termijn.
--Gedeelde waterrechten werken niet. Vooral met buren als de Kings.
-De noodzaak het gemeenschappelijk landbouwbeleid te herzien wordt op dat moment al leen nog met de mond beleden.
-Anders is dit echter een handelwijze die we op den duur als Parlement niet dienen te accepteren.
-Er is simpel gezegt geen ander logisch alternatief als ons doel als ras... is om te overleven.
-Ik ben het daarom met de rapporteur eens, dat men op de lange termijn niet met dergelijke procedures kan werken.
-Deze verordening moet van toepassing zijn onverminderd gerelateerde wetgeving, met name op het gebied van veiligheid van de voedselketen, gezondheid en welzijn van de dieren, gezondheid van planten, plantaardig teeltmateriaal, etikettering en milieu.
-Ja, Asaf ging beseffen dat de mensen op de lange duur de straf voor hun goddeloosheid echt niet zullen ontlopen.
-Een goedkoop artikel van slechte kwaliteit kan je op de lange duur meer kosten omdat het gerepareerd of vervangen moet worden.
-U krijgt ook de volledige garantie en aftermarketondersteuning van Volvo, met op de lange duur lagere bedrijfskosten.
-Er is ook op zijn kop op de lange termijn zoals deze is meer een strategisch partnerschap dan outsourcing contract.”
-Ondanks deze extra moeite is het dus niet te veel extra last en vooral op termijn veel goedkoper.
-Daardoor zouden de voor vervoer beschikbare middelen op termijn beter ingezet worden.
-Niettemin wijst de Raad op het risico van bcgrotingsonevenwichtigheden op de lange termijn, als gevolg van het huidige beleid.
-Inderdaad geven de door de Commissie berekende kwantitatieve indicatoren op lange termijn een opwaartse trend in de schuldquote te zien.
-Van een blijvend succes kan echter pas worden gesproken als de consumenten hun houding veranderen en juist speciaal naar deze producten gaan vragen.
-Naast de toepassing van de beleidsinstrumenten dient er ook zorg voor worden gedragen dat op de lange termijn in de Europese landbouw het geloof in de toekomst bewaard blijft.
-Sancties kunnen wellicht wel enig effect hebben, maar op lange termijn zullen ze niet veel uithalen.
-Om de volgende redenen kan het Comité niet akkoord gaan met de voorgestelde stabiliseringsregeling:
-Het Kremlin steunt lokale dictators, terwijl het maar al te goed weet dat dit zijn regionale invloed op lange termijn kan ondermijnen.
-Wisselkoersen uitleggen of zelfs voorspellen is zeer moeilijk, zowel op korte als op lange termijn.
-Dat garandeert ook een grootschaliger en slimmer gebruik van hernieuwbare en milieuvriendelijkere energiebronnen op lange termijn."
-In punt 13 van de herstructureringsmedeling is bepaald dat levensvatbaarheid op lange termijn wordt bereikt wanneer een bank in staat is een passend rendement op vermogen te bieden, rekening houdend met haar risicoprofiel.
-Ik denk dat het op grote schaal afslachten van dieren op den duur niet meer acceptabel zal zijn voor de publieke opinie.
-Maar op den duur doet het het er alleen toe wie het laatste schot lost.
-Bovendien leert de ervaring op de lange termijn dat economische integratie niet zozeer meer concentratie oplevert, als wel meer diversificatie.
-De meeste deskundigen achten mechanische ontstoppingsmethoden beter, zowel voor uzelf als voor de levensduur van uw leidingen.
-Als deze problemen spoedig worden opgelost via een hervorming van de stelsels, zullen deze op de lange termijn 'levensvatbaar' worden.
-Regelmatig onderhoud reduceert het risico zeer en garandeert een optimaal behoud van de waarde en de visuele indruk.
-Handelingen van het Europese Parlement
-Het vergunningensysteem heeft uiteindelijk tot doel om de banden van Palestijnen uit de West Bank met Oost-Jeruzalem en Israel te de-normalizeren.
-Maar uiteindelijk kon ik me die details niet meer herinneren hoe hard ik m'n best ook deed.
-Maar ook de sterkste soft power kan uiteindelijk niet zonder een zekere geïntegreerde defensiecapaciteit.
-Als je speelt, denk je alleen aan wat je eerst ziet... maar niet aan wat het beste is voor jou... op langere termijn.
-Co-branding is tevens een van de drie opties die voor kaart-schemes beschikbaar zijn om op de lange termijn te voldoen aan SEPA .
-Uiteindelijk zijn we er sterker van geworden en de huidige line-up is vaster dan ooit.
-Hoe denk jij dat dit alles, het jij en ik hiervan... uiteindelijk zal uitdraaien?
-Hoewel het op dat moment moeilijk kan zijn, zal er op de lange duur minder zijn om je bezorgd over te maken.
+Een stoel is ook comfortabel kan leiden tot een slechte houding en daardoor de ademhaling gedeeltelijk op de lange termijn alleen kan problemen veroorzaken, dit is omdat het "te" comfortabele stoel ligt er ten onrechte op.dr.
+Dit zal jullie waarschijnlijk verrassen, maar we vertrouwen erop dat, na verloop van tijd, de waarheid jullie veel vreugde zal geven.
+Microkrediet kan op lange termijn zichtbaarder worden gemaakt door het in de praktijk van de banksector en in de internationale standaard voor financiële verslaglegging (IFRS) als zodanig te categoriseren.
+Enerzijds moeten de lidstaten proberen de verschillende garantiesystemen die zij voor uitvoer en investeringen toepassen te harmoniseren.
+Het imperialisme zal op de lange duur niet in staat blijken zichzelf in stand te houden.
+Provan lijke gevolgen voor de mcb's zouden zijn indien alle valuta's van de Europese Gemeenschap tot het EMS zouden behoren ?
 Deze verleidingen zijn niet in het hogere belang van Europa en Frankrijk zou ze op den duur niet verdragen.
-De Commissie kan haar ogen niet blijven sluiten, op dit gebied heeft zij een politieke verantwoordelijkheid.
-Welke rol de weten­schap, het fundamenteel wetenschappe­lijk onderzoek, het toegepast wetenschap­pelijk onderzoek en de vertaling ervan in de praktijk speelde, was in dat geheel niet meer goed te onderscheiden.
-Door een aanpassing van het beleid kunnen de kosten op middellange termijn mogelijk met 50 % en op lange termijn met meer dan 70 % worden verminderd.
-Op lange termijn eist de gestegen levensverwachting echter blijvende aanpassingen in de uitkeringen, de premies of de lengte van het werkzame leven.
+Het aantal potentiŽle deelnemers Het beeld dat we in de voorgaande paragrafen hebben geschilderd, toont dat we op langere termijn een wereldwijde IT-infrastructuur met vele toepassingen verwachten.
+De vergrijzing van de Europese bevolking en de hieruit voortvloeiende maatschappelijke spanning kunnen op de lange termijn worden aangepakt met niet alleen de gebruikmaking van migrerende werknemers, maar ook de ontwikkeling van de interne arbeidskrachten die beschikken over niet-concurrerende kennis en vaardigheden.
 Weliswaar hadden de noordse stammen zich op den duur tot het christendom bekeerd, maar de oude drang naar vrijheid zat er nog ingebakken.
-Bij het beoordelen van de mogelijke negatieve effecten van milieusteun zal de Autoriteit rekening houden met het totale milieueffect van de maatregel ten opzichte van de negatieve impact ervan op de marktpositie — en dus op de winst — van niet-gesteunde ondernemingen.
-De meest recente wetenschappelijke ontdekkingen worden meteen vertaald in praktische toepassingen die uiteindelijk de patiënt ten goede komen.
-Maar enkele opties die erin worden overwogen, zouden op termijn het bestaan zelf van een ACS-EU-partnerschap in gevaar kunnen brengen.
-een dergelijk systeem op lange termijn dient te zijn afgestemd op de maatschappelijke kosten van alle takken van vervoer;
-De Zweedse partij Junilistan vindt dan ook dat Turkije op termijn lid moet kunnen worden van de EU.
-Misschien nu wel, maar is het uiteindelijk niet beter dat hij de waarheid weet?
-De overheid moet meer betrokkenheid tonen: "De overheid moet politieke doelen stellen en duurzaamheid op de lange termijn waarborgen.
-Als dit niet het geval is, zal de onderneming niet de noodzakelijke middelen kunnen opbrengen en daarmee op de lange duur niet levensvatbaar zijn.
-Op de lange duur moet een doeltreffend Parlement zich in de nabijheid bevinden van de plaats van actie en van het uitvoerende orgaan dat het moet con troleren.
-Gelukkig kun je met hiv prima oud worden , maar hoe is dan op termijn de kwaliteit van leven?
-Ik weet dat het moeilijk is maar je moet begrijpen dat het uiteindelijk beter voor je is.
-Ook de termen waarvan men zich bedient in twisten over het aandeel van elk land in de uitgaven of de inkomsten van de Gemeenschap.
-Dat is misschien wel goed voor een beetje onschuldig plezier, maar het zou wel leiden tot een gestage verliezen in de lange termijn.
-Op lange termijn versterkt dit het concurrentievermogen van de EU en helpt dit om de crisis achter ons te laten."
-Op de lange termijn is dit de juiste benadering in het belang van de volksgezondheid, de consumentenbescherming en het milieu.
-Op de duur, aan het einde van hun aardse loopbaan, moeten zij namelijk AL hun materiële bezittingen achter zich laten.
-Voor het hout wordt verwerkt, worden schors en spinthout weggezaagd, omdat dit op de lange termijn gevoelig kan zijn voor houtworm.
-In sommige delen van Zwitserland maakten gelovigen zich van de katholieke Kerk los en vormden de Oudkatholieke Kerk "(Christkatholische Kirche)".
-Op termijn moeten we verder gaan en alle vervoersmiddelen, met inbegrip van het vrachtvervoer, op een coherente manier tegen het licht houden.
-[22.Qc1 had ik eerder verwacht.Na iets simpels als 22...Qd5 beoordeelde ik de stelling als nagenoeg gewonnen op den duur.
-Zowel op korte als op lange termijn zal de gemiddelde achterstand van de werkelijke productie op het potentieel van de economie worden verkleind.
-Maar op de lange duur zal afhankelijkheid van alcohol alleen maar meer problemen met zich brengen; vriendschappen worden verbroken en de verhoudingen thuis raken gespannen.
-En als wij beschouwen wat werkelijk waardevol of kostbaar is, moeten wij ons afvragen: Wat zal mij op de lange duur waar geluk en werkelijke tevredenheid schenken?
-Zoals uit de evaluatie blijkt, gaat het met de landbouwhervorming de goede kant op. Op de lange termijn zal dat echter zeker niet voldoende zijn.
-- Kosten Efficiency beginsel van gelijke behandeling wordt gekozen voor de minst kosten en geacht financieel verstandig op de lange termijn.
-een prominente rol voor monetaire aggregaten , mits de geldvraag in het eurogebied op de lange termijn voldoende stabiel is ;
-De initiële configuratie kan enige tijd in beslag nemen, maar wanneer de installatie correct bespaart de gebruiker veel tijd in de lange termijn.
-Zij weten dat dit uiteindelijk het meeste goeds tot stand zal brengen. — Mattheüs 28: 19, 20; 1 Timotheüs 4: 16.
-En uiteindelijk is dit veel heilzamer dan een ziekelijke nieuwsgierigheid te bevredigen door middel van het gevaarlijke, doodaanbrengende occulte.
-Moeten er specifieke instrumenten worden ontwikkeld die er met name op gericht zijn sommigeinitiatieven van de communautaire bedrijven in die landen in de vorm van partnerschappen te bevorderen?
-Na verloop van tijd moet deze toegang tot informatie overeenkomen met de bestaande toegang tot informatie van de Europese Centrale Bank.
-op grond van zijn financiële draagkracht, met name zijn rating, in staat zijn de solvabiliteit van de bank duurzaam te waarborgen.
-De Raad steunt de tweesporenaanpak van collaboratieve projecten waarbij de Europese samenwerking op defensiegebied op de lange termijn systematischer en duurzamer wordt gemaakt.
-Dat werkt prima in een crisis, maar als je je hele leven op spanning staat, gaat je dat op een gegeven moment opbreken.
-Het wild schommelen van de wisselkoersen leidt tot het beperken en reguleren van de handel en maakt op den duur de internationale vrijhandel onmogelijk.
-Dit betekent wederom dat de belastingopbrengst op de middellange en de lange termijn lager is dan zij zonder de kwijtschelding zou zijn geweest.”
-Wij verzetten ons niet tegen de berekening waaruit blijkt dat aankoop op de lange termijn voordeliger is dan voortzetting van een huurovereenkomst.
-Maar jij hebt mij ooit verteld dat je op de lange duur erop moet vertrouwen... dat de beslissingen die je maakt, de goede zijn.
-De leden van de Raad zijn nu maandenlang bezig ge weest om dit delicate akkoord over de aanvullende begroting 1982 tot stand te brengen.
-Op lange termijn gezien zal echter de Raad van Commissarissen moeten plaatsmaken voor de ondernemingsraad als het bestuursorgaan van de onderneming.
-Maar een getrouwe christen weet dat het uiteindelijk het beste voor hem zal zijn wanneer hij doet wat in de bijbel aangeraden wordt.
-Om dit aandeel uit te breiden of op de lange termijn op hetzelfde peil te houden, moet meer aandacht worden besteed aan de verwachtingen van de consument.
-Zo niet, dan zou het op lange termijn nuttiger kunnen zijn hem praktische hulp bij het beheren van zijn geld te geven, dan hem geld te lenen dat misschien verkeerd gebruikt wordt.
-Deze maatregelen dienen op de lange termijn te leiden tot een stabielere basis voor het politieke kader en voor de financieringsvoorwaarden voor grote projecten in het trans-Europese netwerk.
-Batch-verwerking zal op termijn vervangen worden door parallelle verwerking en tegelijk zal de ondersteuning van de zware servertaken in het netwerk groeien.
-De kans op winnen op de lange termijn iets voor 2 muntje, maar de verschillen zijn erg klein.
-Een tweede reeks zwakke punten wordt ge vormd door het gebrek aan coördinatie, op verschillende niveaus, van de werkzaamheden, programma's en strategieën inzake on derzoek en technologische ontwikkeling in Europa.
-Op termijn zal ťťn groot netwerk ontstaan waar de computersystemen van alle bedrijven en particulieren op zijn aangesloten: de elektronische snelweg.
-Wel is het zo dat er veel jongeren zijn die geen opleiding krijgen, hetgeen het Deense flexicurity-systeem op langere termijn kan ondermijnen.
-Dat je partner boeit, maar in realiteit... is het dat dat dezelfde relatie zal stopzetten... op lange termijn.
-Een efficiënte inrichting van het tertiair onderwijs is een noodzakelijke voorwaarde voor excellentie, maar om permanent excellentie te kunnen betrachten zijn toereikende middelen evenzeer noodzakelijk.
-Op de lange termijn, we geloven dat ze nodig hebben om een eigen gegevens voorbereiding van capaciteit als ze meer serieus met gegevens meer governance.
-We willen het ook gemakkelijker maken om naar de Europese Unie te reizen, en we willen het visumsysteem vereenvoudigen.
-Zelfs na het toedienen van medicijnen ten behoeve van symptoombestrijding en pijnverlichting, zullen zij op lange termijn niet helpen het probleem c.q. de ziekte totaal te elimineren.
-Een kortzichtige politiek van eigenbelang komt op den duur niemand ten goede — en zeker niet de onderneming die het hoofd moet bieden aan concurrentie op wereldschaal.
-Toch kan, mits juist toegepast, hiermee de index waarschijnlijk wel worden verslagen. De ratio wint het nu eenmaal op wat langere termijn van 'onderbuik'gevoel en 'irrationaliteit'.
-Verder moet duidelijk worden gemaakt dat de producentenprijzen, die eindelijk op een behoorlijk niveau liggen, slechts een miniem aandeel hebben in de hogere voedselprijzen.
-Datgene waarmede men zijn geest zich laat bezighouden, bepaalt op de lange duur of iemand een nuttige of verkwistende handelwijze zal volgen.
-Door deze bedrijven te steunen, komen er meer banen beschikbaar en op de lange termijn profiteert een groot aantal mensen van de economische groei.
-Bovendien is er een behoefte aan het effectiever gebruik van nieuwe gegevensbronnen (bv. "big data"), hetgeen op de lange termijn tot meer efficiëntie zou kunnen leiden.
-Over een lange periode bekeken , lijken die internationale handelsbetrekkingen sterker te zijn geworden , aangezien de handelsvolumes sneller zijn gegroeid dan de wereldproductie .
-Op de lange termijn hoop ik uiteindelijk de wereldtop te bereiken, en dan vooral op de 1000 meter en de 1500 meter.
-Over het algemeen, een fatsoenlijk slot machine, die een beroep op sommige spelers, maar de meeste van hen, waarschijnlijk niet zullen spelen op de lange termijn.
-Tot slot meldt de Raad dat het Russische voorstel om op termijn een visumvrije regeling op te stellen, losstaat van de kwestie Kaliningrad.
-Op de lange termijn zal een verlenging immers bijdragen aan de culturele verscheidenheid, omdat hiermee de beschikbaarheid van middelen voor de financiering en ontwikkeling van nieuw talent gewaarborgd is.
-Zoals gezegd is doorslaggevend wat het verwachte rendement op lange termijn is, dat kan afwijken van het jaarlijkse rendement in het verleden.
-Het zij nog eens herhaald, dat zowel veiligheid als produk­tiviteit door deze slechte organisatie worden verlaagd en dat ingrij­pen van het personeel op den duur deze tekorten niet kunnen opvangen.
-Want de geschiedenis van de landen toont duidelijk aan dat verschillende maatschappijen op termijn nooit vreedzaam op eenzelfde territorium kunnen samenwonen.
-Dat is op lange termijn de enige manier waarop we er echt zeker van kunnen zijn dat wij een daadwerkelijke bijdrage leveren tot de beëindiging van deze afschuwelijke situatie.
-Het gevaar is dat als gevolg van de inkrimping van het in deze sector werkzame directe en indirecte personeel op lange termijn know-how wordt afgebouwd.
-In ruil voor het opgeven van jullie lonen bieden we bedrijfsaandelen aan, die op lange termijn veel meer waard zullen zijn.
-Op den duur zullen grotere visbestanden leiden tot een grotere vangst per eenheid van visserij-inspanning en tot hogere winstgevendheid, wat misschien nieuwe belangstelling voor het vissersberoep zal brengen.
-Een op kwaliteit gebaseerde benadering zal innovatie en goede werkmethoden en -omstandigheden stimuleren, hetgeen uiteindelijk zal leiden tot meer efficiency en kostenbesparingen.
-Een groot deel van de kunstwereld focust zich op oppervlakkige kunst.Die mag trendy lijken, maar is niet duurzaam op de lange termijn.
-Elke route krijgt een prijs en op de lange termijn win je kon een ongelooflijk grote hoeveelheid geld die door deze Bonus ronde.
-Minstens 2 recente studies (die behandeling in verschillende mucocentra vergelijken) hebben duidelijk aangetoond dat patiënten die frequenter met antibiotica intraveneus worden behandeld het beter doen op langer termijn.
-De OESO benadrukt met klem de noodzaak van adequaat onderwijs, dat veruit de belangrijkste factor is voor de instandhouding op lange termijn van een innovatieve economie.
-De uitgaven en de acties van de Europese Gemeenschap moeten gericht zijn op Europese behoeften.
-Dit door het gemeenschapsrecht gegarandeerde verblijfsrecht is momenteel nog tot drie maanden beperkt voor iemand die werk zoekt in een andere Lid-Staat, terwijl bij het opnemen van een beroep de verblijfsvergunning voor vijfjaar geldt, met een verlengingsmogelijkheid van nogmaals vijfjaar.
-Op de lange termijn is het bevrijden van software een stap in de richting van een wereld zonder schaarste, waarin niemand erg hard moet werken om te kunnen leven.
-Daarom moeten de burgers hier voor zijn omdat dit bedrog na verloop van tijd ten koste van hen gaat.
-De geringe kansen en lage lonen op de arbeidsmarkt leiden ertoe dat plaatselijke bewoners wegtrekken, met name vrouwen, wat op termijn tot demografische problemen kan leiden.
-Ze zou een positief effect moeten hebben doordat ze de betalingstermijnen inkort, de financiële situatie, vooral die van het MKB, verbetert, en omdat ze op de lange termijn zorgt voor een stabielere werkgelegenheid in Europa.
-Beide kunnen alleen worden bereikt door een uniform monetair beleid. Daarvoor is het noodzakelijk dat de Europese Centrale Bank onafhankelijk is.
-Ik geloof namelijk niet dat het aftappen van financiële middelen van andere Europese programma's om het EFG te financieren, op lange termijn een levensvatbare oplossing is.
-Daar het vrije handelsverkeer een van de hoekstenen van de Gemeenschap is, kan die houding
-Alvorens de quota's of andere produktiebeperkingen vast te stellen moet men de maar al te talrijke ontregelingen van de communautaire mechanismen herstellen.
-Om die onafhankelijkheid als leverancier van innovatieve ontwikkelingen duurzaam vorm te geven, streven we naar een omzetrendement van 10% en permanente groei.
-Een dierbaar persoon die dwaalt, kan door op Gods Woord gebaseerde openhartige, liefdevolle raad in zijn trots worden gekrenkt, maar op de lange duur kan het levenreddend blijken te zijn!
-Wij hebben dus de plicht om bekendheid te geven aan de huidige situatie in Argentinië en om de waar heid te zeggen.
-En ik VOEL dat alles wat er echt toe doet in de lange run, is dat we PROBEREN om op ieder moment de LIEFDE TE WORDEN DIE WE ZIJN.
-„Maak je maar geen zorgen ; op lange termijn is de vrije handel nog het beste voor iedereen ; vrije handel moet ten allen prijs worden beschermd" ?
-Recruitment is een kostbaar proces, maar managers besparen op de lange termijn geld als ze vroegtijdig investeren om de beste mensen binnen te halen.
-Het zal de eerste keer misschien wat tijd vergen een kind te laten zien hoe het kan helpen, maar op de duur en bij volgende gelegenheden zal er tijd door worden bespaard.
-In de eerste plaats mag het naar ons idee op den duur niet zo zijn dat de Commissie zowel rechter als jury is over haar eigen effectbeoordelingen, en dat is zij in feite als zij haar eigen voorstellen beoordeelt.
-Als wij onszelf trachten te verheerlijken, vooral door dingen te verbergen of door ons mooier voor te doen dan wij zijn, is dit duidelijk verkeerd en op de duur zonder enige waarde.
-Het gebruik van nanoparticles voor mondelinge levering van bioactivee peptides De mondelinge nanoparticleformuleringen verhogen biologische beschikbaarheid van bioactivee proteïnen en peptides, en verbeteren uiteindelijk behandelingsnaleving.
-Hierbij wordt de lange termijn gedefinieerd als de periode waarin de verwachtingen van mensen de tijd hebben gekregen zich aan te passen en waarin inflatie voor zien gaat worden.
-De traditionele kennis, opgenomen door de natuurlijke supplementen niet geen snelle resultaten maar blijken te zijn zeer gunstig op de lange termijn met significante verbetering in het geheugen.
-Toch is het zo dat iedere maatregel in de richting van de markteconomie waarbij de beslissingen omtrent investeringen worden gedecentraliseerd een gevaar betekent voor het wezen zelf van de planeconomie.
-Daarom is volgens mij de beste oplossing om op termijn de ontwikkeling te garanderen, zich volgens heel precieze regels in te schakelen in een gemondialiseerde economie.
-Consequentie kan dus zijn dat er op termijn niet één groot IT-platform ontstaat dat omvangrijke transformaties van het bedrijf met hulp van coöperatieve toepassingen mogelijk maakt.
-Op basis van het huidige beleid lijkt Ierland op een duurzame koers te zitten, maar er kan zich op den duur enig risico voordoen als gevolg van de vergrijzing.
-Het gaat daarbij wel te verstaan niet om de ontwikkeling van elektriciteitscentrales maar om stralingsbescherming en reactorveiligheid.
-Niet alleen de concurrenten en werknemers dragen de negatieve gevolgen hiervan maar ook de onderneming zelf, die op de lange duur hiervan de nadelen kan ondervinden.
-Ik ben er grondig van overtuigd dat op den duur al die kredieten die worden verleend aan de ontwikkelingslanden, met terugwerkende kracht zullen worden omgezet willens nillens in vorm van ODA, officiële ontwikkelingshulp.
-Zoals de Britse mededingingscommissie heeft aangetoond, zal dit op lange termijn net zo schadelijk zijn voor de consument, omdat keuze, beschikbaarheid en kwaliteit uit de markt worden gedreven.
-Het is belangrijk dat de loonontwikkelingen blijven aansluiten op de behoefte externe onevenwichten weg te werken en de werkloosheid terug te dringen en dat ze op lange termijn gelijke tred houden met stijgingen van de productiviteit.
-Een muntunie en een centrale bank zullen op termijn niet kunnen bestaan zonder door een gemeenschappelijke regering of parlement beheerd te worden.
-Verdeling van de leerlingen in de verschillende richtingen en per taalgemeenschap
-Hij betoogt dat de kleine verliezen op de lange duur zouden worden teruggewonnen door de steun van niet - rokers en van „elke anti - rookorganisatie van Savannah tot San Francisco ”.
-De bewering van de kerk dat ze op elk gebied — zelfs op het terrein van de astronomie — de gezaghebbende autoriteit was, zou er uiteindelijk toe bijdragen dat het geloof in de bijbel werd ondermijnd.
-Ik heb nog niet besloten wat ik daarmee wil, maar nu... moet je me vertellen wat dat ding is dat rondwaart als Grant Ward?
-Het belangrijkste om te onthouden is dat de auto verzekering is een noodzakelijke kopen en kunnen gaan zonder dat kost je een heleboel meer op de lange termijn.
-Ik werd in deze ge dachte gesterkt, mijnheer Møller, door de uitspraken die in 1949 werden gedaan door de heer Ernest Bevin, toentertijd de Britse minister van Buitenlandse Zaken, die als rechtvaardiging van de keuze van Straatsburg verklaarde : „Wij zochten een centrum waarmede de Europese volken zich kunnen verenigen en dat een symbool kan worden van de eenheid van Europa.
-Hoewel de korte termijn effect van deze factoren op de zakelijke sector negatief is, moet de effecten van globalisering het voordeel van de Zuid-Afrikaanse economie op de lange termijn.
-Samenvattend: het gaat niet alleen om het ondersteunen van een belangrijke sector van onze economie, maar dit is een aanpak waar we op de lange termijn allemaal van zullen profiteren.
-Koning en da han slo $ 1,700 pot, hij verliet toen hij nog had $ 1200. "Op de lange termijn, zul je altijd verliezen meer dan u wint,"Hij zei:.
-De Europese conjuncturen hangen voor een groot deel ervan af of het bestuur van de ECB in zijn ambtstermijn van acht jaar de juiste besluiten kan nemen en fouten kan voorkomen.
-Ze zien in dat het uiteindelijk de mens is die de toekomst bepaalt, en dat hun collectieve energie t.b.v. vrede dermate krachtig is, dat deze niet kan worden gestopt.
-Herman wikkeling lijkt eerder het overschrijden van grenzen te zijn.
-Wanneer we voor deze strategie kiezen, zal het op de lange termijn mogelijk worden om met de behoeften van de reële economie rekening te houden bij de continue modernisering van de financiële structuur in de EU.
-De Commissie heeft niet kunnen aantonen dat het feit dat er verschillen in wetgeving in de lidstaten bestaan op den duur een directe negatieve impact heeft op de interne markt.
-Met als gevolg dat je op de duur zit te luisteren naar een discours waarvan je de inhoud al kent nog voor de eerste noot heeft geklonken.
-Er wordt besnoeid op uitgaven voor opvoeding en voor sociale begeleiding. Allemaal verminderde openbare uitgaven, die echter op termijn zeer grote en zeer dure problemen doen ontstaan op maatschappelijk gebied.
-Het verslag van de Europese Commissie beschrijft de resultaten van simulaties inzake de mogelijke impact van de uitbreiding, uitgaande van verschillende toetredings­voorwaarden, op de landbouwmarkten, met name wat de belangrijkste landbouwproducten in de LMOE betreft.
+Indien we de praktische maatregelen even aarzelend aanpakken als, bijvoorbeeld, de voertuigemissies, staat de geloofwaardigheid van Europa op het spel. Dit kunnen we ons op den duur niet veroorloven in de debatten met onze partners over klimaatbescherming.
+Als er hier groepen zijn die hebben besloten tegen te stemmen, denk ik dat dit op lange termijn slechts vertraging zal opleveren voor een verslag dat een goed verslag is, een verslag dat zal bijdragen aan de voortgang van wetenschappelijk onderzoek in de Europese Unie en op die manier zal bijdragen aan de bestrijding van ziekten en de ontwikkeling van nieuwe geneesmiddelen, terwijl tegelijkertijd het aantal dierproeven wordt verminderd en het ECVAM wordt versterkt om de zoektocht naar alternatieven uit te breiden.
+Verder zou het Europees Sociaal Fonds een rol kunnen spelen bij de financiering van effectieve, gecoördineerde programma's, maar dan wel op voorwaarde dat het ESF wordt verhoogd.
+Op langere termijn moeten moslims het debat over hun geloof aangaan en "samenwerking zoeken met rechtvaardige, democratische en humanistische partners in het Westen."
+Gedacht kan worden aan speciale centra voor de markt voor uitstootrechten, die bijvoorbeeld aan het toezicht op de naleving van het Protocol van Kyoto gekoppeld kunnen worden.
+Op lange termijn kan dit leiden tot een situatie waarin Europa geen doeltreffende keuzes meer kan maken in deze vitale sector.
+Dit trachtte ik vroeger te bedekken door de instrumentatie, maar dat middel is op den duur niet probaat, vooral omdat het voor de zanger dan niet uit te houden is.
 Een gemeenschappelijke munt en een monetaire unie zijn op termijn gedoemd te verdwijnen, indien zij niet geschraagd worden door een gemeenschappelijke aanpak van de sociale en economische uitdagingen.
-De vertaalkosten voor een Europees octrooi met eenheidswerking in 25 lidstaten zullen op lange termijn dalen tot 680 euro en tijdens een overgangsperiode reeds tot minder dan 2 500 euro.
-door de begunstigden voorgelegd bewijsmateriaal waaruit blijkt dat voldoende kwaliteitsvolle producten beschikbaar zijn om na de afzetbevorderingsactie op lange termijn aan de marktvraag te voldoen;
-De heer von der Vring (S). — (DE) Mijnheer de Voorzitter, juist onder collega's die al langer in dit Parlement net doen alsof wij de gang van zaken hier niet kennen.
-Lienemann mijn verslag pleit dus voor een vastberaden en realistische aanpak met betrekking tot het kaderprogramma en stelt grote verwachtingen in de technologievan de zee.
-Natuurlijk is er op lange termijn inderdaad een enorm, rendabel potentieel aan energiebehoud en een krachtiger energie-efficiëntiebeleid zou heel waarschijnlijk bevorderlijk zijn voor de banenmarkt in de Unie.
-Hopelijk kan deze helpen de excessen van de tegenover elkaar staande partijen in te dammen en op de lange termijn bijdragen aan de definitieve en zo vurig gewenste vrede in het Midden-Oosten.
-Op lange termijn evenwel worden de problemen van de Europese staalindustrie door crisismaatregelen op korte termijn, die een deel van de capaciteit tijdelijk van de markt laten verdwijnen, niet opgelost.
-Best beluisterbaar hoor, songs als 'Höstmärkrets Natt' en 'Bergtagen' (waarvan je de video hieronder kan bekijken), maar halverwege begint het verzadigingsgevoel toch op te treden.
-Natuurlijk is er op lange termijn inderdaad een enorm, rendabel potentieel aan energiebehoud en een krachtiger energie-efficiëntiebeleid zou heel waarschijnlijk bevorderlijk zijn voor de banenmarkt in de Unie.
-Investeren in de lees- en schrijfvaardigheden van burgers van alle leeftijden is ook vanuit economisch oogpunt zinvol en levert zowel voor de mensen als de samenleving tastbare winst op die, die op lange termijn miljarden euro's kan bedragen."
-Het is tevens voor potgrondmengsels van groot belang om met stabiele kokos te mengen: alleen zo krijgt u een product waar klanten ook op de lange duur tevreden over zijn.
-Als er gevaar bestaat voor overbudgettering, moeten bepaalde kredieten in de nieuwe reserve van het EOGFL-Garantie worden opgenomen.
-Dat betekent dat we Kosovo alle kansen moeten geven, want als Servië op den duur visumvrijheid geniet en Kosovo strikt wordt buitengesloten, zal dat leiden tot een onaanvaardbare ongelijke situatie.
-De invoering van een sociale clausule door de Wereldhandelsorganisatie zou de stabiliteit in de internationale handelsbetrekkingen ten goede kunnen komen en protectionistische tendensen in de ontwikkelde landen kunnen tegengaan.
-Doel van deze regeling is het vergemakkelijken van de financie­ring van de financiële consolidatie en industriële herstructurering van ondernemingen die — hoe­wel levensvatbaar op lange termijn — leiden aan conjuncturele problemen.
-Uiteindelijk moeten bedrijven in de voedselvoorzieningsketen tot duurzame toeleveringsrelaties komen en ervoor ijveren dat verstoringen in de keten worden voorkomen, zodat ze kunnen concurreren en aan de voortdurend veranderende vraag van de consument kunnen blijven voldoen.
-Voorbeeld: mest van vee bedrijven wordt benut op de akkerbouwbedrijven in de buurt.
-Uit het verslag blijkt dat naar schatting tot 97 % van de schepen die Europese havens aandoen, op de lange termijn in staat zal zijn voldoende middelen te vergaren om de kloof naar verantwoorde recycling te overbruggen9.
-Maar de verantwoordelijke voor dit gevaarlijke avontuur is een grote multinationale onderneming, en wat voor één ! En daar wringt de schoen !
-Ze vormen een belangrijk en essentieel onderdeel van de nationale economische ruimtes, die op termijn op de gemeenschappelijke Interne Markt onderlinge concurrentie nodig heb­ben om tot innovaties te komen.
-Consumenten profiteren ook op de lange termijn, als inspanningen van bedrijven om hun concurrenten te overtreffen uiteindelijk leiden tot meer innovatie en efficiëntie bij de productie van bepaalde goederen of diensten.
-Dat zal ook in de toekomst de moeite waard zijn! De Raad is echter zo zuinig met zijn geld dat ik moet zeggen: er is op de lange termijn maar één ding dat duurder is dan onderzoek, en wel geen onderzoek.
-De operatie „bevindt zich beslist nog in een ontwikkelingsstadium en moet worden verfijnd zodat het uiteindelijke resultaat voorspelbaarder en veiliger zal zijn ”, zegt George Waring, een hoogleraar in de oogheelkunde.
-Dientengevolge zalde symmetrie van de capaciteit en de overcapaciteit worden opgeheven en zal parallel gedrag viastilzwijgende coördinatie onder de twee toonaangevende aanbieders op lange termijn onhoudbaar zijn.
+Op de lange termijn en indien grensoverschrijdende integratie aanzienlijk toeneemt, kan het nodig zijn om te overwegen aanvullende maatregelen te nemen om het ADR-systeem voor financiële retaildiensten nog verder te verbeteren op basis van de ervaringen die met de uitvoering van de richtlijn ADR consumenten zijn opgedaan.
 Het is heel duidelijk, geachte collega's, dat men niet alles tegelijk kan doen.
-(Vedabase)Tekst 7 Op den duur slagen grote wetenschappers er misschien in alle deeltjes te tellen die er in het universum zijn van de aarde, van de lucht, van de sneeuw en het licht van de sterren.
-We moeten natuurlijk ook bedenken, hoe masochistisch dit ook moge klinken, dat we op den duur ook rechtvaardige grondstoffenprijzen zullen moeten betalen.
-Hoewel op langere termijn onconventionele en biogasbronnen ertoe kunnen bijdragen de invoerafhankelijkheid van de EU te verminderen, zal de geleidelijke uitputting van de inheemse aardgasbronnen een aanvullende, gediversifieerde invoer noodzakelijk maken.
-Het was duidelijk dat dit project uiteindelijk alleen levensvatbaar was indien de Gemeenschappelijke Markt tot de gehele economie werd uitgebreid.
-Een groot langetermijnvoordeel van de uitbreiding van de Europese Unie is de mogelijke toetreding van landen als bijvoorbeeld de Oekraïne, een land dat te kennen geeft tot de Europese Unie te willen toetreden, maar dat door de Commissie helaas wordt genegeerd.
-De hele sfeer die in de media en in die regio rond haar wordt geschapen, is van dien aard dat zij uiteindelijk vrijwel zeker door welke jury dan ook zal worden veroordeeld.
-Tien verslagen die de vrucht zijn van een langdurige voorbereiding, langdurige debatten, en waaruit concrete en praktische suggesties naar voren komen.
-Berend lange termijn slechts tot teleurstelling en ondoeltreffendheid kan leiden. Dat is zeker niet in ons belang.
-Denk je dat hij er dan later, wanneer hij profiteert van zijn investering, spijt van heeft dat hij in zijn jeugd niet al zijn geld aan pleziertjes heeft besteed?
-Ik weet, mijnheer de Voorzitter, het gaat niet om mij persoonlijk, maar om de kwesties die worden behandeld door de commissie waarvan ik lid ben: jeugd, onderwijs, cultuur.
-Met dit advies zullen de identiteit, rol en positie van het EESC in de door zes achtereenvolgende voorzitterschappen gestarte langetermijndiscussie over de verbetering van de regelgeving worden geconsolideerd.
-Toen ik de vergelijking van de prijs naar een andere kleinere en goedkopere auto, besefte ik dat met de financiering van de kosten van de andere auto, mijn auto was eigenlijk goedkoper op de lange termijn.
-Onze vertegenwoordigende rol, die op den duur bepalend is voor de vraag of het systeem van rechts treekse Europese verkiezingen zal overleven, is zwak en behoeft dringend versterking.
-Hier komen twee systemen met el kaar in botsing die zo fundamenteel verschillend zijn, dat zij inclusief de hele ermee samenhangende problematiek niet met elkaar vergelijkbaar zijn.
-De voordelen van de netwerken voor de gehele Unie en voor de afzonderlijke lidstaten staan buiten kijf. Ze zijn veel groter dan de omvang van de eventuele budgettaire terugbetalingen op termijn.
-Het onvermogen om de behoeften van uw partner te vullen zal zeker zorgen dat je je zelfvertrouwen sterk verminderen, verliest je gevoel van eigenwaarde en vervolgens op de lange termijn niet in je relatie.
-Wij willen zeer zeker komen tot een totale afschaffing van de controles aan de grenzen.
-Natuurlijk, op de lange duur zal elk van deze landen ook de negatieve effecten op haar economie te verduren krijgen, en, na een aantal decennia haar munt in elkaar laten klappen om van de torenhoge buitenlandse schulden af te komen.
-De wetgevende procedure tussen Commissie, Parlement en Raad moet dan ook evenwichtiger worden.
-Hoe moet men onze kleine producenten bevredigend laten verdienen zonder de voorwaarden voor een overschotproduktie teweeg te brengen, speciaal wat betreft de suiker, in het licht van een verbruik dat al jarenlang stationair is.
-Op termijn gaat Stichting Adopt a Stove ervan uit dat subsidiëring van de Chula's niet meer nodig zal zijn, en er een dynamische markt is ontstaan van kleine, lokale producenten, distributeurs en goed geïnformeerde consumenten.
-Op lange termijn moet het stelsel van de concentratieverordening verder worden uitgebouwd tot een waarachtige "Europese ruimte voor concentratiecontrole", waarin één stel regels geldt voor concentraties die door de Commissie en nationale mededingingsautoriteiten worden onderzocht.
-De roddels Slots Club wacht op u, dus als u van plan bent om bij hen verblijven op lange termijn dient te weten dat dit's en het's een goede reden om te blijven hangen.
-Uit de figuur blijkt duidelijk dat het gebruik van een commercieel of niet-robuust apparaat op de lange termijn veel meer kost: ongeveer 65% meer per jaar dan een robuust apparaat.
-Wordt aan deze voorwaarden niet voldaan, dan dreigt reddings- en herstructureringssteun voor ondernemingen in moeilijkheden de herstructurering van de industrie in gevaar te brengen en zelfs te beletten, en aldus uiteindelijk arbeidsplaatsen te vernietigen.
-Soms zijn de doelstellingen uiterst precies vastgelegd voor leerlingen, onderwijzers en instell­ingen, terwijl in andere gevallen alleen de gevolgen voor de leerlingen om­schreven zijn.
-Op termijn gaat Stichting Adopt a Stove ervan uit dat subsidiëring van de Chula’s niet meer nodig zal zijn, en er een dynamische markt is ontstaan van kleine, lokale producenten, distributeurs en goed geïnformeerde consumenten.
-Wordt gekozen voor "lagere prijzen", dan zou de suikersector op een lijn komen te staan met andere landbouwsectoren en zou de concurrentievervalsing afnemen als op termijn rechtstreekse ontkoppelde inkomenssteun wordt toegekend.
-„ Dingen zoals een tv - abonnement en uit eten gaan lijken misschien best betaalbaar, maar kunnen op de lange termijn tot financiële problemen leiden ”, zegt Aaron, die twee jaar getrouwd is.
-Dit komt uiteindelijk de klant ten goede, wat dus duidelijk de bedoeling van dit programma is. Bovendien zorgt een goed kwaliteitsbeleid ervoor, dat het werk en de uitwisseling van informatie binnen het bedrijf soepeler en effectiever verloopt.
-Het dunst bevolkte district (Jesenik) telt zo'n 43.000 inwoners: het dichtst bevolkte district buiten Praag (de stad Brno) heeft maar liefst 386.000 inwoners.
-• In 1990 werd in Nederland het samenwerkingsverband „1994: Vrouwen kiezen in de politiek" (1994 was een verkiezingsjaar) opgericht en door de Nederlandse overheid gesubsidieerd.
-Vanaf nu, Zooms.searchalgo.com lijkt van invloed kunnen zijn op de Google Chrome webbrowser alleen, maar het betekent niet dat dat op de lange termijn het zou niet van invloed op Mozilla Firefox, Internet Explorer en andere browsers.
-Er werd nog nooit een milieu-impact studie verricht zoals zelfs de Indonesische wet vereist. Er zijn reeds Indonesische ministers gekant tegen dit megarijstproject, waarbij het woud in deze speciale tropische woudstreken platgebrand wordt.
-(') Stackelberg betekent in deze toepassing dat de volger zijn beleid, met inbegrip van de wisselkoers, zo vaststelt dat hij zijn nutsfunctie maximaliseert, waarbij het optreden van de leider als gegeven wordt beschouwd. terwijl de leider maximaliseert, rekening houdend met het beleid van de volger.
-De bevriezing van de prijzen gedurende de jongste drie oogstjaren, de ondersteuning van de braaklegging van gronden en de extensificatie, voor de stopzetting van bedrijven, het rooien van wijnstokken en de vrijwillige stopzetting van de melkproduktie zijn maatregelen waarmee de EG weliswaar haar interne situatie saneert, maar ook haar marktaandeel in de wereld verkleint.
-Ironisch genoeg stellen dezelfde mensen die deze illusie huldigen, dat de krachtsverhouding in de wereld 'op de lange duur' beslissend veranderd zal worden door de economische en militaire versterking van de USSR.
-Op den duur zullen de studies naar het gedrag van de cel in reactie of mechanische belasting bijdragen aan de kennis en begrip van het ziekteverloop en mogelijke behandeling van botontkalking ten gevolge van verminderde beweging, c.q. immobiliteitsosteoporose, en misschien andere biomechanisch gerelateerde aandoenigen.
-Hernieuwbare energie bronnen als wind, zon, water en biomassa hebben een groot potentieel, maar ze hebben nog een aanzienlijke ontwikkeling nodig alvorens zij een wezenlijk deel van de energievoorziening zullen leveren.
-Er moeten maatregelen worden genomen om de band met de arbeidsmarkt te ondersteunen en blijvend hoge werkloosheidcijfers te voorkomen, om op die manier een hoge arbeidsdeelname en houdbare overheidsfinanciën voor de lange termijn veilig te stellen.
-Tijdens het debat van vandaag heb ik opgemerkt dat sommige sprekers hebben aangedrongen op een specifieke beoordeling van de Ierse problemen, wat de vast stelling van de landbouwprijzen betreft.
-Op 'We Are The Night' daalt de tempo weer en krijgen we een epische, dreigende mid-tempo song.De epische ballade 'Faith Of The Fallen' doet helaas de stemming weer inzakken en begint op den duur zelfs te vervelen.
-De voorgestelde maatregel is bedoeld om eventuele obstakels voor het vrije verkeer van in de lidstaten gekwalificeerde zeevarenden, op te ruimen, hetgeen op de lange termijn hun mobiliteit verhoogt en hun werkgelegenheid binnen de Unie bevordert.
-De Commissie stelt overigens met belangstelling vast dat de regeringsstructuren in verschillende Lid-Staten evolueren naar een bundeling van de ministeries van Onderwijs, Onderzoek en Opleiding, een bundeling die men ook binnen de Commissie terugvindt.
-Het leven in de drukke omstandigheden van steden heeft veel onaantrekkelijke kenmerken, maar op de lange termijn kunnen deze misschien overwonnen worden, niet zozeer door de omstandigheden te veranderen, maar simpelweg door het menselijk ras te veranderen zodat zij het prettig vinden."
-Men zou dus kunnen zeggen dat preferentiële quota op de korte termijn de samenwerking met bepaalde derde landen kunnen bevorderen, maar op de lange termijn het risico in zich dragen dat ze de samenwerking met andere derde landen belemmeren.
-Ik geloof echter dat het, door een middenweg te zoeken tussen die twee stellingen, uiteindelijk mogelijk zal zijn deze weerstanden te overwinnen, zoals de Europese operaties in Bosnië, Macedonië of Congo bewijzen.
-De Duitse „Forschungsgemeinschaft" voorspelde in 1981 op grond van een langlopend onderzoek dat de kans om op het werk kanker op te lopen op lange termijn zou afnemen ten gevolge van de steeds strengere veiligheidseisen en beschermende maatregelen op het werk.
-Hossende, jakkerende nummers kunnen leuk zijn - soms is het accordeon die het leidende instrument is, dan weer fluit - maar gaandeweg lijkt het of dit album met iets te veel haast opgenomen is.
-Samenvattend kan men zeggen dat het aantal wijzigingen van het dienstrooster op korte termijn op den duur te veel van het goede is, aangezien planning van vrije tijd aanmerkelijk wordt bemoeilijkt.
-Hoewel het project geen directe uitwerking heeft op het formuleren van beleid, wordt het op den duur van belang voor de vraag, hoe het beleid en het recht sociale terreinen met een grote mate van autonomie kunnen reguleren.
-De gevaren die haar bedreigen en met name de verbeten concurrentie van derde landen alsook de relatieve — en zeker aangemoedigde — toegankelijk heid van sommige markten zijn er de oorzaak van dat er een dringende behoefte bestaat aan „een algemene strategie van de Gemeenschap voor deze sector, ten einde de noodzakelijke kadervoorwaarden te scheppen waardoor de Europese automobielindustrie in staat is ten volle te profiteren van de omvang van de markt van de Gemeenschap, ten einde haar produktiviteit op te voeren en haar mededingingsvermogen op de wereld markt te verbeteren".
-Daarnaast kan de kwaliteit LED-verlichting spoor duren tot 70.000 uur met een minimale daling van de intensiteit of de macht, wat betekent dat een persoon kan een hoop geld besparen op reparaties en onderhoud op de lange termijn.
-Kunst en cultuur wordt hierbij gebruikt om op een andere, aantrekkelijke en meer positieve manier het publiek vragen te doen stellen, zo de discussie open te breken en op termijn het draagvlak voor ‘mensen zonder papieren’ te verruimen.
-Tegelijkertijd moeten wij er echter voor zorgen dat de methode ook in de sectoren van de versterkte samenwerking Europees blijft, en de versterkte samenwerking geen factor van uitsluiting maar ­ op lange termijn - van vereniging is.
-Frank zet uiteen: „Op de lange termijn doet het er niet echt toe hoe duur je garderobe is of hoe ouderwets of modern, zolang ze maar de indruk overbrengt dat je je om je uiterlijk bekommert.
-Concreter gezegd: als een opgeworpen muntstuk driemaal op een rij met de kop naar boven valt, is er een verhoogde waarschijnlijkhedi dat de volgende worp met de kop naar beneden zal vallen, omdat het statistisch gemiddelde op lange termijn moet beïnvloed worden.
-.Na Seattle, Doha en Cancun is het nu de beurt aan de top van Hongkong om zestig jaar filosofische en technische dwalingen voort te zetten ten aanzien van de verlaging en op den duur de afschaffing van douanetarieven.
-Op den duur zult u zich meer kunnen verlaten op een niet zo efficiënte, maar vreugdevolle werker, dan op de 100 - procent - efficiënte arbeider die zijn werk met tegenzin, gebrek aan vreugde en onverschilligheid verricht.
-Men schatte dat het bruto looninkomen per hoofd met 4% zou stijgen en de regering sprak de wens uit dat het loonbeleid van de sociale partners een gunstig klimaat zal doen ontstaan voor meer prijsstabiliteit en, op langere termijn, verbetering van de werkgelegenheidssituatie.
-Om betrouwbaarheid en toegankelijkheid van post te blijven garanderen en om goede arbeidsomstandigheden in deze krimpende markt te kunnen blijven bieden, menen wij dat consolidatie van postnetwerken in Nederland op termijn onvermijdelijk is.
-Daaruit kunnen dan eventueel de nodige conclusies worden getrokken.
-Ik zou deze opvattingen graag willen delen, maar ik kan toch echt niet vergeten dat de Veiligheidsraad bij soortgelijke voorvallen in het verleden ver zuimde een dergelijk besluit te nemen, en dat ook de internationale gemeenschap niet op een soortgelijke manier reageerde.
-Maar dit betekent niet dat u niet zal reageren op het; je hoeft alleen maar meer geduld en hard werken. Op de lange termijn, u zal zitten kundig voor merken een duidelijke verbetering in zowel uw lichaam structuur, bouwen en prestaties.
-We hebben staatsinvesteringsfondsen nodig en op termijn ook investeringen van staatsfondsen uit andere landen, uit landen buiten de EU, omdat het anders op den duur waarschijnlijk onmogelijk wordt om de infrastructurele uitgaven in Europa te financieren.
-Als een congestieheffing ontbreekt, dan zullen de vervoerssnelheden op lange termijn altijd te laag zijn doordat de verkeersopstoppingen zullen blijven bestaan en tegelijkertijd de verkeersomvang groter dan wenselijk zal blijven.
-Ik maakte slechts één opmerking Double Steen niet zeggen dat je geen geld kon verdienen. Ik heb altijd betwist de bewering dat we niet kunnen winnen op de lange termijn, zei ik weet niet waarom je anders denken.
-“Integendeel, de PC zal een meer gespecialiseerde, doel-aangedreven apparaat. PC-kopers zullen kijken naar kwaliteit en functionaliteit in plaats van op zoek naar de laagste prijs, die zal verhogen van PC van de gemiddelde verkoopprijzen (ASPs) en verbetering van de winstgevendheid op de lange termijn.”
-Met richtsnoeren over de opname van levenscycluskosten in de gunningscriteria kunnen opdrachtgevers gestimuleerd worden om GPP-criteria toe te passen omdat daarmee wordt aangetoond dat groene overheidsopdrachten in vele gevallen gewoon doeltreffende opdrachten zijn die op lange termijn tot kostenbesparingen leiden.
-eerste helft van het jaar wordt gereageerd met uitgavenoverschrijdingen. Hoewel het land zich in een relatief goede uitgangspositie bevindt om de budgettaire kosten van de vergrijzing op te vangen, sluit de Commissie niet uit dat er zich op lange termijn een aantal gevaren kunnen voordoen, en zij adviseert om naast de modernisering van het pensioenstelsel en de gezondheidszorg een adequaat primair overschot te handhaven om de houdbaarheid van de overheidsfinancie¨n te waarborgen.
-Nu de spanningen rondom de toekomstige status van Kosovo toenemen, zou het verkeerd zijn te denken dat het afzwakken van de voorwaarden van de EU en zich in allerlei bochten wringen om concessies te doen aan Belgrado op de lange termijn in het belang zou zijn van de EU of van Servië.
-Hij bedoelt dat u een truck krijgt met alle services die u nodig heeft, plus een ﬁnanciële oplossing op maat waarmee u niet alleen bespaart op de papierwinkel, maar de algemene kosten op de lange termijn ook lager zullen uitvallen.
-De openbare financiën moeten ook op langere termijn houdbaar zijn, hetgeen betekent dat het huidige begrotingsbeleid niet mag leiden tot of het risico inhouden van toekomstige begrotingsonevenwichtigheden als gevolg van de budgettaire effecten van de vergrijzing van de bevolking.
-Shed die extra ponden Capsaïcine staat bekend als een thermogene effect hebben, wat betekent dat het verhoogt uw lichaam warmte, die op zijn beurt leidt tot uw stofwisseling en helpt je verliest extra calorieën direct na een maaltijd en ook op de lange termijn.
-Deze som kan ontmoedigend zijn, zelfs voor de low roller die met chips van $5 gokt- en om op lange termijn doeltreffend te zijn, moet de speler over een grote bankroll beschikken en zich aan een lage-limiet tafel inkopen.
-Dat kan op termijn de paspoortvrijheid in de Noordse landen in gevaar brengen, aangezien IJsland en Noorwegen, die geen lid van de EU zijn, als ze bepaalde besluiten niet goedkeuren elk ogenblik uit het Akkoord van Schengen kunnen worden gegooid.
-Uit één studie blijkt bijvoorbeeld dat de lonen in de EU-15 op de korte termijn gemiddeld slechts 0,08% lager zijn dan zij zouden zijn geweest zonder de extra mobiliteit uit de EU-8; op de lange termijn zijn er volgens deze studie überhaupt geen gevolgen.
-Helemaal niet fijn vond ik daarentegen, dat ik mijn ouders opeens niet meer regelmatig kon zien", herinnert de thans 27-jarige man zich.Op de lange termijn beheersten echter andere aspecten de herinnering aan de tijd op het internaat.
-Wanneer behoefte blijkt te bestaan aan financiële steun van de Gemeenschap, wordt deze via de verschillende bestaande financieringsinstrumenten, waaronder met name de Structuurfondsen en het Cohesiefonds, verstrekt.
-De migratiestromen kunnen de daling van het geboortecijfer wellicht gedeeltelijk opvangen, maar zullen geen oplossing bieden voor het demografische tekort; dit niet in de laatste plaats omdat immigranten op de lange duur vaak de demografische patronen van het land waar zij wonen overnemen.
-Iets neerpennen zorgt voor een duidelijke structuur in je hoofd en zal meer effect hebben op lange termijn dan wanneer je gewoon “denkt” aan wat je wil doen. Bovendien wakkert schrijven je creatieve geest aan en zal je veel meer innovatieve ideeën krijgen.
-Allen die zich met volharding en hartstocht hebben ingezet voor het ideaal van dé Europese eenwording, hebben met hoopvolle maar ook angstige spanning de nog lopende onderhandelingen over de toetreding van Groot-Brittannië tot de gemeenschappelijke markt gevolgd en hebben met grote vreugde kennis genomen van de aankondiging van de eerste con tacten met het oog op samenwerking met andere Europese landen.
-Wat we [slechts] zien is hoe U, net als de wind die de wolken uiteendrijft, met Uw zo heel grote kracht [van de Tijd] op den duur al de planetenstelsels vernietigt en hoe alle levende wezens hun einde ermee vinden door toedoen van anderen.
-Op lange termijn kunnen we geen staten redden en moeten we ook geen staten redden, het doel moet zijn om de economische unie van Europa te vervolmaken en om een Europese begrotingsruimte tot stand te brengen die de Europese staten en de eenheidsmunt kan ondersteunen.
-Op de lange termijn zijn Europese beleggers en Europese bedrijven die aan kapitaal willen komen het meest gebaat bij instellingen van wereldklasse die binnen een regelgevingskader van wereldklasse zaken doen, zich daarbij bedienen van de nieuwste technologie en in staat zijn om het door hen gewenste brede scala van diensten te bieden.
-Ik ben twintig jaar lid van dit Parlement en mijn ervaringen hebben mij geleerd dat de populariteit van een spreker, althans op den duur en zeker tegen het einde van een nachtvergadering, omgekeerd evenredig is aan de lengte van zijn spreekbeurten.
-Wanneer de mens op hetzelfde niveau als de ander staat dan is hij onderhevig aan de invloed van het andere ego. Een meer realistisch ego uit realiteitsbesef creëert op den duur ook een realistischer mens en wereldbeeld.
-We moeten allemaal met vindingrijkheid en vasthoudendheid te werk gaan om de textiel-, kleding- en leerindustrie te beschermen, want de lessen die we uit deze crisis kunnen trekken zullen ons op termijn helpen andere sectoren van de Europese economie te behouden en te ontwikkelen.
-Wanneer deze nog volkomen nieuwe relatie geconsolideerd zou worden, de aanvaarde norm zou worden en zou worden gelegaliseerd, hetzij met, hetzij zonder verzet van de arbeiders, dan zou dat op de lange duur leiden tot een volledige liquidatie van de maatschappelijke veroveringen van de arbeidersrevolutie.
-Zelfs als de nieuwe belastingverlagingen van Romney op de lange termijn de investeringen en de groei zouden versterken (een twijfelachtige voorstelling van zaken, omdat dit afhankelijk is van de manier waarop ze worden gefinancierd), zou hun kortetermijneffect op de banenaanwas minimaal zijn. Ze zouden ook tot een aanzienlijk verlies aan inkomsten voor de overheid leiden.
-Ten derde leven wij in een tijd van de globale „drieëenheid". dus van de wereldeconomische driehoek van Amerika, Canada, en Mexico aan de ene, Japan, de ASEAN-landen, Taiwan en Korea aan de andere kant en ten slotte Europa.
-Je kan van je afbijten wat je wil... tegen alles wat we voor jou doen, maar... mettertijd, denken we dat je iemand zal zijn die het zal begrijpen... niet enkel om wat we proberen te doen, maar iemand die het zal aanvaarden.
-En tussen hen in zijn er diegenen, die klagen dat zij niet veel resultaat behalen en zij hebben brieven nodig die hen zeggen, "zet door mijn schat, ga door (gelach), dan kom je er wel".En in het algemeen krijgen zij op lange termijn resultaten.
-4.3.4 Zoals de Commissie uiteenzet dient bevissing van alle soorten in een ecosysteem plaats te vinden op basis van een streefwaarde die strookt met het langetermijnstreven van een maximale duurzame opbrengst.
-In elk geval is het zo dat in de Europese Gemeenschap de procedure zo is dat het formeel moeilijk is om een open discussie aan te gaan op basis van teksten over het recept van een onderhandeling.
-Dit is op zijn beurt alleen maar mogelijk wanneer het monetaire beleid een dergelijke ontwikkeling toelaat door de rente laag en de geldgroei hoogte houden.
-Wat we [slechts] zien is hoe U, net als de wind die de wolken uiteendrijft, met Uw zo heel grote kracht [van de Tijd] op den duur al de planetenstelsels vernietigt en hoe op dezelfe manier alle levende wezens hun einde vinden door externe oorzaken.
-zorgen voor duurzame en efficiënte vervoersystemen op lange termijn, met als doel voorbereiding te treffen voor de verwachte vervoerstromen, en ook het mogelijk maken dat alle vervoerswijzen koolstofarm worden, door overgang naar innovatieve koolstofarme en energie-efficiënte vervoerstechnieken terwijl de veiligheid wordt geoptimaliseerd.
-Nieuwe strategieën voor de technologische ontwikkeling van e-infrastructuren zijn ook van fundamenteel belang om te zorgen voor “toekomstbestendige” oplossingen op basis van open normen, die uiteindelijk in stand gehouden en verder verbeterd kunnen worden en waarde toevoegen aan de investeringen in onderzoeksfaciliteiten, grote en/of unieke instrumenten, enz.
-Maak uw nieuw huis gekocht vrij van ongedierte en termieten door het inhuren van ongediertebestrijding & termiet inspectie Geelong diensten aangeboden door Surf Coast Building Inspecties. Onze ongedierte en termiet inspectiedienst is ongeëvenaard en zal u grote voordelen op de lange termijn te geven.
-De onderhandelingen over Jeruzalem, die onderdeel uitmaken van de laatste fase van het gehele proces, zullen op zichzelf al moeilijk genoeg zijn. De Israëlische regering moet begrijpen dat deze beslissing ook voor haarzelf op termijn meer schade dan voordelen kan opleveren.
-Opbouw van betrekkingen op energiegebied met de buurlanden van de EU, overeenkomstig het recente voorstel van de Commissie om het Europese nabuurschapsbeleid (ENB)31 ook op het gebied van energie te versterken, met een mogelijk EU-ENB-Energieverdrag met op lange termijn mogelijk al onze relevante buren.
-Er kan een aanzienlijk technologisch potentieel aan energiebesparingen worden aangewend, zelfs indien de ontkoppeling economische groei/energieverbruik in de vervoersector op lange termijn afhankelijk is van een ingrijpende wijziging van de typische aspecten van het economisch en maatschappelijk leven en met name van de ruimtelijke ordening.
-Door vermindering van de CO2-uitstoot zou de milieuschade worden beperkt, er zou werkgelegenheid worden geschapen omdat energiebesparingsmaatregelen zeer arbeidsintensief zijn en ten derde zouden op den duur de energierekeningen van ouderen en andere kwetsbare groepen in de samenleving natuurlijk omlaag gaan.
-i) In de eerste plaats optreden op het gebied van onderwijs en opleiding iii) Doeltreffende benaderingen voor economische en maatschappelijke innovatie demonstreren
-Weet hoeveel kaarten je hand maken en dan weet dat je op lange termijn potten zult winnen in het wiskundig passende percentage: als je x% kans hebt om de winnende hand te maken, krijg je beter tenminste de overeenstemmende juiste pot kansen.
-Wanneer we werken met een klant, hebben we een vast aantal doelen: we willen het aantal ongevallen verminderen, willen we de aanwezigheidsniveaus verbeteren en we willen we op lange termijn de kosten verlagen, omdat kwaliteit op den duur altijd loont.
-Het is dus geen goed idee om je portefeuille uitsluitend in te vullen met één bepaald type belegging waarvan je hoopt dat het op termijn het beste rendement zal geven. Spreid je beleggingen De financiële markten zijn soms wispelturig en niet altijd voorspelbaar.
-Beiden steunen wij de Oekraïners bij het zoeken naar een oplossing die aan de wensen van de Oekraïnse burgers voldoet en waardoor de eenheid van het grondgebied gewaarborgd blijft; een oplossing die kan bijdragen aan een stabiel, vrij en welvarend Oekraïne dat wordt geregeerd door een president die de president van alle Oekraïnse burgers is.
-De doelstellingen op middellange termijn waren dan ook dubbel: i) het hoofd bieden aan de financieringsbehoeften van France Télécom, en ii) de onderneming van haar schuld bevrijden en haar eigen vermogen opnieuw opbouwen, een conditio sine qua non om de onderneming op termijn opnieuw kredietwaardig te maken tegenover de beursmarkt.
-We moeten niet vergeten dat de uitgaven op Europees niveau op de lange termijn besparingen opleveren op nationaal niveau, met name vanwege de schaalvoordelen van deze uitgaven en het feit dat zij vaak innovaties en beleidsmaatregelen mogelijk maken die de lidstaten niet zelfstandig ter hand hadden kunnen nemen.
-Het ware beter dat men zich van deze fundamentele waarheid vóór de topbijeenkomsten bewust ware in plaats van zich op te sluiten in nationaal egoïsme, waarvan iedereen weet dat het op lange termijn rampzalig zal zijn zowel voor elk van onze bevolkingen als voor de hele Gemeen schap.
-In dit verband is amendement nr. 29 tekenend voor deze demagogische afdwaling, want het wil alle personen zonder betaald werk, die in de Gemeenschap verblijven, dus alle immigranten, of hun situatie regulier is of niet, een minimum aan middelen garanderen in de vorm van sociale bescherming.
-Wanneer we werken met een klant, hebben we een vast aantal doelen: we willen het aantal ongevallen verminderen, willen we de aanwezigheidsniveaus verbeteren en we willen we op lange termijn de kosten verlagen, omdat kwaliteit op den duur altijd loont. Meer informatie.
-Maar zelfs in dit geval — wat enkel mogelijk is indien de werkende massa een serieuze nederlaag heeft geleden en vooraf gedemoraliseerd was — kan een sterke beteugeling van de sociaaleconomische tegenstellingen voor het kapitalisme enkel leiden tot een nog explosievere situatie.
-„Voorstel voor een verordening (EEG) van de Raad houdende algemene voorschriften voor de toepassing van de in artikel S quinquies van Verordening (EEG) Nr. 804/68 bedoelde heffing in de sector melk en zuivelprodukten"
-3.9 Door de ontwikkeling van immateriële activa (merken) kan een onderneming zich onderscheiden van haar concurrenten, nieuwe producten en nieuwe concepten op de markt brengen en in het algemeen zeer fors aan concurrentiekracht winnen, wat uiteindelijk leidt tot meer klanten, winst en werkgelegenheid.
-Dat is op zich niet nieuw en in lijn met hun algemene beleid. De vraag is echter gerechtvaardigd of dat niet een te éénzijdige benadering is die op de lange termijn juist tot gevolg kan hebben dat de mededinging op farmaceutische markten beperkt zal worden.
-Laten we even dieper ingaan op deze beklijvende getuigenis van zelfreflectie en smart… Traag en weemoedig, met mooie donkere zang en kalme gitaarornamenten is opener 'Send In The Clowns' meteen een slepend statement, met zang die steeds wanhopiger en ruwer wordt.
-In werkelijkheid voeren zij een kosten-batenanalyse uit op basis van dezelfde redenering als iemand die geen verzekering neemt omdat het op lange termijn voordeliger blijkt de schade zelf te betalen.
-Ik kom later op dit onderwerp terug, aangezien het een gedeeltelijke oplossing zou kunnen betekenen voor het extra geld dat er zou moeten komen, in die zin dat de lidstaten hiermee aan hun doelstellingen en beloftes kunnen voldoen op een op de lange termijn voor hun begrotingen minder pijnlijke manier.
-Als u het gebruik van alle functies van de werkbalk, het verzamelt persoonlijke informatie voor het aanpassen van de service voor u, maar als de informatie wordt onderschept door cybercriminelen het kan worden gebruikt voor marketing doeleinden, of u kunnen worden besmet met gevaarlijke malware op de lange termijn.
-De vergaderingen van de Conventie, zo wel de plenaire zittingen als de vergaderingen van het presidium, zullen te Brussel plaatsvinden.
-Beide regelingen hebben tot doel het aandeel van deze producten in de voeding van kinderen in een vroege fase van hun leven, wanneer hun eetgewoonten worden aangekweekt, duurzaam te vergroten en zo bij te dragen tot de doelstellingen van het GLB, meer bepaald het stabiliseren van de markten en het zekerstellen van de vraag op lange termijn.
-Geachte collega' s, hoewel de noodzaak van een toekomstig Europees openbaar ministerie geen langetermijnprobleem lijkt, lijkt het me van meer dan fundamenteel belang dat ons beleid ten aanzien van de bescherming van de rechten van de burgers en met name onze strafrechtprocedure geharmoniseerd worden.
-Nu krijgt de civiele samenleving, dus activiteiten van niet-gouvernementele organisaties, projecten voor mensenrechten, proportioneel het grootste deel van de rekening gepresenteerd, en dat lijkt mij een heilloze weg voor stabiliteit op de lange termijn.
-De heer Forte. — (IT) Zoals ik reeds heb gezegd, blijft voor ons het kader waarin wij werken, geldig. Natuurlijk kunnen de betrokken partijen zich tot de Verenigde Naties wenden, ten einde verdere activiteiten te ontplooien.
-Ons systeem is ontworpen om bedrijven en hun werknemers te helpen tijd en kosten te besparen, en - cruciaal - van hun werk te genieten, waardoor ze op de lange termijn productiever worden."Odeon Cinemas Group heeft meer dan 11.000 medewerkers in meer dan 360 bioscopen in 14 landen binnen Europa, waarvan 120 in het Verenigd Koninkrijk.
-In de pilotfase is het gelukt om 4.000 boeren te laten omschakelen naar duurzame katoenteelt, die voldoet aan de internationale 'Better Cotton Criteria'.Dit levert een enorme natuurwinst op voor de lange termijn.In deze tweede fase, wil Solidaridad samen met de lokale organisaties AProCa nog eens 21.000 boeren duurzaam laten produceren.
-Tussen 40 en ruim 90 % van de intraveneuze drugsgebruikers is besmet met het hepatitis-C-virus (HCV),zelfs in landen met een lage HIV-besmettingsgraad, zoals Griekenland (zie figuur 9, hoofdstuk 1).
-Volgens het Comité is het niet voldoende te trachten het netto-verlies aan arbeidsplaatsen in de textiel- en kledingsector goed te maken door nieuwe werkgelegenheid te scheppen in andere sectoren, daar in vrijwel alle bedrijfstakken herstructureringsprocessen aan de gang zijn en dus ook in die sectoren arbeidsplaatsen verdwijnen.
-— één- of tweewekelijkse cursussen voor jongeren uit de EG over de geschiedenis, de cultuur en de opbouw van Europa en de verwachte toekomstige dimensie ervan;
-Hun mogelijkheden zijn echter nog beperkt (zo worden postkantoren op het platteland vaak als een politiek gevoelig onderwerp beschouwd), en de mate van flexibiliteit waarmee de LUD's hun infrastructuur mogen beheren, is zeer zeker van belang bij het vinden van een lange-termijnoplossing voor het bovengeschetste patroon.
-Wat dit betreft, zou ik U, mijnheer de commissaris, de vraag willen voorleggen of de regelingen bepalingen bevatten die zo'n toepassing met terugwerkende kracht mogelijk maken, te meer omdat ik mij meen te herinneren dat zoiets in het verleden al eerder is gedaan.
-Maar wat gebeurt er vervolgens? In andere lid-staten, waar de slagerslobby kennelijk wat sterker is, weet men zijn regering ertoe te bewegen, om enkele dagen voor 1 januari 1993 de richtlijn zo te wijzigen dat kleine zelfslachtende slagers geen
-Als u het goed gebruikt kunt u er lang van blijven genieten, terwijl als u teveel en te vaak gebruikt u niet alleen vervelende bijwerkingen zal ervaren maar u wordt er ook toleranter voor waardoor het ook op den duur niet meer hetzelfde fijne effect zal hebben.
-Mijnheer de Voorzitter, om af te ronden wil ik nog zeggen dat vrijwillige overeenkomsten een oplossing kunnen bieden en dat wij de auto-industrie loven voor de inspanningen, maar wij weten ook dat dergelijke overeenkomsten slechts succesvol kunnen zijn mits er metingen gedaan worden en sancties uitgevaardigd worden. Anders is succes op lange termijn uitgesloten.
-Volgens het EESC moet bij een onderzoek naar de aard en indeling van overeenkomsten naar de doelmatigheid ervan worden gekeken: een overeenkomst voor het verrichten van werken of het leveren van een prestatie impliceert niet dat beheers-, financierings- of onderhoudstaken voor een lange periode aan een daarvoor uitgekozen bedrijf worden overgedragen.
-De kleinbeeldfilms wonnen het op den duur zelfs van grotere negatiefformaten tot 9x12 cm vanwege de 'reserve' in scherpte en oplossend vermogen (dit is het aantal lijnen wit-zwart dat per mm nog als lijnen wordt weergegeven; wordt de grens overschreden, dan ontstaat een egale grijze toon).
-Er is nog een vraag die beantwoord moet worden: welke houding van de Sovjetunie zou op de lange duur het beste bijdragen tot het vermijden van een kernoorlog: een geleidelijke terugtocht voor de imperialistische agressie en chantage of een vastbesloten interventie ten gunste van de verschillende door het imperialisme aangevallen revolutionaire volken en bewegingen?
-Uit naam van de nationale solidariteit hebben de belangrijkste economische subjecten in de Gemeenschap (werknemers, agrariërs, onafhankelijken, ondernemers uit het M.K.B.), zij het in uiteen lopende mate, gevoelige offers gebracht.
-Om die reden wil ik iedereen en met name de lidstaten uitnodigen om vaart te zetten achter de ratificatieprocedure en zodoende een signaal af te geven dat de stappen die Servië richting Europa zet, moeten worden ondersteund, zodat we op den duur veiligheid in de regio kunnen bereiken.
-Wordt het niet tijd dat wij een einde maken aan ons akkoord met de Verenigde Staten, die dit volk, op termijn, ter dood veroordelen en die zich momenteel niet meer alleen bezondigen aan een schending van het internationaal recht, maar ook een interne regeling opdringen waar de internationale gemeenschap niets mee te maken heeft?
-Elise Darma, Instagram marketeer:- Will Instagram uitgegroeid tot de grootste mobiele e-commerce platform? - Ik denk dat Messenger is ook een sterke concurrent voor het besturen van e-commerce omzet via mobiele, maar als gevolg van sterk visueel karakter Instagram's, Ik zou zeggen dat mijn weddenschap zou met Instagram zijn op de lange termijn.
-De Groenen hebben een heel ander concept waarin zij zeggen: wanneer wij werkelijk ecologisch-duurzaam zouden produceren en daar de ecologische kostprijs voor betalen, dan kunnen wij de derde wereld met haar landbouwprodukten op onze markten toelaten, mits wij ook dan hun een sociale en ecologische prijs betalen.
-Meer nog dan die principeverklaring moet Europa praktische steun bieden aan dit initiatief door middel van richtlijnen en beleidsmaatregelen die, op de lange termijn, alle elektronische systemen, of ze nu in de lucht hangen of niet, zullen integreren, en het mogelijk zullen maken de processen te controleren en in auto's te rijden die veiliger en schoner zijn, met een lagere CO2- en roetuitstoot.
-Ondanks alle problemen ook op het gebied van de schuldenlast, is het onwaarschijnlijk dat we in de betrekkingen tussen Oost en West al aan de ontwikkelingsgrens zijn gekomen, want de Oosteuropese landen, die 25 % van het bruto wereldprodukt voortbrengen, zullen zich op den duur niet meer tevreden stel len met een aandeel van slechts 10 % van de wereld handel.
-3.2.2.4 De grote hoeveelheid energie die verloren gaat is voor een deel toe te schrijven aan de eindgebruikers: slechte kwaliteit van de materialen; onvoldoende thermische isolatie; verouderde technologieën die energie "vreten"; verouderde verwarmingssystemen; energieverslindende verlichting; verbrandingsinstallaties met een laag rendement; pompen van slechte kwaliteit, enz. Anderzijds is dit grote energieverlies toe te schrijven aan een ondoeltreffend energiebeheer met veel verspillingen40, waar de consumenten uiteindelijk voor opdraaien.
-Terwijl zij „het pessimisme van hen die meenden dat een harde confrontatie tussen Parlement en Raad op den duur onvermijdelijk zou worden", afwees, gaf mevrouw Flesch blijk van haar voldoening over het feit dat het Luxemburgse voorzitterschap heeft geijverd „voor een hechtere en vruchtbaardere samenwerking" tussen deze twee Instellingen, zodat de Raad „meer begrip is gaan opbrengen voor wat werkelijk leeft bij het Parlement".
-Ook het aantal synodische maanden in een tropisch jaar is geen heel getal, dus zal een kalender met hetzelfde aantal synodische maanden per kalenderjaar uit de pas lopen met de seizoenen, en zijn wisselende aantallen maanden per jaar nodig om op de lange duur in de pas te lopen met de maanstanden en de seizoenen.
-Zelfs al geschiedt zulks met lange tusschenpoozen, ben ik toch overtuigd dat de daardoor voortgebragte jongen zooveel die jongen, welke door zelf bevruchting verwekt zijn, zullen overtreffen in kracht en vruchtbaarheid, dat zij meer kans zullen hebben om in het leven te blijven en zich voort te planten; en derhalve moet de uitwerking van kruisingen zelfs met lange tusschenpoozen in den loop des tijds zeer groot worden.
+Een bilaterale financiële compensatie kan echter op lange termijn niet bevredigend functioneren indien er niet voldoende informatie voorhanden is over verwijderingsbesluiten van andere lidstaten.
 Dus: kernenergie kan slechts in geringe mate tegemoet komen aan de energiebehoefte, kernenergie structureert de vraag naar energie op een wijze die niet compatibel is met het tijdsobjectief, kernenergie is te duur en komt te
-Verslag (A4-0220/97) van mevrouw Pery, namens de Commissie visserij, over het voorstel voor een besluit van de Raad inzake de sluiting van de overeenkomst in de vorm van een briefwisseling over de tijdelijke verlenging, voor de periode van 2 oktober 1996 t/m 1 november 1996, van het protocol bij de overeenkomst tussen de Europese Gemeenschap en de regering van de Republiek Senegal over de visserij voor de Senegalese kust (COM(96)0611 - C4-0032/97-96/0287(CNS))
-(3) Jaarlijks sterven ruim vijfeneenhalf miljoen mensen aan hiv/aids, tuberculose of malaria. Dit heeft enorme gevolgen voor de ziektecijfers en de levensverwachting in ontwikkelingslanden; bovendien worden jarenlange ontwikkelingsinspanningen en -resultaten door deze ziekten tenietgedaan en vormen zij op lange termijn een ernstig probleem door de ontwrichtende gevolgen die zij teweegbrengen in de samenleving.
-Daarom is duidelijk dat, hoewel er ten tijde van de verkoop in juni 1998 geen herstructureringsplan was in de strikte betekenis van het woord (en a fortiori ook niet in 1996), de voor eigen doeleinden gemaakte prognoses van GE en de in dit kader voorziene herstructureringsmaatregelen waren gericht op het verzekeren van de levensvatbaarheid van AGB op de lange termijn.
-In plaats van echter een verdeelsleutel toe te passen, waardoor een betere verdeling van de middelen tussen Noord en Zuid tot stand zou kunnen worden gebracht, zoals ook werd benadrukt, zien wij, dat deze ongelijkheid veeleer wordt geïnstitutionaliseerd en zich nog verder zal toespitsen.
-Zeggen “Ik ben gestrest" is een gewone uitdrukking geworden die een grotere waarheid verbergt: Wanneer we voortdurend moeten reageren op omstandigheden die we als gevaren zien, dan verhoogt dit onze alertheid en het lichaam verliest op de lange duur zijn efficiëntie. Dus wordt het noodzakelijk om strategieën toe te passen om te herstellen enhet lichaam sterker en beter bestand tegen stress temaken.
-1.10 Wegvervoerders gaan nu weliswaar gebukt onder de kosten van congestie omdat hun productiviteit daardoor wordt aangetast, maar alle maatregelen om de congestie tegen te gaan – een van de doelstellingen van de onderhavige richtlijn – zullen de productiviteit van het wegvervoer en van andere vervoersmodaliteiten uiteindelijk ten goede komen.
-Eind 2003 is de “Forest Focus”-verordening vastgesteld, maar de financiële middelen die hiervoor zijn uitgetrokken, niet meer dan negen miljoen euro voor de periode 2003-2006, zijn niet toereikend om branden te voorkomen Op de lange termijn zijn er plannen voor medefinanciering uit het gemeenschappelijk landbouwbeleid en het fonds voor plattelandsontwikkeling, hetgeen een gedeeltelijke afbouw betekent van het bosbouwbeleid.
-Ironisch genoeg stellen dezelfde mensen die deze illusie huldigen, dat de krachtsverhouding in de wereld 'op de lange duur' beslissend veranderd zal worden door de economische en militaire versterking van de USSR.[42] Maar de imperialisten zullen dit ongetwijfeld ook merken en moeten er derhalve naar streven 'op lange termijn' de USSR niet alleen in bedwang te houden, maar ook te vernietigen.
-Origineel in het Engels Powered by Microsoft ® Translator Vraag: Dank voor de beoordeling slecht Goed U kunt zien of u problemen doen hebben, en je zal niet worden zeker te zijn op dat u de "Veld & # 34; Veel ervaren spelers zullen u vertellen dat deze inzetten op de lange termijn zal je verliest, en dit geldt.
-De Raad herhaalt dat hij ervan overtuigd is dat de reactie van de Unie op het terrorisme, wil zij op lange termijn doeltreffend zijn, ook de onderliggende factoren van terrorisme moet aanpakken en moet trachten bij te dragen tot de bescherming en de bevordering van democratie, mensenrechten en vrijheden en tot de oplossing van regionale conflicten alsook economische en sociale problemen in de wereld.
-ANDERE ONTWIKKELINGEN OP COMMUNAUTAIR VLAK ntensivering van de fraudebestrijding is slechts mogelijk als gebruik kan worden
-De aanbevelingen vormen veeleer een weergave van de methoden die de statistici praktisch vinden, de verbeteringen die naar hun mening in de registers kunnen worden aangebracht - met inbegrip van verbeteringen die op termijn tot een aanvaardbare aanpassing van de wetgeving in de Lid-Staten zouden moeten leiden - en de toekomstige behoeften van de bureaus voor de statistiek van de Lid-Staten
-Het enige voordeel van biologische bemesting is dat dit gewoonlijk beter is voor de grond en de beestjes die erin leven. In extreme gevallen kunnen mensen die alleen minerale kunstmest gebruiken op de lange termijn de grond van hun tuin beschadigen, omdat dergelijke mest niet de humusvoedingsstoffen en het afval bevat die de grond en de beestjes die erin wonen nodig hebben.
-Na elf September 2001 is het begrijpelijk dat men in het Westen vreest dat internationale terroristen opnieuw toeslaan. Echter, het ondergeschikt maken van andere waarden, waaronder de mensenrechten en het begrip duurzame ontwikkeling, aan overwegingen van veiligheid kan op langere termijn zelfs leiden tot minder veiligheid, in plaats van meer. Bovendien, vanuit Afrika, Azië en het Midden Oosten klinkt het verwijt dat het Westen met twee maten meet.
-Bijzondere vermelding betreft de steun die de Gemeenschap in het kader van het PHARE-programma heeft gegeven aan de uitvoering van hervormingen in Polen, Tsjechoslowakije en Hongarije die zowel het hoger onderwijs als het beroepsonderwijs, inclusief dat voor achterstandsjongeren, betroffen.
-Op den duur kunnen enkel de radicalisering en de politisering van de Tsjecho-Slowaakse arbeiders, hun groter wordende medezeggenschap in het bestuur van de economie en de Staat, het opduiken van arbeidersraden, de uitbouw van arbeidersmacht en arbeiderszelfbeheer binnen de raden garanderen dat de verworvenheden door hen in februari 1968 bekomen blijvend zijn zoals de verworvenheden van februari 1948.
-Het probleem met dit cynische spelletje is uiteraard dat je op de duur in je eigen leugens gaat geloven al was het alleen maar omdat het spelletje je groot maakte in de wereld waarin je aanvankelijk niet wilde opgaan: tenslotte is Wim Delvoye niet de grote schilder geworden die hij wilde worden, maar wel een icoon van de 'hedendaagse kunst'!
-De Commissie is van oordeel dat een particuliere investeerder in een markteconomie met een winstoogmerk geen enkele investeringsbeslissing in het betrokken project zou baseren op heffingen die beduidend hoger zijn dan de nettoheffingen die op andere Poolse regionale luchthavens worden gehanteerd [64], in het bijzonder op de luchthaven van Gdansk.
-Volgens het EESC moet bij een onderzoek naar de aard en indeling van overeenkomsten naar de doelmatigheid ervan worden gekeken: een overeenkomst voor het verrichten van werken, buiten de periode om waarin een garantie van de deugdelijkheid van het bouwwerk wordt gegeven, impliceert niet dat beheers-, financierings- of onderhoudstaken voor een lange periode aan een daarvoor uitgekozen bedrijf worden overgedragen.
-India wordt in sneltempo een supermacht, zegt Shashi Tharoor -- niet enkel door handel en politiek maar door 'soft' power, haar vermogen om haar cultuur met de wereld te delen via voedsel, muziek, technologie, Bollywood. Hij stelt het uiteindelijk niet de omvang van het leger is die bepaalt in welke mate een land de harten en hoofden van de wereld weet te beroeren.
-3.11.2 Met betrekking tot het voorgestelde maximumpercentage van 40% voor de bijdrage aan specifieke samenwerkingsprojecten in het kader van associatiecontracten, waarbij steun voor ITER-/DEMO-initiatieven en voor initiatieven in de context van de overeenkomst voor mobiliteit van personeel de voorkeur verdient, vraagt het Comité zich af dit percentage op de lange termijn voor de gewenste projecten of acties voldoende is om lidstaten aan te zetten tot de benodigde bijdrage.
-Binnen een dergelijk kader voor het monetaire beleid is de uiteindelijke, lange­termijndoelstelling van het monetaire beleid uiteraard prijsstabiliteit, terwijl de wissel­koers wordt gezien als een intermediair doel van het monetaire beleid.
-De conclusie van deze beoordeling was dat de sociale gevolgen van de VHO te verwaarlozen zijn (geen gevolgen voor de lonen, slechts kleinschalige werkgelegenheidsverplaatsing6), terwijl in India de lonen van geschoolde en ongeschoolde werknemers op de korte termijn met 1,7% zouden stijgen en op de lange termijn met 1,6%, waarbij er een zekere mate van werkgelegenheidsverplaatsing zou zijn in de richting van beter betaalde banen7.
-Ze werd georganiseerd om een bepaald land te integreren, maar ik vind dat het duidelijk moet zijn dat een Europese Conferentie op termijn pas zin heeft als alle landen kunnen deelnemen die op lange termijn wel lid willen worden van de Europese Unie, maar vooralsnog, uit eigen overweging of vanwege het standpunt van de Europese Unie, geen toetredingsonderhandelingen willen of kunnen voeren.
-Zelfs papier dat een goede afbeelding realiseert kan slecht zijn voor de machine, omdat stof of papiervezels zich kunnen verzamelen in de printer.Het is altijd het beste om in de printerhandleiding te kijken welk papier het meest geschikt is.De meeste printers zullen papier accepteren dat niet te zwaar is en die een oppervlak hebben dat glad genoeg is om de toner te kunnen vasthouden.
-Indien voor dit ernstige probleem geen bevredigende oplossing wordt gevonden die beantwoordt aan de conclusies van de Europese Raad van Sevilla van 2002, het actieprogramma inzake terugkeer van november 2002 en de conclusies van de Raad Algemene Zaken van november 2002 over de geïntensiveerde samenwerking met derde landen bij het beheer van de migratiestromen, zal waarschijnlijk elk nieuw model op lange termijn ondoeltreffend blijken te zijn, hoe doeltreffend het op korte termijn ook lijkt.
-(EN) Gezien het feit dat type-1-diabetes voornamelijk kinderen treft, en dat een slechte behandeling van diabetes bij kinderen op lange termijn tot problemen als nierfalen, blindheid en amputaties kan leiden, vraag ik de Raad welke maatregelen hij kan nemen om ervoor te zorgen dat juiste voorlichting wordt gegeven aan de patiënt en zijn of haar gezin, en ook voorlichtingscampagnes worden gehouden over de ziekte, teneinde de discriminatie die veel diabetespatiënten ondervinden, te voorkomen?
-Aanvankelijk bekeek de Commissie of coördinatie kon plaatsvinden via de volgende twee mechanismen: ten eerste via de coördinatie van investeringen in nieuwe capaciteit, met het doel de capaciteit op de markt te beperken waardoor op de lange termijn het gemiddelde prijsniveau zou stijgen; ten tweede via de coördinatie van productieonderbrekingen om bij een verzwakking van de vraag korte-termijnprijzen te ondersteunen (op momenten dat er een grote vraag is, is coördinatie op de korte termijn niet nodig).
-In beide gevallen is de a-pion een geduchte promotiekandidaat.Ik betwijfel of wit hem op de lange duur zal kunnen afstoppen, zeker ook gezien de steun die Lg7 biedt.] 29...fxe6 30.Rxe6 Rf5 31.Nh4 Rf4 32.R6e4 Rf6 Torenruil was ook mogelijk, maar Levon oordeelde dat hij met vier torens op het bord voordeel kan halen uit het feit dat de witte koning afgesneden is en dat hij dreigingen op het bord kan brengen.
-In extreme gevallen kunnen mensen die alleen minerale kunstmest gebruiken op de lange termijn de grond van hun tuin beschadigen, omdat dergelijke mest niet de humusvoedingsstoffen en het afval bevat die de grond en de beestjes die erin wonen nodig hebben. Denk er bij het gebruik van biologische mest aan dat het minstens drie à vier weken duurt (afhankelijk van het weer) voordat de biologische mest door de grond verspreid is, zodat de planten de voedingsstoffen kunnen opnemen.
-Lees meer Debt advisory services legt de lat hoger 13 apr 2018 Willem Six balance sheet management corporate finance capital markets corporates debt advisory financiele instellingen kredietrisico ratingadvisering risicomanagement supply chain finance WACC Inspelend op de veranderende behoeften van onze klanten hebben we onze dienstverlening op het gebied van schuldadvisering (debt advisoy) opnieuw gedefinieerd en een speciaal team van consultants samengesteld om de huidige gunstige financieringsvoorwaarden voor onze klanten voor de lange termijn veilig te stellen.
-Indien de situatie van vóór de instelling van maatregelen (met name het marktaandeel van 53 % van de invoer uit China en het relatief kleine marktaandeel van de medewerkende producenten in de Gemeenschap) ondanks de instelling van maatregelen evenwel onveranderd zou blijven, kunnen de kosten van het eventuele recht die door de consumenten en marktdeelnemers in de Gemeenschap (met inbegrip van importeurs, handelaren en detailhandelaren) moeten worden gedragen, op lange termijn groter blijken te zijn dan het voordeel voor de bedrijfstak van de Gemeenschap.
-Het is goed dat we ons ook voor dit punt aan de gemeenschappelijke beslissingen van 1997 houden, zoals de heer Byrne al heeft uiteengezet.
-Ik wil ook graag wijzen op het voorstel om een beleidsgroep op hoog niveau onder voorzitterschap van de Commissie in het leven te roepen, die het mandaat zou krijgen om mogelijke institutionele veranderingen te bestuderen die gepaard gaan met de permanente hervormingen van het economisch bestuur, inclusief de mogelijkheid van een gezamenlijke Europese schatkist (ECT), die de EU eigen financiële middelen ter beschikking zou moeten stellen en minder afhankelijk zou maken van transfers van de lidstaten. Bovendien zou die groep een haalbaarheidsevaluatie moeten maken over het opbouwen op de lange termijn van een systeem voor de emissie van gezamenlijke Europese obligaties waaraan de lidstaten kunnen deelnemen.
-Namelijk, Marihuana bevat meer dan 480 chemische ingrediënten, waarvan 66 kanabinoidi, waaronder het meest actieve THC. Cannabinoïden hebben het vermogen om te binden aan cannabinoïdereceptoren, gedistribueerd door vrijwel alle delen van de menselijke hersenen, in verband met de verschillende aspecten van de menselijke psyche: ervaring plezier, advies, geheugen, aandacht, zintuiglijke waarneming, perceptie van tijd ... Bijgevolg, Stimulatie van deze receptoren, derhalve de functies die afhankelijk neurotransmissie waaronder, altijd gepaard gaan met bijwerkingen. bijv., pijnstillende eigenschappen van cannabis manifesteren zich via neurale mechanismen verweven met die op de langere termijn leiden tot veranderde staten van bewustzijn.
+Allereerst moeten ze natuurlijk hun zaken hier en nu op orde hebben, maar 'survival of the fittest' op de lange termijn vergt meer.
+Er zullen tijden zijn waarin het belangrijk is om samen te werken en uiteindelijk zullen jullie hier allemaal aan deelnemen en over de uitkomst méér dan tevreden zijn.
+Op den duur?
+Men heeft geprobeerd het onverzoenbare te verzoenen. Ondanks de felle aanklacht tegen het falen van de neoliberale modellen, een positief aspect van het verslag, zijn we er niet in geslaagd een slotconclusie te bereiken die een samenhangende en logische oplossing voorstelt voor een echte en aanzienlijke vermindering van de werkloosheid.
+Het vergunningensysteem heeft uiteindelijk tot doel om de banden van Palestijnen uit de West Bank met Oost-Jeruzalem en Israel te de-normalizeren.
+Historisch onderzoek van het IISG laat zien dat op de langere termijn collectieve strategieën altijd beter zijn en tot een grotere bestaanszekerheid leiden.De groeiende kloof tussen arm en rijk in North America and Western Europe verloopt niet alleen langs sociaaleconomische lijnen, maar verdiept ook de culturele kloof tussen bevolkingsgroepen.
+Zo ontstaat in de loop van de tijd een waar web van klachten, die vaag en op zichzelf staand lijken, maar voor de acupuncturist vaak te herleiden zijn tot een hoofdoorzaak.
+Het gaat daarbij wel te verstaan niet om de ontwikkeling van elektriciteitscentrales maar om stralingsbescherming en reactorveiligheid.
+(26) Figuur 18 OL — Via omruilprogramma’s verstrekte/omgeruilde injectiespuiten per geschatte intraveneuze gebruiker per jaar (on-lineversie).
+De EU is uiteindelijk een economische unie.
+Het is natuurlijk ook absurd om hogere residuen bestrijdingsmiddelen toe te laten in het voedsel dan in het drinkwater; voedsel moet niet giftiger zijn dan water.
+Zonder dat we de betekenis van wetenschappelijke onderzoeken willen ontkennen, achten wij het namelijk van belang dat men beseft dat in een land waar 'iedereen iedereen kent', de mening van de politieke en sociale leiders, de mogelijkheid die zij hebben snelle beslissingen te nemen en even snel de resultaten van die beslissingen te zien, een zeer belangrijke rol spelen.
+Op de lange duur misschien wat te veel van het goede, maar op deze promo laat Ad Patres in elk geval horen dat ze kunnen spelen.
+Ik ben het ook eens met mijn socialistische collega, de heer Hoon, die opmerkte dat die regeling op lange termijn niet enkel voor de arbeidsrechtspraak maar, met het oog op een eerlijke rechtspleging, ook voor civiele en strafzaken moet gelden.
+Zonder vooruit te lopen op de oplossingen die zouden kunnen worden gevonden voor de toe­komstige financiering van de communautaire begroting moet zonder verwijl een voorlopige regeling worden vastgesteld waarmee het pro­bleem van de onvoldoende kredieten voor het EOGFL-Garantie in 1987 zonder overschrijvin­gen naar 1988 en volgende begrotingsjaren kan worden opgelost, daar de Commissie na de be­sluiten over de vaststelling van de prijzen voor 1987/1988 en rekening houdend met de voor­schotten die zijn vastgesteld om de behoeften van de betalingsdiensten tot en met 31 juli te dekken vanaf begin november financiële moei­lijkheden zou kunnen ondervinden.
+Inzake de hygiëne lijken we hier met tweee maten te meten en ik heb het gevoel dat de consument dat op termijn niet zal dulden.
+Deze waardevolle bijzonder kenmerk van Revitol litteken verwijdering crème formule betekent dat het product kan worden gebruikt op de huid dagelijks zonder angst ervaren bijwerkingen. In plaats van wat je kunt krijgen in elk gebruik zal een infuus van 100% natuurlijke ingrediënten die de huid kunnen leveren met alle essentiële benodigde eiwitten en bovendien vitaminen op de lange termijn resulteert in een verlaagde zichtbaarheid op het litteken merken zijn.
+Maar zelfs in dit geval — wat enkel mogelijk is indien de werkende massa een serieuze nederlaag heeft geleden en vooraf gedemoraliseerd was — kan een sterke beteugeling van de sociaaleconomische tegenstellingen voor het kapitalisme enkel leiden tot een nog explosievere situatie.
+Een groot langetermijnvoordeel van de uitbreiding van de Europese Unie is de mogelijke toetreding van landen als bijvoorbeeld de Oekraïne, een land dat te kennen geeft tot de Europese Unie te willen toetreden, maar dat door de Commissie helaas wordt genegeerd.
+Het zegt verder dat de Europese Unie uiteindelijk toch zal moeten beslissen of zij voor zichzelf evenveel onafhankelijke operationele bevoegdheid wenst als de Verenigde Staten hebben.
+Afsluitend zal ik een paar woorden wij den aan de ecu omdat deze kwestie in het verslag van het deskundigencomité naar mijn gevoel niet voldoen de uit de verf komt.
+Juist daarom bestaat er op den duur geen reden meer waarom de Europese Gemeenschap haar handel met Oost-Europa niet zou baseren op prestatie en tegenprestatie en op een normale afweging van economische risico's.
+Dat lost niet veel op, maar ik kan het even maken.
+Anders gezegd, voor onze burgers is er geen geld maar voor de anderen stroomt het geld bij beken!
+Zo is het onze ambitie om een Master of Transportation Sciences uit te bouwen aan Ton Duc Thang University in Ho Chi Minh, om daar zo expertise rond verkeersveiligheid op lange termijn te verzekeren."
+Wanneer geen concurrerende defensie-industriële basis in stand wordt gehouden en de eigen capaciteit voor ontwerp en innovatie verloren gaat, worden de keuzemogelijkheden beperkt, wat op den duur tot hogere aanschafkosten zal leiden.
+Op basis van de in Bazel III vermelde definitie van LCR zou de naleving van dit voorschrift in de EU op termijn een voordeel opleveren van 0,1% à 0,5% van het netto jaarlijkse bbp, dankzij de vermindering van de verwachte frequentie van de systeemcrises.
+• besef dat een echte en duurzame vrede niet in de laatste plaats kan worden bereikt door erkenning en verwezenlijking van het zelfbeschikkingsrecht van die volkeren van Europa die nog niet tot onze Gemeen schap behoren;
+Een van de belangrijkste doelstellingen van die hervorming is om het houdbaarheidstekort op lange termijn met 3 miljard EUR te verminderen door een betere beheersing van de kosten.
+Minstens 2 recente studies (die behandeling in verschillende mucocentra vergelijken) hebben duidelijk aangetoond dat patiënten die frequenter met antibiotica intraveneus worden behandeld het beter doen op langer termijn.
+Vorige De prijs van Bitcoin Blijft Bullish op de lange termijn Ondanks Volatiliteit volgende MimbleWimble Kijkt Optimistisch voor Bitcoin
+Niettemin wijst de Raad op het risico van bcgrotingsonevenwichtigheden op de lange termijn, als gevolg van het huidige beleid.
+Bovendien is er voor een voorzichtige investeerder in een markteconomie — in tegenstelling tot wat sommige belanghebbenden beweren — met betrekking tot de voorwaarden die een luchthavenexploitant de luchtvaartmaatschappijen via bilaterale overeenkomsten aanbiedt (zoals bijvoorbeeld speciale subsidies voor het openstellen van nieuwe verbindingen), en die niet voortvloeien uit in een officiële tariefverordening vervatte kortingssystemen of stimuleringsmaatregelen, geen reden om te waarborgen dat deze voorwaarden op algemene en transparante critera gebaseerd zijn; dit geldt immers voor alle luchtvaartmaatschappijen.
+Dit geeft spelers veel om te werken met en het kan betekenen dat meer wins voor je op de lange duur van de dingen.
+Op de lange termijn (2060) zullen de pensioenuitgaven naar verwachting met 0,5 % van het bbp toenemen.
+De door de GATT-overeenkomst opgelegde restrictieve maatregelen, In het bijzonder de beperking van de gesubsidieerde export, hebben op de meeste markten geleid tot internationale prijsverhogingen, waarbij met name de prijs verhogingen in de zuivelsector aanzienlijk waren.
+In feite bleek uit het onderzoek dat gebrek aan ouderlijke warmte op de lange duur nog schadelijker voor kinderen kan zijn dan een echtscheiding, alcoholisme of armoede van de ouders.
+Ze zien in dat het uiteindelijk de mens is die de toekomst bepaalt, en dat hun collectieve energie t.b.v. vrede dermate krachtig is, dat deze niet kan worden gestopt.
+Het kan best zijn dat we op termijn sneller zijn door deze richtlijn weer op de rail te zetten dan door maar eindeloos door te gaan met de Europese NV.
+Uiteindelijk is het slechter voor het moreel... als er toch ontslagen vallen ondanks wat jij gezegd hebt.
+Van het gebruik van milieugevaarlijke organische stoffen moet op den duur helemaal worden afgezien.
+Mevrouw Scrivener, lid van de Commissie. - (FR) Mijnheer de Voorzitter, mijnheer de voorzitter van de Raad, geachte leden, mag ik allereerst mijzelf geluk wensen dat het Parlement een debat heeft willen hou den over belastingkwesties in dit stadium van een dos sier dat van cruciaal belang is voor de voltooiing van de interne markt.
+de landbouwproductie op lange termijn ontwikkelen om te voldoen aan de stijgende vraag en de tekorten te beperken;
+Vanaf nu, Zooms.searchalgo.com lijkt van invloed kunnen zijn op de Google Chrome webbrowser alleen, maar het betekent niet dat dat op de lange termijn het zou niet van invloed op Mozilla Firefox, Internet Explorer en andere browsers.
+Wanneer een beroep bijvoorbeeld om geografische redenen niet in elk land bestaat (een land dat bijvoorbeeld niet aan zee ligt, heeft waarschijnlijk ook geen opleiding voor zeelieden), wordt dit onder hoofdpunt IV (Opmerkingen) vermeld.
+De enigste rede dat ik het nu niet van je afpak is vanwege haar, En ik zal je waarschijnlijk meer korting geven op de lange duur dan wat ik nu kan geven
+Het wordt hard werken, maar op den duur... zul je dit college prikkelend gaan vinden.
+Het gevaar is dat als gevolg van de inkrimping van het in deze sector werkzame directe en indirecte personeel op lange termijn know-how wordt afgebouwd.
+In geval het afkomstig is van iemand anders, brengt de toediening ervan dezelfde talrijke biologische afstotingsproblemen met zich als die waardoor op de lange duur hart - en andere transplantaties zijn mislukt.
+Zo niet, dan zou het op lange termijn nuttiger kunnen zijn hem praktische hulp bij het beheren van zijn geld te geven, dan hem geld te lenen dat misschien verkeerd gebruikt wordt.
+Door onderzoek en ontleding kwam men tot de conclusie dat „de majesteit van de wet, wanneer ze wordt ondersteunt door het gemeenschappelijke geweten van een volk en de genezende kracht van de sociale situatie, op den duur niet alleen onder dwang zedelijke beginselen zal opleggen, maar deze ook in het leven zal roepen. ”
+Ik wil er in dit verband vooral op aandringen dat de werkgroep die de Intergouvernementele Conferentie van 1996 voorbereidt, ook
+Ze hebben aanzienlijke gevolgen voor het milieu en we weten heel goed dat in Frankrijk uiteindelijk een beleid in schijfjes gevoerd wordt en dat beetje bij beetje uiteindelijk toch een autoweg of een weg met tweemaal twee rijbanen zal worden aangelegd in de Aspevallei.
+Fundamenteel heeft het een intrinsieke waarde van nul.Terwijl op de lange termijn alle papiervaluta's de intrinsieke waarde núl zullen bereiken.Toekomstige historici zullen zich vol ongeloof afvragen hoe mensen zo dom konden zijn om elke waarde aan papier toe te kennen en het als betaling voor geleverde goederen of diensten te accepteren. – Desalniettemin is het op korte termijn zinvol om op zijn minst wat fysieke contanten aan te houden als afdekking tegen financiële calamiteiten.
+- Dat is het beste na zo'n messteek.
+Wij wen sen er ook aan te herinneren dat de door de Wereld bank en het Internationaal Monetair Fonds genomen maatregelen de ontwikkelingsinitiatieven van de EEG, vooral in Afrika, tegenwerken.
+Het is onmogelijk om de korte termijn voor de individuele werknemer te voorspellen, maar op de lange termijn is de verlaging van de arbeidstijd gepaard gegaan met hogere en niet lagere lonen.
+Hoezeer ik ook op politieke gronden voor toetreding ben, ik kan niet toestaan dat gewoon wordt gezegd : de landbouw politiek is de sleutel, die geven we aan de landbouwministers, en zij moeten de problemen maar oplossen.
+Onze eigen ideeën kunnen op een bepaald ogenblik goed schijnen, maar op de duur volbrengen ze niet het doel, want als onze broeders God en Jezus Christus en hun hoedanigheden niet leren kennen, lopen zij het belangrijkste mis.
+Wat eerlijk is, is aan jou, maar laat andere spelers geen gebruik maken van jou.
+Het omvat eveneens de ont maakt een herbezinning op ruimtelijke ordening mogelijk wikkeling en invoering van nieuwe technologie en applien een stimulering van nieuwe gedecentraliseerde vormen caties. van werkorganisatie, zoals telewerken, zij draagt ook bij tot het functioneren van de andere grote infrastructuren, in Japan is men zich in de jaren zestig politiek bewust ge bij voorbeeld voor vervoer, en vormt een hulpmiddel bij mi worden van het strategische belang van ICT voor de econo lieubescherming en risicobeheersing.
+Zoals deze heeft aangege ven, wilden wij echte medebeslissing zien, maar deze werd geblokkeerd.
+Ook andere theorieën hebben veelbelovend geleken, maar waren op de lange duur toch niet houdbaar.
+Het is net zo min waarschijnlijk dat de angst om een geslachtsziekte op te lopen op de lange duur de kuisheid zal bevorderen als dat de angst voor atoombommen de vrede zal bevorderen.
+Om te doen wat nog gedaan moet worden en alle protectionisme, dat op den duur altijd in het nadeel werkt van de consumenten, in de kiem te smoren, moeten deze een actieve rol spelen in de opbouw van de Europese Unie.
+In sommige gevallen is het heel verleidelijk om het goedkoopste product te kopen, maar dit kan op langere termijn duurder blijken te zijn en ook schadelijk voor het milieu.
+Het EESC denkt echter dat het op termijn moeilijk wordt om een gedereguleerde Europese spoorwegmarkt te combineren met infrastructuur die in elk land slechts één beheerder heeft.
+De Europese interne markt zal door de gezamenlijke werknemers op den duur alleen maar worden geaccepteerd, als deze noodzakelijke component van de sociale rechten erin wordt opgenomen; anders zal zij niet worden geaccepteerd.
+Ze brengen meer welpen groot als ze het er zelf levend afbrengen.
+Zijn dood is conditioneel en vermijdbaar op elk moment in zijn leven; ze wordt echter waarschijnlijker wanneer hij ouder wordt en is onvermijdbaar op lange termijn vanwege de wetten van zijn biologisch gestel.
+Velen hebben geopperd dat het eventuele succes van de euro er uiteindelijk aan zal worden afgemeten of Groot-Brittannië en Denemarken al of niet besluiten mee te doen.
+Uiteindelijk wel. Maar we zullen het hart van het schip moeten raken.
+Deze onderhandelingen gaan niet alleen de staten aan, maar ook de volken en dienen zich daarom in het openbaar af te spelen.
+Zo zou ik mij bijvoorbeeld kunnen voorstellen dat het in de Raad te nemen besluit om justitie en binnenlands beleid na vijf jaar onder de meerderheidsbesluiten en de medebeslissing te laten vallen, wordt gewijzigd en dat de termijn wordt ingekort, bijvoorbeeld tot vóór de eerste uitbreidings­ronde.
+Hieruit volgt de noodzaak voor de deelnemende partners om een onderwijskundig-didactisch concept voor dit onderwerp te ontwikkelen (zie hoofdstuk 2 van dit handboek), dat rekening houdt met de benaderingen die al bestaan in Portugal en die op de lange duur kunnen leiden tot een geschikt curriculum in andere individuele landen.
+Er is echter een andere manier om op deze situatie te reageren, een realistische en praktische manier, die op de lange duur wel nut zal hebben.
+Degenen die wat betreft de innovatie nu de druk van de ketel willen halen door erg soepele tijdsschema's voor de uitstootbeperking vast te stellen, dragen een grote verantwoordelijkheid. Het is hun schuld wanneer de Europese auto-industrie op de lange duur niet concurrerend blijkt te zijn en er in deze sector arbeidsplaatsen verloren gaan.
+Soms wordt het argument naar voren gebracht dat de beste remedie tegen ver keersopstoppingen bestaat uit het eenvoudig weg zorgen voor meer infrastructuur.
+Een beroemde land genoot van mij heeft eens gezegd dat niets zo bevorderlijk is voor de concentratie van een mens als de wetenschap dat hij binnenkort zal worden opgehangen.
+De voordelen van het Sociaal Fonds moeten over de gehele Gemeenschap worden gespreid.
+de landbouwproductie op lange termijn ontwikkelen om te voldoen aan de stijgende vraag en de tekorten te beperken;
+De acceptatie en bijgevolg het uiteindelijke succes van innovatie zullen gemakkelijker worden bereikt wanneer de burgers, de ondernemingen en hun vertegenwoordigers worden betrokken bij de discussie over de grote technologische keuzen en wanneer de werknemers, de gebruikers ol" de consumenten aan het proces deelnemen. De verspreiding van goede werkwijzen op deze gebieden zal worden versterkt.
+Op lange termijn zullen er duurzame effecten zijn op het bbp.
+Naast onderhoudskosten en energieverbruik is onder andere het ergonomisch design van een truck bepalend voor die uiteindelijke kosten.Om de beoogde productiviteit in de praktijk te realiseren, zal de chauffeur zich immers prettig moeten voelen op de truck, en ook aan het einde van de shift nog zonder vermoeidheidsverschijnselen moeten kunnen werken.
+Maar jij hebt mij ooit verteld dat je op de lange duur erop moet vertrouwen... dat de beslissingen die je maakt, de goede zijn.
+De bijstand zou vergezeld gaan van een programma met gedetailleerde en strenge beleidsvoorwaarden, dat zou garanderen dat van de periode waarin bijstand wordt verleend, wordt gebruikgemaakt om de nodige (budgettaire en structurele) aanpassingen door te voeren teneinde de solvabiliteit op lange termijn te waarborgen, en dat het aldus vergemakkelijkt om zo spoedig mogelijk wederom een beroep te doen op marktfinanciering.
+Smits, hoogleraar Quantification of Sustainability, spreekt op 26 januari zijn intreerede uit aan de TU Eindhoven.Het inzicht dat economische groei als kompas voor overheidsbeleid op termijn funest is, wordt steeds breder gedragen.
+Op de lange termijn kan dat namelijk leiden tot een verschrikkelijke internationale catastrofe.
+Op lange termijn zal het actief managen van ecosystemen belangrijker zijn voor het succes van slimme steden dan visie, politieke wil of technologie.
+Het Comité heeft er reeds vaker op gewezen dat verhoging van de wettelijke pensioenleeftijd als antwoord op de vergrijzing tekort schiet en stelt dat deze aanpak op lange termijn een groot aantal gepensioneerden met het maatschappelijk bedenkelijke risico op kan zadelen in armoede te vervallen
+De Afdeling stelt vast dat er, op langere termijn gezien, tussen de sociaal-economische problemen van de EG en die van Japan zeer interessante punten van overeenkomst bestaan.
+Ook zal een niet-houdbaar pensioenstelsel op lange termijn ondoeltreffend blijken wanneer er plotseling correcties nodig zijn.
+Zonder steun van de overheid zouden deze producenten het uitermate moeilijk krijgen om in een geglobaliseerde omgeving op lange termijn het hoofd boven water te houden.
+De roddels Slots Club wacht op u, dus als u van plan bent om bij hen verblijven op lange termijn dient te weten dat dit’s en het’s een goede reden om te blijven hangen.
+Zuid-Afrika is inderdaad de enige buitenlandse producent die nu met winst zijn steenkolen verkoopt en toch tegen een zeer lage prijs. Maar het is een bloedprijs! Het zijn apartheidskolen.
+Sommigen argumenteren dat ze gerechtvaardigd waren en waarschijnlijk op de lange duur honderdduizenden levens hebben gespaard.
+Alle maatregelen om deze congestie tegen te gaan – een van de doelstellingen van de onderhavige richtlijn – zullen de productiviteit van het wegvervoer op termijn ten goede komen.
+Afhankelijk van uw speelstijl en uw huidige tafel, zou het voor u op de lange duur gunstiger kunnen zijn om meerdere kleine potten te winnen, dan het risico te lopen om uw fiches in een grote pot te verliezen.
+Het is evenwel niet uitgesloten dat de ontwikkeling ervan op langere termijn een hoge vlucht neemt .
+Dat is goed voor je carrière.
+Dat gaat je zo'n 300 dollar extra kosten maar uiteindelijk bespaar je ermee.
+Bij hernieuwbare energiebronnen en het CO2-beleid zullen we op den duur ook niet zonder boetes kunnen.
+Wanneer de mens op hetzelfde niveau als de ander staat dan is hij onderhevig aan de invloed van het andere ego. Een meer realistisch ego uit realiteitsbesef creëert op den duur ook een realistischer mens en wereldbeeld.
+Dat beschouw ik in de Europese Gemeenschap op lange termijn als discriminerend.
+Controle op fusies is zowel uit econo­misch als uit politiek oogpunt noodza­kelijk.
+En nogal wat studies laten inderdaad zien dat specifieke gesprekstherapieën zoals cognitieve gedragstherapie (CGT) net zo goed of zelfs beter werken om een depressie te genezen dan alleen anti-depressiva.Zeker op de lange termijn.
+Hier komen twee systemen met el kaar in botsing die zo fundamenteel verschillend zijn, dat zij inclusief de hele ermee samenhangende problematiek niet met elkaar vergelijkbaar zijn.
+De Voorzitter. — Het woord is aan de Communistische Fractie en geestverwanten.
+Geef dat allemaal in handen van de bureaucratische pragmatiek en u houdt op den duur alleen nog maar een constructie over en dat was het begin van uw rede.
+SSRIs heeft betere draaglijkheid en kleiner risico van verslaving en afhankelijkheid en zodat zijn zij aangewezen therapie uiteindelijk voor de bezorgdheidswanorde over benzodiazepines.
+Lienemann mijn verslag pleit dus voor een vastberaden en realistische aanpak met betrekking tot het kaderprogramma en stelt grote verwachtingen in de technologievan de zee.
+FILOGNOSTISCHE VERTALING De deugdzame leiders in het verleden, die het allen in opeenvolging begrepen, leerden het zich te redden, maar op de lange duur raakte deze grootse manier om zichzelf te verbinden verdeeld in zo vele takken van kennis, o overwinner van een ieder.(Sanskriet & traditie)
+Men moet eindelijk de moed hebben om een duidelijke beslissing te nemen.
+Bij alle omschakelingsproblemen valt de bevolking op termijn een verbetering van de sociale verhoudingen ten deel.
+In bijna al het voedsel gebruiken ze cabe rawit (hete chili pepers), vaak ook rica anjing, spreek uit rietja andjing (hete honden spijs) genoemd.Cabe Rawit heet rica anjing omdat de Manadonezen, reeds vanuit de oudheid, als ze hondenvlees koken, RW -uitgesproken ErWee- geheten (Rintek Wuuk in de Tombulu taal, betekenend fijne haren), altijd deze cabe rawit gebruiken, zodat de term passend was en populair werd.Maar deze angst om in een Manadonees restaurant te eten verdween op den duur.
+Wij mogen de mensen die wij van terrorisme verdenken hun fundamentele mensenrechten en democratische basisrechten niet onthouden. Als wij die weg opgaan, werpen wij hun namelijk een overwinning in de schoot en bouwen wij een maatschappij op die op den duur niet in het belang is van diegenen in deze wereld die in duurzame vrede willen leven.
+Dit is niet in het belang van Europa, en dergelijke ontwikkelingen brengen de toekomstige onderzoekcapaciteiten in de EU in het gedrang omdat O & O-activiteiten op lange termijn waarschijnlijk mee met de productie naar derde landen zullen gaan.
+Op lange termijn... moeten we iemand vinden waarmee we contact kunnen houden. Sun Yat-sen en Huang Xing.
 Ook de nauwkeurigheid is nog niet optimaal: voor het gebruiksklaar maken van zo'n scheepsschroef is nu nog veel handmatige nabewerking nodig, zoals freeswerk.Maar het zijn obstakels die we denken te kunnen overwinnen, waardoor deze 3D-printtechnologie op termijn een volwaardige plaats zal innemen tussen andere productietechnologieën.' 3D2SKY: 3D-printen voor de vliegtuigindustrieDat geldt ook voor het eind 2017 gestarte Fraunhofer Project center project for Aeronamic companies onder de naam 3D2SKY, dat zich specifiek richt op het bereiken van hogere kwaliteit en nauwkeurigheid bij het printen van complexe onderdelen voor de vliegtuigindustrie.
-5. Daarom meent deze Heilige Congregatie voor de geloofsleer, gevolg gevend aan een opdracht van de heilige vader en in aansluiting bij zijn woorden welke hij in zijn brief van 30 november 1975 (6) schreef, nu wederom te moeten stellen: de kerk, die zich inspant trouw te blijven aan het voorbeeld van haar Heer, acht zich niet gerechtigd vrouwen toe te laten tot de priesterwijding; en zij meent, dat het in de huidige situatie van belang is deze leer in een helderder licht te stellen die door sommigen misschien met verdriet zal worden aanhoord, maar waarvan geleidelijk de positieve waarde wordt onderscheiden, daar deze kan bijdragen tot een dieper inzicht in de respectieve taken van man en vrouw.
+Ook al is op lange termijn een convergentie van het koopgedrag van Oost-Europa en dat in West-Europa mogelijk, toch leidt de geringe koopkracht in eerstgenoemde landen ertoe dat de vraag zich op de meest noodzakelijke producten (wasmachines en koelkasten) en op producten van de eenvoudigste kwaliteit concentreert.
+(9) Overwegende dat het WCD evenwel erkent dat door een ruimer gebruik van de macroliden als toevoegingsmiddel in diervoeding op lange termijn de totale selectiedruk op resistente bacteriën sterker zal toenemen dan wanneer macroliden alleen in de diergeneeskunde werden gebruikt; dat het WCD ook erkent dat, hoe meer resistente enterokokken bij dieren voorkomen, hoe groter de kans is dat resistente enterokokken of erm-resistentiegenen van dier op mens worden overgedragen; dat het genoemde WCD meent dat de mogelijkheid dat een toename van het reservoir van resistente bacteriën bij dieren een risico inhoudt voor de mens, noch bewezen, noch uitgesloten is, maar dat mag worden verwacht dat het bewijs van het reële risico geleverd zal worden;
+3.2 Met betrekking tot de logistieke ketens op mondiale schaal moeten op termijn zowel de fysieke als elektronische systemen voor de verschillende modaliteiten volledig geïntegreerd worden, zodat voor de meest efficiënte vervoerswijze of combinatie van vervoerswijzen kan worden gekozen en de logistiek kan worden verbeterd.
+Ondanks alle problemen ook op het gebied van de schuldenlast, is het onwaarschijnlijk dat we in de betrekkingen tussen Oost en West al aan de ontwikkelingsgrens zijn gekomen, want de Oosteuropese landen, die 25 % van het bruto wereldprodukt voortbrengen, zullen zich op den duur niet meer tevreden stel len met een aandeel van slechts 10 % van de wereld handel.
+Dit betekent dat formaliteiten niet online via "bedrijfsloketten"61 kunnen worden vervuld, wat zou bijdragen tot een vereenvoudiging van de administratieve context, tot efficiëntiewinsten en op termijn mogelijke besparingen voor de overheidsdiensten en de ondernemingen zou kunnen opleveren.
+Een halve eeuw van het communisme en totalitaire ideologie en het gebrek aan ervaring in de vrijheid van vereniging zal bepalen op de lange termijn prestaties van het maatschappelijk middenveld.
+Maar de overige voorstellen missen een goede basis en geven een ongunstig beeld van wetenschappelijk onderzoek en het experimenteren met dieren, alsof dat alleen maar negatief zou zijn.
+"Dit is een voorbeeld van onwetendheid en vooroordeel die leiden tot illegale geweldpleging waardoor op termijn de samenleving onvermijdelijk beroofd zal worden van de voordelen van de wetenschappelijke vooruitgang", verklaarde Commissaris Busquin.
+Ik denk dat het zelfs van belang is voor, op termijn, de legitimiteit van de Unie.
+Het gevaar van de anticonceptie op lange termijn is dat ze liefde en voortplanting van elkaar scheidt.
+Uiteindelijk is het voor jullie allebei beter.
+Bovendien worden de effecten pas op de lange termijn gerealiseerd, aangezien de goedkeuring van uitvoeringsmaatregelen per product en na een grondig beoordelingsproces plaatsvindt.
+Het voordeel van positiebepalings- en navigatiesystemen (GPS en GNSS) ten opzichte van microgolfsystemen is dat er geen apparatuur langs de kant van de weg nodig is en dat deze op de lange termijn goedkoper kunnen uitvallen.
+Het duurt misschien iets langer om zo'n hanger te maken, maar je kan ze wel 10 keer meer gebruiken."
+De Commissie had al voorspeld dat de potentiële bbp-groei in het eurogebied op lange termijn zou vertragen wegens de vergrijzing van de bevolking.
+Een status-quo is geen oplossing, want op de lange termijn betekent een status-quo niets anders dan achteruitgang.
+Om die reden is belastingaftrek waarop alleen diegenen aanspraak kunnen ma ken die hun eigen geld aan het gewenste object besteden, zo aantrekkelijk. Het probleem is hoe dit te controleren.
+Jammer dat hij 't uiteindelijk niet aankon.
+Gezien het conformiteitsbeginsel van de GATT zullen alle sectoren - ook de landbouw - op den duur hun markten moeten openstellen.
+De ontwikkeling van Europese gemeen schappelijke specificaties en normen zal een werk van lange adem zijn, maar er is nu ten minste een aanvang mee gemaakt.
+Het betekent ook de ontwikkeling van minder bureaucratische, snellere en transparantere methodes dan tot dusver, waarmee gemeenschappen op de lange termijn worden ondersteund totdat die werkelijk voor zichzelf kunnen zorgen.
+Die reparatie is alleen niet volledig effectief en de zo achterblijvende sch ade leidt uiteindelijk tot veroudering", zegt onderzoeksleider Heijmans, epigeneticus van de sectie Moleculaire Epidemiologie. Sporen verouderingsproces in DNA De onderzoekers hebben de afstelling van het DNA van meer dan 3000 mensen in kaart gebracht door op bijna een half miljoen plekken de mate van methylatie te meten.Zij gingen daarbij op zoek naar die plekken waar de afstelling van het DNA gedurende het leven steeds meer ging verschillen tussen mensen onderling.
+Tot slot stelt zich de vraag of deze vereenvoudiging en herschikking op termijn niet zou kunnen leiden tot het aannemen in de Unie van een constitutionele tekst.
+- een verbetering van de produktie kan worden aangenomen wanneer de vermin dering van de capaciteiten een uiteindelijke vergroting van de rentabiliteit en dus een terugkeer tot het concurrentievermogen in uitzicht stelt, en door de gecoördineerde sluitingen de gevolgen voor de werkgelegenheid kunnen worden op gevangen, verdeeld en gespreid.
+Federgon ging dus op zoek naar een oplossing die hen wapende op lange termijn, en hen niet te afhankelijk zou maken van één partij.
+Zij werden in het algemeen ingevoerd in perioden van krachtige groei en volledige werkgelegenheid, toen er tevens een aanzienlijke arbeidsmobiliteit bestond.
+De groei moet duurzaam zijn en mag het voortbestaan van de mens niet bedreigen.
+In het kader van zo een beleid maken de vervoersplannen deel uit van de maatregelen die op lange termijn een verhoogde, collectief efficiënte mobiliteit en toegankelijkheid moeten waarborgen door tegelijk de doelstellingen van de economische groei, van solidariteit en milieubehoud te integreren - drie essentiële voorwaarden voor een duurzame ontwikkeling.
+Het Parlement vindt dat de Commissie, voor de inwerkingtreding van de verordening, een wetgevingsvoorstel moet indienen over veilig gebruik en veilige verwijdering van bepaalde soorten keukenafval en etensresten.
+Er zijn dingen die je genieten van die slecht zijn voor u, dingen die op de lange termijn te stelen vreugde in plaats van het geven van het.
+Gelet op de verzachtende maatregelen die zijn meegenomen in de opzet van de FTT zoals die thans is voorgesteld, wordt verwacht dat de negatieve impact op het bbp-niveau op de lange termijn beperkt zal blijven tot circa 0,5 % ten opzichte van het referentiescenario.
+De Deense landbouw zal zorgelijke tijden tegemoet gaan, daar zouden de organisaties van mijn land wel eens over na kunnen denken.
+Hier komt nog bij dat het Europa van de twaalf zelf in al deze produkten zal kunnen voorzien.
+De burger is inmiddels anti-Europees geworden en daarom hebben de politici van álle politieke partijen, van elke politieke signatuur maar één opdracht.
+Door een aanpassing van het beleid kunnen de kosten op middellange termijn mogelijk met 50 % en op lange termijn met meer dan 70 % worden verminderd.
+Een dergelijke ervaring kan een les zijn die wordt geleerd en kan op lange termijn van belang zijn, dus laat het je niet naar beneden trekken.
+Goede relaties kunnen op lange termijn borg staan voor eerlijke prijzen, billijke voorwaarden, kwaliteit en betrouwbare leveringen.
+De titels zijn beschikbaar in het Flash-versie voor het grootste deel, maar er is software, evenals voor een betere ervaring op lange termijn waarschijnlijk.
+(…)”Half december hegon de strijd der uitgebuite en onderdrukte in Argentinie opnieuw in aller hevigheid op te Mammen. De militant gevoerdc, m de eerste plaats ecowomische strijd tegen de toene mencie ver siecht ering van de levensvoor waarden, démonstratifs en massaie acties voor het verschaffen van levensmiddelen vooral in de voorstedeti van Buenos A ires, breidden zieh over het hele land uit, ontwikkelden zieh tot imposante demonstrares, stakingen en militante straatgev echten tot een regelrecht oproer. De strijd. die ten aartzien van de toenemende verarming van brede massa ‘s van werkenden spontaan ont stand, riebt t e zieh toenemend niet alteen tegen de aan houdende verpaupering. niet alleen tegen een bepaalde regering, maar ook tegen de imperial istische heersers van de reactionaire Argentijnse Staat, het imperialistische fmancieringskapitaal, en de heersende kiassen van Argentinie zelf.
+U kunt vinden dat de hurende persoonlijke chef diensten uiteindelijk in tegenstelling tot uw meer betaalbaar kunnen zijn moeten doen de kruidenierswinkel winkelend voor de familie.De reden is dat van uw overleg het individu dat uw maaltijd zal maken voor de elk van ingrediënten zal winkelen die voor die maaltijd worden gewenst.
+78 — In zijn conclusie in de gevoegde zaken Nederlandse Bakkerij Stichting/Edah (80/85 en 159/85, Jurispr. blz. 3359) verklaarde advocaatgeneraal Mischo dat „omgekeerde discriminaties uiteraard op den duur ondenkbaar [zijn] binnen een echte gemeenschappelijke markt, die noodzakelijkerwijs op het beginsel van gelijke behandeling moet zijn gebaseerd”.
+Daarom worden voedingsmiddelen vanwege dit landbouwbeleid op lange termijn duurder.
+De herstructureringsactiviteiten bestaan voornamelijk uit nieuwe investeringen waardoor de onderneming in staat dient te zijn om haar potentieel op de lange termijn te exploiteren (die investeringen zullen door de hogere afschrijvingen op korte termijn echter een negatief effect op het nettoresultaat hebben).
+Als u niet wilt om het te gebruiken hoef je niet te doen, maar de functies die worden toegevoegd aan het mogelijk maken het de moeite waard op de lange termijn als het verbetert het installatie-proces en biedt u met één klik toegang tot alle geïnstalleerde games.
+Zij zegt: „Ik bid ook om Jehovah’s leiding als ik een beslissing in een gezondheidskwestie moet nemen, opdat ik kan doen wat op de lange duur het beste is en niet overmatig veel tijd en middelen spendeer aan pogingen om mijn gezondheid te verbeteren. ”
+Wij moeten alles in het werk stellen om aan de spits van de nieuwe technologische ontwikkelingen te komen staan en niet met de handen in de schoot blijven zit ten.
+Zelfs als de nieuwe belastingverlagingen van Romney op de lange termijn de investeringen en de groei zouden versterken (een twijfelachtige voorstelling van zaken, omdat dit afhankelijk is van de manier waarop ze worden gefinancierd), zou hun kortetermijneffect op de banenaanwas minimaal zijn. Ze zouden ook tot een aanzienlijk verlies aan inkomsten voor de overheid leiden.
+Als mensen zich niet thuis voelen op hun werk, wat kan worden versterkt door de kloof tussen hun innerlijke aspiraties en de realiteit van economische verplichtingen, kunnen zij op de lange duur last krijgen van stress, wat weer aanleiding kan geven tot arbeidsverzuim, slechte prestaties en, als gevolg daarvan, een lagere produktiviteit.
+Natuurlijk is er op lange termijn inderdaad een enorm, rendabel potentieel aan energiebehoud en een krachtiger energie-efficiëntiebeleid zou heel waarschijnlijk bevorderlijk zijn voor de banenmarkt in de Unie.
+De aanbevelingen vormen veeleer een weergave van de methoden die de statistici praktisch vinden, de verbeteringen die naar hun mening in de registers kunnen worden aangebracht - met inbegrip van verbeteringen die op termijn tot een aanvaardbare aanpassing van de wetgeving in de Lid-Staten zouden moeten leiden - en de toekomstige behoeften van de bureaus voor de statistiek van de Lid-Staten
+Ik ben het wel eens met enkele van de vorige sprekers, zoals mevrouw Kauppi, dat het niet goed is om subsidieregelingen te handhaven, maar op den duur is dat standpunt natuurlijk wel nadelig voor de bedrijfstak in kwestie.
+In plaats van echter een verdeelsleutel toe te passen, waardoor een betere verdeling van de middelen tussen Noord en Zuid tot stand zou kunnen worden gebracht, zoals ook werd benadrukt, zien wij, dat deze ongelijkheid veeleer wordt geïnstitutionaliseerd en zich nog verder zal toespitsen.
+Op den duur zal de vergrijzing leiden tot een aanzienlijke stijging van het aantal gepensioneerden per werknemer.
+De heer Dankert, fungerend voorzitter van de Raad. — fFR) Het doet mij plezier dat ik op de vraag van mevrouw
+Na de onderdrukking van naties door het communistische systeem moeten we nu niet vervallen in een ongebreideld separatisme en de ontmanteling zover doordrijven dat er kunstmatige staten in het leven worden geroepen, die op lange termijn voor enorme problemen zullen zorgen.
+Het is dan ook in het belang van de producenten dat alle Europese markten gezond en goed ontwikkeld zijn en dat er een toenemende vraag is naar geavanceerde producten.
+i) In de eerste plaats optreden op het gebied van onderwijs en opleiding iii) Doeltreffende benaderingen voor economische en maatschappelijke innovatie demonstreren
+(Vedabase)Tekst 7 Op den duur slagen grote wetenschappers er misschien in alle deeltjes te tellen die er in het universum zijn van de aarde, van de lucht, van de sneeuw en het licht van de sterren.
+Ook al zou uw werkgever het niet opmerken, u zult op de lange duur beloond worden.
+Ook op lange termijn lijkt op basis van deze indicator het risico gering, omdat het écart is teruggelopen tot ongeveer 50 basispunten (zie grafiek 8.11).
+Elke route krijgt een prijs en op de lange termijn win je kon een ongelooflijk grote hoeveelheid geld die door deze Bonus ronde.
+Sterk of zwak, op de lange termijn storten ze allemaal in.
+Toetreding tot de Gemeenschap zou hun op lange termijn spectaculaire industriële expansiemogelijkheden geven, via hun deel name aan het gemeenschappelijk handelsverkeer en de vrijheid van kapitaalverkeer van de Negen naar deze landen. Die toetreding plaatst
+Op de lange termijn kunnen wij er meer betrokken bij zijn en zullen wij jullie assisteren in het vermijden van complete rampen.
+Neen, op de lange duur kunt u niet werkelijk winnen.
+Er moet dus een beroep worden gedaan op het begrip complementariteit en de heer Davignon zal mij zeker willen zeggen of ik mij vergis bij mijn interpretatie van de bedoelingen van de Commissie.
+Gebrek aan concurrentie kan op lange termijn tot nog hogere prijsstijgingen en tot het verdwijnen van goedkope invoer leiden.
+Het mag langzaam gaan, wijl het afhangt van veranderingen in het klimaat, in de hoogte of laagte van den bodem, of van toevallige omstandigheden, maar op den duur zal het aan de heerschende vormen gelukken zich te verspreiden.De verspreiding zal waarschijnlijk langzamer gaan met de landbewoners dan met de zeebewoners.
+Een solide album derhalve, dat Staind fans niet teleur zal stellen, en ook het label zal tevreden zijn want de eerste verkoopcijfers in Amerika liegen er niet om.
+eerste helft van het jaar wordt gereageerd met uitgavenoverschrijdingen. Hoewel het land zich in een relatief goede uitgangspositie bevindt om de budgettaire kosten van de vergrijzing op te vangen, sluit de Commissie niet uit dat er zich op lange termijn een aantal gevaren kunnen voordoen, en zij adviseert om naast de modernisering van het pensioenstelsel en de gezondheidszorg een adequaat primair overschot te handhaven om de houdbaarheid van de overheidsfinancie¨n te waarborgen.
+Alleen op grond van die overwinning kunnen wij thans de stap van de Westeuropese naar de paneuropese democratie wagen.
+Hij betoogt dan ook dat een nauwkeurige analyse van deze term aantoont dat ze uiteindelijk leeg en vol met contradicties zit.
+Wat gebeurt er als de economie wordt geconfronteerd met een situatie van nietevenwicht?
+Op langere termijn zal dit waarschijnlijk verregaande gevolgen voor de territoriale organisatie van het staatsbestuur hebben en misschien zelfs tot de afschaffing van de districten leiden.
+Het beeld dat we in de voorgaande paragrafen hebben geschilderd, toont dat we op langere termijn een wereldwijde IT-infrastructuur met vele toepassingen verwachten.
+De Commissie Is van mening dat de enige valabele keuze voor de Gemeenschap op lange termijn een op concurrerende prijzen gebaseerd beleid Is.
+Een goedkoop artikel van slechte kwaliteit kan je op de lange duur meer kosten omdat het gerepareerd of vervangen moet worden.
+De Commissie wenst mettertijd totale afschaffing van de grenscontroles.
+Ik heb vandaag in elk geval de gelegenheid gehad U deze toelichting te geven.
+Zelfs papier dat een goede afbeelding realiseert kan slecht zijn voor de machine, omdat stof of papiervezels zich kunnen verzamelen in de printer.Het is altijd het beste om in de printerhandleiding te kijken welk papier het meest geschikt is.De meeste printers zullen papier accepteren dat niet te zwaar is en die een oppervlak hebben dat glad genoeg is om de toner te kunnen vasthouden.
+Het is vrij gemeenschappelijk voor manic-depressives proberen om aan hun depressie door middel van alcohol het hoofd te bieden en zij kunnen wat respijt op korte termijn worden maar verergert het alcoholisme uiteindelijk de depressie.
+Waarom zegt u dat het er op de lange duur toch op aan komt dat wij leren agressie een halt toe te roepen?
+Bouwdrogers daarentegen, zouden voor zo’n taak niet alleen extreem “overgedimensioneerd” zijn, maar wegens hun signaalkleur hebben ze een uiterlijk waar je je maar moeilijk aan kunt wennen – vooral in de woonkamer!
+Nederland/VS: Cannabisteler Bedrocan gaat internationaal en mikt op een uiteindelijke goedkeuring door de Amerikaanse gezondheidsdiensten
+De voorgestelde maatregel is bedoeld om eventuele obstakels voor het vrije verkeer van in de lidstaten gekwalificeerde zeevarenden, op te ruimen, hetgeen op de lange termijn hun mobiliteit verhoogt en hun werkgelegenheid binnen de Unie bevordert.
+Ook is men gemakkelijk geneigd om grote bedragen uit de openbare middelen te besteden aan steun aan de automobielsector.
+De Commissie rechten van de vrouw en gelijke kansen vraagt de Commissie hoe het in de toetredingsonderhandelingen staat met de overname van de Europese wetgeving op het gebied van de gelijke kansen.
+Per slot van rekening kunnen Parlement en Commissie eigenlijk alleen maar bij dit soort gelegenheden met elkaar communiceren.
+Als de uitdaging te klein is, krijgt verveling de overhand wat op den duur even negatieve gevolgen zal hebben.
+We begrijpen echter wel dat zich op de lange termijn een ernstige bedreiging voor staatsinkomsten en de winsten van industriële groepen voordoet.
+In zijn geheel is het een politiek gedurfd en consequent verslag, dat ondanks de sobere bewoordingen richtinggevend is voor de toekomst van de mensheid.
+De stijging van de vraag en de toename van het intracommunautaire handelsverkeer als gevolg van de totstandkoming van de interne markt zullen op termijn een grotere behoefte doen ontstaan aan vervoersinfrastructuur (intra‑Europese en Trans‑Europese vervoersnetten, haven­infrastructuur voor vloeibaar aardgas), waarvoor nog een financiering moet worden gevonden.
+De Negen hadden ook interesse voor de kwestie Cyprus en hebben de Secretarisgeneraal van de-Verenigde Na ties voortdurend gesteund in zijn poging om de belang rijke onderhandelingen tussen de Griekse en de Cypriotische gemeenschap opnieuw op gang te brengen.
+Het ziet er op het eerste gezicht misschien uit als een onschuldige publiciteitsstunt om passagiers te trekken, maar op de lange termijn heeft het bestempelen van stewardessen en stewards als entertainers ongetwijfeld een negatief en seksistisch effect bij het publiek, en dit gaat ten koste van de dansende stewardessen, die zich hier niet van bewust zijn.
+Maar als wij hem wegstrepen, blijft er vraag naar vervanging en deze vervanging wordt gevonden, tant bien que mal [166], maar hij wordt op de duur gevonden.
+Is dit soort exponentiële groei op termijn houdbaar en wenselijk voor Brussel?
+Rechter Benjamín Cardozo heeft dit op onnavolgbare wijze verwoord in het arrest Baldwin tegen G.A.F. Seelig, waarin hij, sprekend over de Grondwet van de Verenigde Staten van Amerika benadrukte dat deze „was vormgegeven op basis van de gedachte dat de volken van de verschillende staten samen moeten werken of ten onder gaan en dat het geluk en het heil tenslotte in de eenheid en niet in de verscheidenheid liggen”. 39
+Onder deze omstandigheden moeten er wel een dergelijke begroting uit de bus komen !
+Op termijn, misschien al bij de tussentijdse evaluatie, hebben we behoefte aan meer mogelijkheden om krachtig te investeren in nieuwe gebieden en dienovereenkomstig minder te investeren in andere gebieden.
+Deze opvatting is in principe juist, maar daarnaast moet in aanmerking worden genomen dat de levensvatbaarheid op lange termijn afhangt van de vraag of op het eigen vermogen van een onderneming een gemiddeld rendement wordt behaald.
+Maar ook hún overproductie, overconsumptie en 'mensenproductie' zullen op den duur ter discussie gesteld moeten worden.
+Wij kunnen op de duur niet verwachten dat de een de grondstoffen levert en dat wij die verwerken.
+Dit is ook een investering voor onze vrij heid, want indien wij als vrije maatschappij niet in staat zijn aan de jonge generatie toekomstkansen aan te bieden, zullen wij ze ook niet geestdriftig kunnen maken voor een systeem van vrijheid. Daarom hoort dat bij elkaar.
+Gezien het conformiteitsbeginsel van de GATT zullen alle sectoren - ook de landbouw - op den duur hun markten moeten openstellen (par. 2.15).
+Dit gaat als gezegd iets ten koste van de instant herkenbaarheid en pakkendheid, maar voegt op de lange duur enkel kwaliteit en houdbaarheid toe.
+Maar in 2009 was de vraag die Joel en ik ons steeds weer stelden, waarom op zo'n laat tijdstip zoveel energie gestoken werd in gepraat over de wetenschap terwijl het noodzakelijke beleid om klimaatverandering aan te pakken ontegenzeggelijk een weldaad was voor de mensheid op lange termijn. Los van de onderbouwing.
+We nemen betere besluiten en op de lange duur presteren we beter.
+De Technische Fractie Europese Rechts ziet echter met bezorgdheid het in het Europese Parlement zich
+Verdelen van de arbeid gaat uiteindelijk niet zonder verdelen van het inkomen.
+Federgon ging dus op zoek naar een oplossing die hen wapende op lange termijn, en hen niet te afhankelijk zou maken van één partij.
+van de Unie zijn de Euregio's. waar met INTERREG-steun al heel wat grensoverschrijdende samenwerkingsprojecten zijn opgezet.
+België steunt ook projecten die op termijn de kinderarbeid in de mijnen moeten afbouwen en de creuseurs langzaam in het formele mijnbouwcircuit moeten opnemen.
+Op de lange termijn is dit de juiste benadering in het belang van de volksgezondheid, de consumentenbescherming en het milieu.
+ArcelorMittal, een dochteronderneming van de multinationale groep die actief is onder dezelfde naam en die de grootste staalproducent ter wereld is.
+Dat kan op de lange termijn alleen maar als elk land een volwaardige zetel in het collega van commissarissen heeft.
+Focus was om omzet en winst te laten groeien zoals lokaal en internationaal was vastgelegd in het business plan Belangrijkste resultaten: • Sales doorbraken bij internationale target accounts als: Pepsico Foods, Coca-Cola, Unilever, CPC, Philip Morris, Danone, RJR Nabisco. • Omzetgroei 17%.
+Geheel in strijd met de doelstellingen van eEurope zullen kunstmatig lage eindgebruikerstarieven voor DSL-diensten van de gevestigde exploitanten belemmerend werken op de concurrentie en daardoor op langere termijn juist tot hogere prijzen van breedbanddiensten voor de consument leiden.
+Dus dit leek me de beste oplossing.
+Maar ook de sterkste soft power kan uiteindelijk niet zonder een zekere geïntegreerde defensiecapaciteit.
+3.9 Door de ontwikkeling van immateriële activa (merken) kan een onderneming zich onderscheiden van haar concurrenten, nieuwe producten en nieuwe concepten op de markt brengen en in het algemeen zeer fors aan concurrentiekracht winnen, wat uiteindelijk leidt tot meer klanten, winst en werkgelegenheid.
+Naast onderhoudskosten en energieverbruik is onder andere het ergonomisch design van een truck bepalend voor die uiteindelijke kosten. Om de beoogde productiviteit in de praktijk te realiseren, zal de chauffeur zich immers prettig moeten voelen op de truck, en ook aan het einde van de shift nog zonder vermoeidheidsverschijnselen moeten kunnen werken.
+Op de lange duur is vrije concurrentie - en niet prijsregulering - het meest gunstig voor de consumenten.
+Het lijdt geen twijfel: Als wij onze Schepper willen behagen, als wij datgene willen doen wat juist is jegens onze naaste en als wij de handelwijze willen volgen die op den duur het meest lonend is, dan moeten wij het ernstig nemen met de moraal.
+Datgene waarmede men zijn geest zich laat bezighouden, bepaalt op de lange duur of iemand een nuttige of verkwistende handelwijze zal volgen.
+Ingevolge het besluit van 1 februari 1971 wordt gedurende de eerste vijf jaar van werkzaamheid van het vernieuwde Fonds ten minste 50 % van de beschikbare kredieten bestemd voor bijstandsverlening van deze tweede categorie (artikel 9, lid 2 van het besluit), welk verhoudingsgetal ver volgens opnieuw door de Raad moet worden onderzocht met dien verstande dat op den duur het grootste gedeelte van de beschikbare kredieten moet worden bestemd voor bijstand krachtens artikel 4 van het besluit.
+Op de lange termijn het bespaart u een hoop tijd, geld en geestelijke gezondheid rekeningen ...PIAGGIO produceert nog steeds PX motoren voor de laatste, nog steeds beschikbaar PX modellen.
+Het onvermogen om de behoeften van uw partner te vullen zal zeker zorgen dat je je zelfvertrouwen sterk verminderen, verliest je gevoel van eigenwaarde en vervolgens op de lange termijn niet in je relatie.
+De verschuiving is nog groter ten opzichte van het mandaat van Laken, waarin alleen maar sprake was van de vraag of de daaruit voortvloeiende vereenvoudiging van de Verdragen, ik citeer, 'op termijn niet zou moeten leiden tot de goedkeuring van een constitutionele tekst?.
+Mevrouw Larive (LDR). — Voorzitter, zoals de heren Christophersen en Marín en wie dan ook ons hebben uitgelegd is het heel dom wat het Parlement vandaag gedaan heeft.
+Het zij nog eens herhaald, dat zowel veiligheid als produk­tiviteit door deze slechte organisatie worden verlaagd en dat ingrij­pen van het personeel op den duur deze tekorten niet kunnen opvangen.
+In de praktijk was het bijvoorbeeld zo dat als het de kangoeroes goed ging, dat een betere voedselvoorziening betekende voor de Aborigines, maar dat als er te veel kangoeroes werden gedood, dat op de lange duur niet goed was voor de Aborigines. ”
+Niet alleen de concurrenten en werknemers dragen de negatieve gevolgen hiervan maar ook de onderneming zelf, die op de lange duur hiervan de nadelen kan ondervinden.
+Ik wil hier alleen even herinneren aan de registratie van runderen en de etikettering van rundvlees, waarmee uiteindelijk ook het vertrouwen van de consument teruggewonnen moet worden.
+Bijzondere vermelding betreft de steun die de Gemeenschap in het kader van het PHARE-programma heeft gegeven aan de uitvoering van hervormingen in Polen, Tsjechoslowakije en Hongarije die zowel het hoger onderwijs als het beroepsonderwijs, inclusief dat voor achterstandsjongeren, betroffen.
+Okay dan, laten we naar boven gaan.
+Meer beducht was ik voor paardmanoeuvres, al denk ik dat wit op den duur toch beter staat. [13...Nd5!? baarde me nog de meeste zorgen, maar ik vond dat ik me er maar niets van aan moest trekken, want Pxe3 is geen al te grote dreiging.
+— herstructurering: tevens kunnen rentesubsidies worden toegekend voor investeringen die van groot belang zijn voor de herstructurering en het herstel van de concurrentiepositie op lange termijn van de ijzer- en staalindustrie in de Gemeenschap (PB C 174 van 22 juli 1977).
+Al de inspanningen van de travaillistische aristocratie in dienst van het imperialisme kunnen haar dus niet lang redden tegen de vernietiging.
+We moeten er evenwel op wijzen dat de oorzaken van de ontwikkeling van de compensatiehandel moeten worden gezocht in de onbestendigheid van het mundiale monetaire systeem, de schuldenlast van de minder ontwikkelde landen en de toename van protectionisme waartoe veel landen hun toevlucht nemen, hetzij uit noodzaak hetzij, zoals in het geval van de VN, om hun voorwaarden op te leggen aan de handelsondernemingen. nemingen.
+Traditioneel is de overheid gewend de verschaffer van opleidingsmogelijkheden te subsidiëren opdat hij voldoet aan door de regering of door de opleidingsinstituten omschreven opleidingsbehoeften.
+in een regeling voor de lange termijn rekening zou moeten worden gehouden met de economische en sociale kosten van iedere tak van vervoer;
+Ten tweede constateerde de Commissie dat er noch economisch zinvolle betrouwbaarheidsnormen noch een indicator voor het economische belang van de capaciteitsreserve zijn vastgesteld, wat afbreuk doet aan het vermogen van de markt om voldoende capaciteit ter beschikking te stellen en het onmogelijk maakt de vereiste omvang van de reserve te bepalen.
+U zult op de lange duur veel gelukkiger zijn en meer voldoening vinden in het leven, als u anderen uw grote emotionele sensitiviteit en diepte durft laten zien en ervaren.
+Dit maakt dat jij continu in de weer bent om onze dienstverlening (intern én extern) te verbeteren, waardoor de behoeften van de klant te allen tijde centraal staat.
+De bankiers wisten, dat het op den duur steeds moeilijker zou worden omde geldgroei gaande te houden en voldoende bonafide partijen te vinden omleningen aan te verstrekken.
+De heer Vandemeulebroucke. — Mijnheer de Voor zitter, het landbouwbeleid, zoals het tot nog toe is ge voerd en zoals het uit het verslagPlumb naar voren komt, is eigenlijk vooral geknipt naar het patroon van de grote bedrijven.
+Op de lange termijn kan dit je helpen om te besparen op marketing expensense, zoals je bedrijf kan draaien in een snel-selling item.
+Iedere papierproducent die op het gebied van technologie en milieubescherming op lange termijn concurrerend wil blijven werken, moet af en toe op dergelijke wijze investeren in vernieuwing.
+De heer Van der Waal (NI). - Mijnheer de Voorzitter, het is niet overbodig geweest dat het Parlement aan het verslagEvrigenis uit 1986 met een nieuw onder zoek een vervolg heeft gegeven.
+Het eerste punt is dat de door Groot-Brittannië ingevoerde schapevleesregeling, die gebaseerd is op een subsidieregeling met een variabele slachtpremie, voordelig is gebleken niet alleen voor de producenten, maar ook voor de consumenten.
+Met andere woorden, als u meer zorg van geld te besparen op de lange termijn en het verbeteren van de uitstraling van uw huis, start verfraaiing van het uiterlijk van uw gazon met de hulp van onze kunstgras.
+Daar de nieuwe Europese munt pas wettig betaalmiddel kan zijn wanneer bankbiljetten en munten in deze valuta in omloop zijn, blijven de nationale munten tot dat moment wettig betaalmiddel.
+Dat betekent dat we Kosovo alle kansen moeten geven, want als Servië op den duur visumvrijheid geniet en Kosovo strikt wordt buitengesloten, zal dat leiden tot een onaanvaardbare ongelijke situatie.
+Tenslotte moet, overeenkomstig het verlangen naar complementariteit tussen de werkzaamheden van de Gemeenschap en die van de Raad van Europa, de Gemeenschap overwegen de mogelijkheid in concreto gestalte te geven dat zij partij wordt bij de Conventie van de Raad van Europa inzake grensoverschrijdende televisie die In mei 1989 ter ondertekening Is opengesteld.
+Gehoopt wordt dat de kosten van de beveiligingsmaatregelen op lange termijn grotendeels uitgevlakt zullen worden door het verwachte gunstige effect van de maatregelen (zoals voorgesteld in par. 4.1.2) en van de verscherping van het toezicht en de controles in havengebieden, in die zin dat traditionele criminele activiteiten en beveiligingsproblemen afnemen of verdwijnen.
+In wetenschap en politiek is niemand onmisbaar.
+Ze vormen een belangrijk en essentieel onderdeel van de nationale economische ruimtes, die op termijn op de gemeenschappelijke Interne Markt onderlinge concurrentie nodig heb­ben om tot innovaties te komen.
+Hoewel de eigenlijke feministen een zeer kleine minderheid vormen, wordt de problematiek meer en meer duidelijk en meer en meer algemeen ingezien. En het is moeilijk op den duur weerstand te bieden aan een drang die uitgaat van meer dan de helft van de kiezers.
+Bij opwerkingsinstallaties van grote afmetingen en gecombineerde produktie-eenheden zal waarschijnlijk ook de lozing van tritium op de lange duur moeten worden beperkt door gepaste opvangapparatuur welke nog moet worden ontwikkeld.
+Het gebruik van Liefde belast je zenuwen, gezondheid en gemoedsrust minder en het zal altijd het beste resultaat geven op de lange termijn voor alle betrokkenen.
+Die richtlijn , en met name artikel 12 , lid 1 , onder c ) , ervan , staat immers ook delegatie over een lange periode toe .
+Gemeten aan het verloop van de conjunctuur is in sommige lid-staten overigens zo krachtig in de begroting gesnoeid dat de nationale consensus in gevaar komt.
+De maatregelen waarnaar de fungerend voorzitter in haar antwoord ver wijst, kennen we allang en zijn geenszins doeltreffend.
+Zelfs na het toedienen van medicijnen ten behoeve van symptoombestrijding en pijnverlichting, zullen zij op lange termijn niet helpen het probleem c.q. de ziekte totaal te elimineren.
+De ver andering in technologie, voortvloeiende uit het pro ject kan wijzigingen in de omvang en de structuur van de werkgelegenheid ten gevolge hebben. Zo kan bij voorbeeld de bouw van infrastructuur voor een bepaalde sector van het vervoer leiden tot werkeloosheid in andere sectoren van het vervoer.
+Hernieuwbare energie bronnen als wind, zon, water en biomassa hebben een groot potentieel, maar ze hebben nog een aanzienlijke ontwikkeling nodig alvorens zij een wezenlijk deel van de energievoorziening zullen leveren.
+Deze richtlijn is gericht op het behoud van de Euro­pese wilde fauna en flora en de natuur­lijke habitats, waarbij de volgende doelstellingen worden nagestreefd: uit­breiding en harmonisatie van de habitat en de bescherming van diverse soor­ten; behoud van typische regionale ecosystemen en van de biologische diversiteit daarvan; integratie en nor­malisatie van de internationale wetge­ving; toezicht op activiteiten die op den duur het milieu kunnen schaden; toe­zicht op activiteiten die tot een voor het milieu schadelijke opeenstapeling van afzonderlijke maatregelen kunnen lei­den; compensatie­ en herstelmaatrege­len voor beschadigde ecologische gebieden: PB L 206,1992.
+India wordt in sneltempo een supermacht, zegt Shashi Tharoor -- niet enkel door handel en politiek maar door 'soft' power, haar vermogen om haar cultuur met de wereld te delen via voedsel, muziek, technologie, Bollywood. Hij stelt het uiteindelijk niet de omvang van het leger is die bepaalt in welke mate een land de harten en hoofden van de wereld weet te beroeren.
+Het is de taak van de Com­missie om deze delicate zaak tot een goed einde te brengen.
+In het betalen van schuldeisers, zoals eerder vermeld, moeten we het eens zo lang een credit mogelijke periode; maar het nemen van een langere periode dan afgesproken, omdat we de neiging om te doen in Malta, kan leiden tot verlies van kredietwaardigheid met de schuldeisers, die op de lange termijn kunnen we betreuren.
+Indien evenwel het tempo der ontwikkeling verminderen mocht en wanneer op de huidige economische crisis in een groter of kleiner aantal van landen een periode van opbloei mocht volgen, dan zou dit feit in geen geval het begin van het 'organische' tijdvak betekenen.
+Maar zelfs als wij de effectiviteit van deze installaties verdubbelen of ver drievoudigen, hebben wij nog altijd 300 windmolens nodig of moeten wij 30 km2 natuur offeren.
+Best beluisterbaar hoor, songs als 'Höstmärkrets Natt' en 'Bergtagen' (waarvan je de video hieronder kan bekijken), maar halverwege begint het verzadigingsgevoel toch op te treden.
+ANDERE ONTWIKKELINGEN OP COMMUNAUTAIR VLAK ntensivering van de fraudebestrijding is slechts mogelijk als gebruik kan worden
+In werkelijkheid voeren zij een kosten-batenanalyse uit op basis van dezelfde redenering als iemand die geen verzekering neemt omdat het op lange termijn voordeliger blijkt de schade zelf te betalen.
+Wel, een van de goede dingen met Marx is, dat hij nooit vast zat in een discipline, en als je hem juist wil lezen, moet je de vastheid vergeten van je discipline; niet op lange termijn natuurlijk maar toch voor deze cursus.
+De Lonely Planet maakt zich ook enige zorgen, maar blijft optimistisch: “We gokken erop dat de tolerantie, Amsterdam’s belangrijkste bijdrage aan de wereld, op de lange termijn de tegenslagen zal overwinnen”.
+Toch kan, mits juist toegepast, hiermee de index waarschijnlijk wel worden verslagen. De ratio wint het nu eenmaal op wat langere termijn van 'onderbuik'gevoel en 'irrationaliteit'.
+Uiteindelijk zijn we er sterker van geworden en de huidige line-up is vaster dan ooit.
+Op de lange termijn zullen deze personen de mogelijkheid hebben hun houding te veranderen zodra ze beginnen te werken met hun persoonlijke mentoren.
+Conclusie Op zijn eigen, misschien Novomatic niet in staat zijn om je spelletjes te spelen op de lange termijn bieden, omdat zij niet hebben dat veel titels, maar ze zijn meestal niet de enigen die op de websites ze worden aangeboden op.
+De bevriezing van de prijzen gedurende de jongste drie oogstjaren, de ondersteuning van de braaklegging van gronden en de extensificatie, voor de stopzetting van bedrijven, het rooien van wijnstokken en de vrijwillige stopzetting van de melkproduktie zijn maatregelen waarmee de EG weliswaar haar interne situatie saneert, maar ook haar marktaandeel in de wereld verkleint.
+Hervestiging kan ook op de langere termijn een rol spelen bij de aanpak van de situatie in Noord-Afrika, maar we beschikken over nog meer instrumenten, instrumenten die momenteel niet worden gebruikt.
+Misschien nu wel, maar is het uiteindelijk niet beter dat hij de waarheid weet?
+De leden van de Raad zijn nu maandenlang bezig ge weest om dit delicate akkoord over de aanvullende begroting 1982 tot stand te brengen.
+Het is op lange termijn goedkoper om alles te ontkennen. Niet te vergeten minder gênant.
+worden besproken. Om het buitenlands niet, maar je zou geneigd zijn dit te misleidende uitlatingen in de pers, zoals beleid van de EU efficiënter te maken, geloven als je die verhalen leest in de
+Dat kan weliswaar enerzijds in zekere mate bij dragen tot rust op de energiemarkt als geheel, maar moet op langere termijn het evenwicht op de markt gevoelig vers-toren.
+Een kortzichtige politiek van eigenbelang komt op den duur niemand ten goede — en zeker niet de onderneming die het hoofd moet bieden aan concurrentie op wereldschaal.
+Wat we [slechts] zien is hoe U, net als de wind die de wolken uiteendrijft, met Uw zo heel grote kracht [van de Tijd] op den duur al de planetenstelsels vernietigt en hoe alle levende wezens hun einde ermee vinden door toedoen van anderen.
+De verwachting in de VS is dat de techniek (Computerized Facial Recognition (CFR)) op afzienbare termijn door de FBI en andere opsporingsdiensten gebruikt zal gaan worden en uiteindelijk zal leiden tot een nationaal 'gezichts-herkennings-systeem' vergelijkbaar met de overal al bestaande vingerafdruk-herkennings-systemen.
+Het Europese toezicht op concentraties betreft niet de bescherming van concurrenten maar de garantie dat er op lange termijn voldoende concurrentie op de markten overblijft zodat de afnemers hun voordeel kunnen doen bij een toereikende keuzemogelijkheden, innovatie en concurrentiële prijzen.
+Ook onze buren in Midden- en Oost-Europa hebben laten verstaan dat zij op langere termijn willen toetreden tot het Verdrag van Rome.
+Het dunst bevolkte district (Jesenik) telt zo'n 43.000 inwoners: het dichtst bevolkte district buiten Praag (de stad Brno) heeft maar liefst 386.000 inwoners.
+7.d3 [7.a3 is misschien handiger, maar ik dacht dat deze zet op den duur niet altijd nodig is. Tb1 of Ld2 lijken nuttiger.]
+Hij bedoelt dat u een truck krijgt met alle services die u nodig heeft, plus een ﬁnanciële oplossing op maat waarmee u niet alleen bespaart op de papierwinkel, maar de algemene kosten op de lange termijn ook lager zullen uitvallen.
+mie, die naar ik hoop slechts voorlopig is, wordt in de Europese Akte formeel aanvaard. Wat de munt betreft heeft de huidige crisis overduidelijk aangetoond dat het EMS door zijn onvoltooidheid zelf in gevaar verkeert.
+Liever wat je in elk gebruik moeten krijgen is een infuus van 100% natuurlijke ingrediënten die uw gevoelige huid moet voorzien van de essentiële eiwitten samen met vitaminen op de lange termijn resulteert in een minimale zichtbaarheid van het litteken.
+We hebben geen tijd gehad —en dat nu juist binnen de Commissie economische en monetaire zaken en industriebeleid — om na te denken over wat in feite harmonisering van de concurrentievoorwaarden betekent.
+Als er onvoldoende vooruitgang is geboekt, moeten wij ervoor zorgen dat de Commissie corrigerende maatregelen voorlegt en de Raad vervolgens constructieve stappen neemt.
+Het ESC is van mening dat de concrete aanpassing van Europa aan de nieuwe omstandigheden uiteindelijk zal worden bepaald door de dynamiek die o.m. dankzij het onderhavige initiatief op gang zal worden gebracht om commerciële en maatschappelijke aspecten op elkaar af te stemmen.
+De groei kan echter op lange termijn slechts worden volgehouden als de energie-intensiteit van de economie binnen de perken blijft.
+Het zal de eerste keer misschien wat tijd vergen een kind te laten zien hoe het kan helpen, maar op de duur en bij volgende gelegenheden zal er tijd door worden bespaard.
+Hoewel de genomen maatregelen tot hiertoe ruim voldoende zijn gebleken om ernstige budgettaire ontsporingen te vermijden , ziet het ernaar uit dat zij op lange termijn ontoereikend zullen zijn om de verwachte stijging van de overheidsuitgaven voor pensioenen te financieren .
+Ik geloof dat de heer Sherlock alles bij elkaar genomen hiermee kan instem­men.
+Door de dingen ogenschijnlijk efficiënter te maken, door computers op te stellen dreigt men de hele situatie werkelijk te bevriezen en het uiteindelijk nog moeilijker te maken die grenzen echt op te heffen.
+Te gelijkertijd worden veel producten steeds complexer en bevatten ze een grote verscheidenheid van stoffen, die de risico's van afval voor de ge zondheid van de mens en het milieu nog ver sterken.
+Daarom hechten wij eraan hier in herinnering te brengen dat de EEG-partners op de bijeenkomst te Brazzaville heb ben aangekondigd dat ze voornemens zijn de samen werking met de Wereldbank en het Internationaal Monetair Fonds te versterken, maar, zoals gezegd, in het kader van een autonoom en specifiek beleid.
+Het is belangrijk dat de loonontwikkelingen blijven aansluiten op de behoefte externe onevenwichten weg te werken en de werkloosheid terug te dringen en dat ze op lange termijn gelijke tred houden met stijgingen van de productiviteit.
+Als ze onze betrokkenheid kunnen aantonen vormt dat een bedreiging die niet onderdoet voor die van de terroristen.
+De Flash versie bestaat voor elke titel die hier worden aangeboden, maar er is ook een downloadbare versie van de software, die geeft je een beetje meer stabiliteit op de lange termijn en misschien een betere ervaring.
+De prijs die je wint, worden volledig willekeurig maar wat zal het rendabel om u op de lange termijn van de dingen.
+Bijna twee jaar geleden heb ik jullie in de gelegenheid gesteld om kennis te maken met onze poes Deshney en hoe ze me heeft geholpen om angsten onder ogen te zien en die vervolgens los te laten. Toen al heb ik jullie ook verteld dat ik ’gezien’ had dat we samen onderweg waren en haar op een gegeven moment door een poort zag verdwijnen.
+Bij deze opsomming komen niet alle psychologische factoren en dus evenmin het geheel van de menselijke factoren tot hun recht.
+Op lange termijn zal het actief managen van ecosystemen belangrijker zijn voor het succes van slimme steden dan visie, politieke wil of technologie, om maar een paar andere succesfactoren te noemen.
+Op de lange duur leidt dit ertoe dat de geloofwaardigheid van de EU in het geding komt.
+Core Principle VIII : BIC / IBAN zouden om kostenredenen alleen kunnen worden ingevoerd op de lange termijn .
+Consumenten profiteren ookop de lange termijn, als inspanningen van bedrijven om hun concurrenten te overtreffen uiteindelijk leidentot meer innovatie en efficiëntie bij de productie van bepaalde goederen of diensten.
+Van de drie taken is de religieuze vanzelfsprekend op den duur verreweg de belangrijkste. ” — Civilization on Trial (1948), blz.
+Door deze wetgeving goed te keuren en ten uitvoer te leggen, zullen de kandidaat‑lidstaten niet alleen in ruimere mate voldoen aan de voorwaarden voor het lidmaatschap van de Europese Unie, maar, op den duur, ook profiteren van een schoner en gezonder milieu.
+Het tijdperk van de euforie ten aanzien van de mobiliteit is voorbij en het begrip mobiliteit om· de mobiliteit heeft plaatsgemaakt voor een taakstelling die eenvoudiger en bescheidener, maar tegelijkertijd specifieker en hopelijk op den duur efficiënter is.
+Op de lange termijn kan dit zeer nadelige gevolgen hebben voor het Europese bedrijfsleven.
+Wij kunnen gedurende een bepaalde periode douanemuren oprichten maar wij kunnen op de lange duur niet volstaan met aan elkaar te verkopen en te doen alsof de wereld buiten de Europese Gemeenschap niet bestaat.
+Om het op de lange duur te gaan redden, met het huwelijk en al die dingen.
+Als dit niet lukt, zal dit – op de lange termijn – leiden tot hoge maatschappelijke, ecologische en economische kosten.
+We moeten natuurlijk ook bedenken, hoe masochistisch dit ook moge klinken, dat we op den duur ook rechtvaardige grondstoffenprijzen zullen moeten betalen.
+Berthu (I-EDN). - (FR) Mevrouw de Voorzitter, het jaarverslag van het Europees Monetair Instituut, dat het laatste verslag is van die instelling voor ze op 1 juli laatst leden werd omgezet in de Europese Centrale Bank, wordt, zoals de rapporteur van dit Parlement het zo mooi uitdrukt, gekenmerkt door de beslissing om zich voortdurend tot algemeenheden te beperken.
+Wij hebben hier nu de gelegenheid toe, aangezien wij enerzijds door het onlangs verkozen parlement gemachtigde gesprekspartners hebben, en anderzijds welbekende instrumenten waarvan de doeltreffendheid is bewezen en die verlengd moeten worden.
+4.10.1 consumenten meer nauwkeurige, relevante en vergelijkbare informatie ontvangen over energieverbruik en -efficiëntie van alle producten die in de EU worden verkocht, zodat weloverwogen en op lange termijn kostenefficiënte aankopen en een milieuvriendelijk gebruik zullen worden bevorderd;
+Ik denk dat dit voldoende moet zijn, meer werk gaat op de lange termijn ten koste van de effectiviteit van het werk.
+Ja het is mogelijk een geval van â € œbuying een goedkope auto kost je meer op de lange termijn â € "tenzij je echt weet wat je doingâ €
+De vraag is echter of de weerslag daarvan op het postdossier op termijn niet eerder negatief zal uitwerken voor de dienstverlening, maar ook voor al die mensen die in de sector werkzaam zijn.
+Welke rol de weten­schap, het fundamenteel wetenschappe­lijk onderzoek, het toegepast wetenschap­pelijk onderzoek en de vertaling ervan in de praktijk speelde, was in dat geheel niet meer goed te onderscheiden.
+Wij willen de onderhandelingsmethode van de Commissie op dit moeilijke ogenblik niet belemmeren.
+Deze gehechtheden leiden tot een 'rommelig huis' waarin de mensheid op den duur niet kan overleven.
+Economische berekeningen van onder meer de Amsterdamse emeritus hoogleraar Wouter Tims wijzen uit dat vrije migratie op den duur zowel goed uitpakt voor de herkomstlanden als de bestemmingslanden (7).
+Tevens dient te worden onderzocht of het op de lange termijn uit een oogpunt van efficiency gewenst zou zijn om de middelen van de EU te concentreren op bevordering van de houtafzet (o.a. ten bate van energieopwekking), i.p.v. deze rechtstreeks te vertalen in steunmaatregelen voor bebossing.
+Uiteindelijk heeft het ons geholpen denk ik.
+Naar de mening van het ESC zou op den duur in de landbouw uitsluitend gebruik mogen worden gemaakt van nutriënten die afkomstig zijn van organisch afval dat gescheiden wordt gehouden van ander, verontreinigend afval, waardoor het metaalgehalte wordt opgevoerd of milieugevaarlijke organische stoffen worden toegevoegd.
+Het feit dat die verschillen in de VSA veel kleiner zijn, ondanks het viermaal zo grote grondgebied, de grotere afstanden, de ten minste even grote diversiteit en tegenstellingen in de natuur en de bevolking, wijzen erop dat het bestaan van een grote en relatief uniforme markt op den duur niet noodzakelijk tot grotere divergentie leidt.
+Hieruit volgt niet dat de conclusie vals is, maar aanvechtvaar is ze zeker en het is nauwelijks waarschijnlijk te noemen dat ze zich op de langen duur als ‘definitief’ zal bewijzen, zoals het document claimt.
+Overeenkomstig haar mededeling van 31 januari 2000 “retailbetalingen in de interne markt” wenst zij dat de grensoverschrijdende betalingen snel en goedkoop worden en op termijn op dezelfde wijze kunnen worden behandeld als binnenlandse betalingen.
+Wat de nieuwe materialen betreft — harsen, ceramiek, speciale metalen — vinden de belangrijkste ontwikke­lingen plaats in de Verenigde Stalen en in Japan.
+In 2004 hebben we ook het pad geëffend voor een versterkt mededingingstoezicht in de energiesector, met zowel een antitrustbeschikking in de gassector als een concentratiebeschikking in de elektriciteitssector.
+De ervaring heeft concreet aangetoond hoe noodzakelijk het is dat uiteenlopende meningen binnen de Gemeenschap niet worden verhuld, maar tegenover elkaar worden gesteld om een synthese te vinden waarbij alle waarden en alle verantwoordelijk heden worden gerespecteerd.
+Verbeteringen van de geschillenprocedures moeten ervoor zorgen dat deze regels als zij eenmaal zijn vastgesteld, worden nageleefd. Dit omvat uitdrukkelijk het ontduiken van deze regels door derde landen.
+Het gaat erom dat EG-telers zodanig worden geholpen dat zij op de lange duur zonder steun kunnen concurreren en op eigen benen kunnen staan.
+Goed, wat als het te lang duurt voor hij u vergeeft?
+Het is evenwel niet uitgesloten dat de ontwikkeling ervan op langere termijn een hoge vlucht neemt .
+Economische en sociale ontwikkeling kan uit eindelijk alleen duurzaam zijn als er actie wordt onder nomen om de belasting van het milieu te beteugelen en de natuurlijke hulpbronnen te beschermen in het kader van de in Göteborg gelanceerde algehele strategie voor duurzame ontwikkeling.
+De uitbreiding is voor ons in deze gevaarlijke tijd dan ook de beste, zo niet de enige garantie voor vrede, die de vol keren op den duur datgene brengt wat ze wensen.
+Het is belangrijk enige twijfel aangaande de effectiviteit van het toezichtsproces en de soliditeit van het begrotingsbeleid van de muntunie op de lange termijn te vermijden , aangezien dergelijke twijfel uiteindelijk zou leiden tot hogere risicopremies en hogere reële rentes in het eurogebied .
+Ze werd georganiseerd om een bepaald land te integreren, maar ik vind dat het duidelijk moet zijn dat een Europese Conferentie op termijn pas zin heeft als alle landen kunnen deelnemen die op lange termijn wel lid willen worden van de Europese Unie, maar vooralsnog, uit eigen overweging of vanwege het standpunt van de Europese Unie, geen toetredingsonderhandelingen willen of kunnen voeren.
+Bouwdrogers daarentegen, zouden voor zo’n taak niet alleen extreem “overgedimensioneerd” zijn, maar wegens hun signaalkleur hebben ze een uiterlijk waar je je maar moeilijk aan kunt wennen – vooral in de woonkamer!
+Toen was het einde van hen die verkeerd deden het allerergste, omdat zij Gods tekenen geloochend hadden en omdat zij er de spot mee dreven.
+De afdeling Amsterdam is net als de afdeling Haarlem opgegaan in afdeling 6 – Noord-Holland, ook in deze fusie afdeling loopt het ledental helaas zienderogen terug en daarmee gaat op termijn een groot brok nostalgie verloren.
+In haar verslag heeft de parlementaire commissie heel terecht de aan de reizigers verleende vrijstellingen van invoerrechten gekoppeld aan de vrijstellingen van omzetbelastingen en accijnzen.
+Alleen zo kunnen deze gezinnen op langere termijn hun financiële en sociale onafhankelijkheid terugkrijgen en houden wij ze weg van de rand van de maatschappij.
+Zo ontstaan ongemerkt MIC-verontreinigingen en corrosie met op termijn desastreuze gevolgen.
+Tijdens de voorjaarsbijeenkomst van 2003 werd erop gewezen dat “economische en sociale ontwikkeling uiteindelijk alleen duurzaam [kan] zijn als er actie wordt ondernomen om de belasting van het milieu te beteugelen en de natuurlijke hulpbronnen te beschermen in het kader van de in Göteborg gelanceerde algehele strategie voor duurzame ontwikkeling.
+Dit alles zal de sterken uiteindelijk net zo weinig pijn doen en door hen uiteindelijk evenzo geapprecieerd worden als de als uiting van waarachtig Europees engagement wel onvermijdelijke subsidiepot die u voorstelt.
+Zij kan ons ook helpen, de koppeling tussen milieu­vervuiling en het gebruik van hulpbronnen te doorbreken, waardoor onze economie op den duur meer ruimte heeft om te groeien zonder dat daarbij het maatschappelijk welzijn en de kwaliteit van leven in gevaar komen.
+So.Ge.A.AL voegt eraan toe dat de maatregelen ook gerechtvaardigd zouden zijn omdat een toename van de passagiersaantallen werd voorspeld als gevolg van de lowcoststrategie die vanaf 1999 werd gevolgd.
+Ik geloof echter dat het, door een middenweg te zoeken tussen die twee stellingen, uiteindelijk mogelijk zal zijn deze weerstanden te overwinnen, zoals de Europese operaties in Bosnië, Macedonië of Congo bewijzen.
+Maak je geen zorgen, zij zullen er op de lange termijn niet van profiteren en wij zorgen ervoor dat jullie dat zeker wel doen, maar let op: er is geen ruimte of wat voor toekomst dan ook voor oorlogswapens.
+Er valt geen voordeel te halen door eerst af te wachten wat er gebeurt, aangezien iedereen op de lange termijn al naar gelang hun behoeften zal profiteren.
+Er is niets wat die een gewone computergebruiker kan doen, maar wij kunnen om het bewustzijn over de defecte praktijken binnen de gehele technologische industrie, en hopen dat op de lange termijn enige wijzigingen zullen worden aangebracht.
+Tussen 40 en ruim 90 % van de intraveneuze drugsgebruikers is besmet met het hepatitis-C-virus (HCV),zelfs in landen met een lage HIV-besmettingsgraad, zoals Griekenland (zie figuur 9, hoofdstuk 1).
+Een normale ontwikkeling van de communautaire activiteit op het terrein van het sociaal beleid, regionaal beleid, energie en industrie zal een verscherping van de controle met zich brengen waarvan de prijs op den duur niet in overeenstemming zal zijn met de doeleinden van deze steun, die volgens de huidige stand van de begrotingsmiddelen slechts vervanging van een geringe aanvulling op nationale steun inhoudt.
+Wegvervoerders gaan nu weliswaar gebukt onder de kosten van congestie omdat hun productiviteit daardoor wordt aangetast, maar alle maatregelen om de congestie tegen te gaan – een van de doelstellingen van de onderhavige richtlijn – zullen de productiviteit van het wegvervoer en van andere vervoersmodaliteiten uiteindelijk ten goede komen.
+De prijs van Bitcoin Blijft Bullish op de lange termijn Ondanks Volatiliteit
+Echter, het ondergeschikt maken van andere waarden, waaronder de mensenrechten en het begrip duurzame ontwikkeling, aan overwegingen van veiligheid kan op langere termijn zelfs leiden tot minder veiligheid, in plaats van meer.
+In de Verenigde Staten is de overheid vast van plan de technologische superioriteit van dit land vooral met het oog op de bescherming
+Het leven ¡n de overbevolkte steden heeft vele nadelen, maar op langere termijn zijn deze niet onoverkomelijk, niet zozeer door hierin verandering te brengen, maar veeleer door een mentaliteitswijziging.
+Op termijn moeten we verder gaan en alle vervoersmiddelen, met inbegrip van het vrachtvervoer, op een coherente manier tegen het licht houden.
+Ja, omdat ik weet dat het op lange termijn jou gelukkiger maakt.
+De Raad herhaalt dat hij ervan overtuigd is dat de reactie van de Unie op het terrorisme, wil zij op lange termijn doeltreffend zijn, ook de onderliggende factoren van terrorisme moet aanpakken en moet trachten bij te dragen tot de bescherming en de bevordering van democratie, mensenrechten en vrijheden en tot de oplossing van regionale conflicten alsook economische en sociale problemen in de wereld.
+Toen enkele leden van de maatschappij van de primitieve gemeenschap geleidelijk en tastend overgingen van stenen naar ijzeren werktuigen, wisten zij natuurlijk niet en dachten zij er niet over na, tot welke maatschappelijke resultaten deze nieuwigheid zou leiden, zij begrepen niet en waren zich er niet van bewust, dat de overgang naar de metalen werktuigen een omwenteling in de productie betekende, dat hij in laatste instantie naar het slavenhoudersstelsel zou leiden; zij wilden eenvoudig hun arbeid vergemakkelijken en nabij liggende, tastbare voordelen verkrijgen; hun bewuste werkzaamheid was binnen de nauwe perken van hun dagelijks persoonlijk voordeel begrensd.
+Tijdens het debat van vandaag heb ik opgemerkt dat sommige sprekers hebben aangedrongen op een specifieke beoordeling van de Ierse problemen, wat de vast stelling van de landbouwprijzen betreft.
+3.2 Met betrekking tot de logistieke ketens op mondiale schaal moeten op termijn zowel de fysieke als elektronische systemen voor de verschillende modaliteiten volledig geïntegreerd worden, zodat voor de meest efficiënte vervoerswijze of combinatie van vervoerswijzen kan worden gekozen en de logistiek kan worden verbeterd.
+Deze kracht is ook hun Achilles-hiel: er is niet veel agressie aanwezig en de meeste nummers hebben dezelfde intensiteit, die op de lange termijn de levensduur van het album teniet kan doen.
+Recente gegevens wijzen erop dat het verband tussen inflatie en economische groei op de lange termijn zelfs wel eens negatief zou kunnen zijn , waarbij dan een permanente stijging van de inflatie per saldo tot een verlies aan reëel inkomen leidt .
+Hoewel van beide kanten dat gedeelte van de waarheid wordt vermeld waardoor de eigen positie in een gunstig licht wordt geplaatst, lijdt men dus op den duur van weerszijden aan onwetendheid, hetgeen tot moeilijkheden kan leiden en reeds heeft geleid.
+De Commissie acht systemen voor voorafgaande aanmelding op de lange termijn terecht overbodig en stelt dan ook voor om deze per 1 januari 2006 af te schaffen.
+In het begin wist mijn vriend niet dat ik hiv had. Ik durfde het niet te vertellen. Maar dat werd op de duur steeds moeilijker, omdat ik pillen moest slikken.
+In het goederen verkeer met Argentinië kwam in feite niet veel ver andering, omdat bestaande leveringscontracten onaangetast bleven.
+Hoewel het niet toepassen van de wetgeving van de Unie op een branche van de sector financiële diensten op korte termijn voor Finland van belang kan zijn, wordt een beschermde sector op lange termijn ondoelmatig en verliest deze zijn
+De oproep tot het tegengaan van de verspreiding van kernwapens moet op den duur leiden tot de uitbanning van alle kernwapens.
+Al bij al is het bijzonder leuk om deze ongecompliceerde gothic metal (met electro invloeden, jawel, cfr.Crematory) te beluisteren, maar gaandeweg wordt het toch allemaal redelijk eenheidsworst en daar hebben we een probleem.
+De Gemeenschappen, bevoegd voor het preventiebeleid, zijn immers niet geneigd zwaar te investeren in programma's die maar op langere termijn zichtbare resultaten opleveren en die bovendien vooral de federale overheid, verantwoordelijk voor de terugbetaling van de kosten van de ziektezorg, ten goede komen.
+"Het leven in de drukke omstandigheden van steden heeft veel onaantrekkelijke kenmerken.Maar op de lange termijn kunnen deze misschien overwonnen worden, niet zozeer door de omstandigheden te veranderen, maar simpelweg door het menselijk ras te veranderen dat zij het prettig vinden."
+Dit tussengeval is vanzelfsprekend het meest complexe, aangezien buiten de informatie over de timing en de termijnen van de belas tingbetalingen, de afschrijvingsregeling voor de gesubsidieerde activa en de splitsing van deze activa in terreinen, gebouwen en materieel moeten worden achterhaald.
+Dat voorbeeld leert echter ook dat wensen van de consument, als deze eenmaal onomstotelijk zijn komen vast te liggen, op den duur niet kunnen worden veronachtzaamd.
+Maar daarom moet je hem nog niet vertroetelen, toch? Uiteindelijk heeft hij er meer baat bij de waarheid te horen dan een slappe leugen.
+Ik vind het erg onverstandig met dit doofpotbeleid verder te gaan en ik denk dat het op termijn onvermijdelijk tot een schandaal zal leiden. De EU kan het geld van de belastingbetalers niet beheren.
+Heren voorzitters, meer uitgeven dan er binnenkomt, is op lange termijn niet houdbaar.
+In 1967 werd een start gemaakt met het opzetten van een dierentuin op Aruba. Aanvankelijk leek dit succesvol maar op de lange duur bleek het financieel toch niet haalbaar. In 1969 werd de dierentuin gesloten en de dieren weer verkocht.
+Het is allemaal nogal veel van hetzelfde, maar toch is er een duidelijk onderscheid tussen nummers als 'Keltilwald' en 'Raubzug Der Sugambrer' enerzijds (hier is een epische laag over heen gedrapeerd) en strakke, snel hakkende granaten als 'Germanicus' Rache' of 'Grenzland'.
+Dat wil voor u en voor de machinebouwindustrie zeggen dat wij uiteindelijk naar een belastinghervorming ten behoeve van het milieu en naar een energiebelasting evolueren.
+Een mooi hoofd en lijf mogen dan misschien de aandacht trekken, op de lange duur ’ is schoonheid een zeepbel ’.
+Maar op de lange termijn, zegt hij, hebben we betere vaccins nodig.
+Dit betekent uiteindelijk een centralisatie van het arbeidsmarktbeleid en een aanpassing aan een eenzijdig economisch beleid.
+de landbouwproductie op de lange termijn te verhogen om aan de toegenomen vraag te voldoen;
+De automobielindustrie vereist grootschalige economieën, voortdurende veranderingen in de handelspolitiek en het marketing-beleid alsmede grote financiële inspanningen bij het ontwerpen en verbreiden van nieuwe modellen.
+Ik rond af, mijnheer de Voorzitter.
+Er moet worden uitgelegd dat de uitbreiding op doordachte wijze zal geschieden, geval per geval, stapje voor stapje, en dat de uitbreiding noodzakelijk is voor de stabiliteit en de vrede van ons continent en dat de gevolgen ervan op termijn voor allen positief zullen zijn op economisch en sociaal vlak.
+De bodemprijs van koolstof biedt voor investeringen van de omvang en de duur van een nieuwe kerncentrale onvoldoende zekerheid over toekomstige groothandelsprijzen om dit soort project uit te voeren.
+Op de lange termijn zullen jullie verder willen gaan dan je huidige niveau, na van ervaringen te hebben geleerd en een nieuwe te zoeken.
+In Zijn soevereiniteit grijpt Hij in en op den duur kunnen zij zeggen: Ja, ik heb verschrikkelijke blunders gemaakt, maar de Here heeft op wonderbare wijze voorzien en zelfs iets goeds daaruit voortgebracht.
+Uiteindelijk ontkomt de Europese Unie er niet aan en moet er een sanctiesysteem op EU-niveau komen.
+Je realiseert je dat het op lange termijn voor iedereen beter zou uitkomen als er meer gedaan werd, ook al is het maar een meerderheid die ermee instemt...
+Zoals eerder vermeld, moet het wiel 38 keer draaien om zeker 1 keer te winnen.
+Deze bezoekers begrepen maar al te goed dat op termijn het hele bestaan van de eenheidsmarkt zelf in gevaar zou kunnen komen, als er niet snel tot de eenheidsmunt wordt overgegaan.
+Wat de haast betreft waarmee de verdedigers van deze resolutie te werk willen gaan, zou ik mij eveneens wil len aansluiten bij de vaststelling van de heer Pöhl dat de meeste Lid-Staten momenteel niet aan de voor waarden voldoen om lid te worden van de Economische en Monetaire Unie, maar dat het precies die Lid-Staten of hun vertegenwoordigers, ook in dit Parlement, zijn die het meest aandringen op een onmiddellijke totstandbrenging van de unie, ondanks het feit dat de intergouvernementele conferentie onvoldoende is voorbereid om niet het risico van een mislukking in te houden.
+Iemand is pas werkelijk vrij van gehechtheden aan deze of gene vorm als hij Uw liefde volgt zonder een andere leidraad voor zichzelf, en niet anders. (7) Op den duur slagen grote wetenschappers er misschien in alle deeltjes te tellen die er in het universum zijn van de aarde, van de lucht, van de sneeuw en het licht van de sterren.
+"Ik denk dat het beeldverhaal een goede manier is om de jonge generatie, de huidige en toekomstige, te vertellen over de gebeurtenissen achter ons. Eerst was ik wel verrast, maar vervolgens realiseerde ik me dat een beeldverhaal heel nuttig kan zijn om het verhaal van Anne aan toekomstige generaties te vertellen.
+Handelingen van het Europees Parlement
+De tussentijdse EPO is precies wat het zegt te zijn: een tussentijdse regeling, en ik ben het eens met al mijn collega's die menen dat onze doelstelling op de lange termijn een volledige, allesomvattende EPO moet zijn met alle landen in de Stille Oceaan, die de regionale integratie aldaar bevordert.
+Daar ligt al het knooppunt van de scheepvaart op de Donau en het zou dus uiteindelijk een drie-knooppunten-sysyteem worden.
+Het geld wat je hieraan uitgeeft kan je leven permanent (naar mijn mening ten goede) veranderen.Het is dus, op korte danwel lange termijn, zijn prijs meer dan waard.Daar komt nog bij dat het technische support team snel en behulpzaam is.
+Op de langere termijn zal de uitbreiding waarschijnlijk de vergrijzingtrend in de EU versnellen, aangezien de meeste nieuwe lidstaten al zeer lage vruchtbaarheidsniveaus kennen.
+Wij menen immers dat deze kwestie uitsluitend behoort tot de bevoegdheid van het Griekse parlement en van het Griekse volk, dat zeer de pijnlijke gevolgen van de toetreding van ons land tot de Gemeenschap onder ging, ondergaat en zal ondergaan.
+Welk belang er aan artikel 13 in de toekomst wordt gehecht, is grotendeels afhankelijk van de politieke wil.
+Deze nieuwe situatie houdt in het bijzonder het risico in van uiteenlopende nationale maatregelen, die op lange termijn de industriële integratie van de Gemeenschap in gevaar zouden kunnen brengen of zelfs het bestaan van de gemeenschappelijke markt op het spel zetten.
+Noch de EU noch potentiële lidstaten zijn op de lange termijn gediend met een systeem dat leidt tot afhankelijkheid van steun.
+Het was dan ook totaal overbodig dat de Rekenkamer dan nog eens tien jaar terugblikkend al deze dingen op tafel heeft gelegd.
+Het percentage bossen dat te lijden heeft van naaldverlies, varieert per land: van 6% in Portugal tot 37% in Denemarken.
+Van belang op de lange termijn is winnen, en dat deed ik.
+Naar het schijnt is dit de verandering die zich op het tweede album voltrokken heeft en dat lijkt me een verstandige zet, want de manier van zingen gaat op dit eerste album uiteindelijk een beetje eentonig worden.
+Op lange termijn, na 2015, zou door verdere coördinatie op EU-niveau nog eens 30 miljard euro extra winst kunnen worden verwezenlijkt.
+Niet op de lange termijn.
+De meest recente wetenschappelijke ontdekkingen worden meteen vertaald in praktische toepassingen die uiteindelijk de patiënt ten goede komen.
+Uiteindelijk verdwijnen de rassen gewoon.
+Bovendien heeft men ook daar leven van alles wat, en cruise op de lange termijn kokosnoten uit de palmen, is waarschijnlijk niet de ware.
+Echter, omdat genoemde organisatoren wel inzagen dat deze situatie op den duur niet houdbaar zou zijn voor sportscar constructeurs (waarvan de meeste hun wedstrijdwagens wereldwijd in meerdere kampioenschappen inzetten), pasten zij hun reglementen gaandeweg wel meer en meer aan richting de FIA reglementen, met name voor wat betreft de technische paragraaf (appendix J).
+Mijn enige kritiek op deze box is dat dezelfde nummers te veel terugkomen in een lichtelijk andere versie, maar algemeen beschouwd is dit toch een presentje dat elke gothic liefhebber onder de kerstboom met kloppend hart zal ontvangen.
+Mevrouw De Valera. — (EN) Mijnheer de Voorzitter, het Commissieprogramma is een voortzetting van de werkzaamheden die in 1974 zijn verricht om het beginsel van gelijke behandeling in te vormen met be trekking tot de toegang tot het arbeidsproces, de be roepsopleiding en de arbeidsvoorwaarden.
+Want dit laatste is in het debat nog nauwelijks tot uiting gekomen, pesticiden moeten ook verboden kunnen worden omdat ze de natuur verpesten en daarmee op den duur de levensmogelijkheid van de mensen.
+Ik wil hiermee zeggen, geachte afgevaardigden, dat de antwoorden die het biedt op de institutionele uitdagingen met betrekking tot de goede werking van een Unie van dertig lidstaten, geen duurzame oplossing zullen bieden voor de problemen die deze Unie van een dergelijke omvang op korte en middellange termijn zal tegenkomen.
+Op langere termijn zullen de voorstellen een lager stijgingspercentage voor de landbouwuitgaven dan voor de eigen inkomsten mogelijk maken.
+Hoewel de herziene demografische prognoses leiden tot een iets lagere druk op de overheidsfinanciën dan de vorige prognoses, is de Raad van me ning dat bij het huidige beleid het risico van onhoudbare overheidsfinanciën door het ontstaan van bcgrotingsonevenwichtigheden op lange ter mijn niet kan worden uitgesloten: dit risico is hoofdzakelijk het gevolg van de naar verwachting forse toename van de uitgaven voor overheidspensioenen als gevolg van de vergrijzing.
+De ontwikkeling is dramatisch, omdat geen enkel land zich op den duur aan een dergelijke concurrentie in de vorm van belastingverlaging kan onttrekken, en dat kan alleen de ondernemingen en niet de lidstaten ten goede komen.
+De beschikking heeft als conclusie dat de argumenten van Siemens speculaties betreffen, die leiden tot het algemene oordeel dat elk monopolie op lange termijn nieuwe spelers aantrekt.
+Op lange termijn kan de mensenrechtensituatie waarschijnlijk het best beter worden als China er op economisch vlak op vooruitgaat en als wij het land bij die ontwikkeling aanmoedigen, niet alleen intern, maar ook naar de buitenwereld toe via bijvoorbeeld het lidmaatschap van de Wereldhandelsorganisatie. Dat moet dan niet zijn in de vorm van een nutteloze deelname alsof het een club is die we alleen maar de prijs van het lidmaatschap willen geven, maar in de vorm van een deelname op basis van een volledige aanvaarding van de regels van de Wereldhandelsorganisatie, waarbij men enerzijds wil dat China zijn land openstelt en dat het een meer liberale economie wordt met erkenning van de moeilijkheden en de fase van ontwikkeling waarin het land zich bevindt, terwijl men China anderzijds toegang geeft tot de rest van de wereld.
+De ratio wint het nu eenmaal op wat langere termijn van 'onderbuik'gevoel en 'irrationaliteit'.
+Op de lange termijn moet je op zoek gaan, en krijgen de aanhalingstekens in de zoveel plaatsen als je kunt alvorens een definitief besluit te nemen.
+De opleiding tot recensent, mijn ervaring op dat terrein en belangstelling voor de werking van de psyche hebben op den duur vruchten afgeworpen [ noot ].
+als in tabel 12 voor bouwland is aangegeven.
+Op de lange termijn zult u zien dat het kopen van een gebruikte auto is gunstig.
+Wat we [slechts] zien is hoe U, net als de wind die de wolken uiteendrijft, met Uw zo heel grote kracht [van de Tijd] op den duur al de planetenstelsels vernietigt en hoe op dezelfe manier alle levende wezens hun einde vinden door externe oorzaken.
+Download volledige case Share: Samengevat: Agenda en virtueel kantoor in de Cloud 100% uptime gegarandeerd Nooit meer versieconflicten Goedkopere oplossing op lange termijn Meer info?
+De Vietnamese communisten achten het dan ook van tijd tot tijd noodzakelijk om, zoals zij zeggen, voorbeelden te stellen.
+Dat zou uiteindelijk ook moeten gelden voor het voorstel voor de volgende financiële vooruitzichten, dat we eind juni presenteren en waarmee ook nog eens veel wordt geïnvesteerd in energie-infrastructuur en trans-Europese infrastructuur in het algemeen, iets wat eveneens bevorderlijk is voor groei en werkgelegenheid.
+De besparingen die op lange termijn bereikt zouden kunnen worden met outsourcing rechtvaardigen dat men de interne e-mailvoorzieningen opgeeft.
+Mijn globaal pleidooi en ook stemgedrag gaan derhalve in de richting van stabiliteit en voldoende garantie voor de producenten.
+Dat is erg jammer en is uiteindelijk ook niet erg bevorderlijk voor de vermindering van de emissies in het luchtverkeer.
+Een waterdichte immigratiestop voor niet-Europese vreemde lingen en een vastberaden terugkeerpolitiek voor de in Europa verblijvende niet-Europese vreemdelingen naar hun herkomstlanden zijn noodzakelijke voorwaarden, welke moeten worden gekoppeld aan nog andere sociale en economische voorwaarden om de Europese arbeidsmarkt op termijn te beschermen, te handhaven en Europees te houden.
+Ik ben er grondig van overtuigd dat op den duur al die kredieten die worden verleend aan de ontwikkelingslanden, met terugwerkende kracht zullen worden omgezet willens nillens in vorm van ODA, officiële ontwikkelingshulp.
+Een muntunie en een centrale bank zullen op termijn niet kunnen bestaan zonder door een gemeenschappelijke regering of parlement beheerd te worden.

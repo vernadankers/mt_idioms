@@ -1,500 +1,500 @@
-Tja, zo gaan die dingen.
-Zo gaat het gewoon.
-Op dat spul.
-Kan gebeuren.
-Dat is één van die dingen.
-Of niets van dit alles.
-Dat is zo 1 van die dingen..
-Geen van die dingen, oké?
-- Ach, je weet wel.
-Je kent dat wel.
-- Dat is het allemaal niet.
-Het is slechts één van die dingen.
--die dingen gebeuren.
-Dat heb je weleens.
-Eén van die dingen is?
-Dat is niet gebeurd.
-Gewoon één van die dingen.
-Ik ben dat allemaal niet.
-Kies een van die dingen.
-Ja, een van die dingen.
-- Één van die dingen?
-Dit is een van die dingen.
--Toro heeft netjes gevochten.
-Maar dat is hij niet.
-- Een van die dingen.
-Dat was een van die dingen.
-Die dingen gebeuren.
-Zo gaat dat niet meer tegenwoordig.
-- Het is gewoon één van die dingen.
-Manny, schiet zo'n ding af.
-Dit is zo'n feit.
-Slapen met een prostituee?
-Hij draagt zo een van die dingen... met dat masker en buisjes?
-Het gebruikelijke, denk ik.
-Drinken was daar één van.
-Wapens waren één van die dingen.
-Je hebt geen van die dingen.
-- Nee, geen van die dingen.
-Maar zo gaat dat.
-Hij is één van die dingen.
-Geef me eens zo'n ding.
-Gewoon één van die dingen.
-Het is één van die dingen.
-Het is gewoon één van die dingen.
-Helemaal niet.
-Een van twee is een leugen.
-Het is echt zoiets...
-Je wordt niet een van die dingen.
-Het gebeurde gewoon.
-Een van die dingen, die kunnen gebeuren, ben ik bang.
-Jij deed niets van dat.
-Een van die dingen die je niet aanraakt.
-Hij zou een van de dingen kunnen zijn.
-Maar ze is geen van die dingen.
-Geef mij er maar eentje van.
-En.. jij was niet zoiets.
-Molly veranderde in een van dingen.
-Dat ben jij niet.
-Zulke dingen gebeuren nou eenmaal.
-Goed, het is geen van beiden.
-Zo'n ding waar je plannen op bevestigt.
-Je weet hoe 't gaat.
-Het was één van die dingen!
-Heb je ooit in zo'n ding gezeten?
-Het was gewoon één van die dingen.
-Of één van die dingen kregen haar te pakken.
-Zulke dingen gebeuren gewoon.
-Ik ben straks ook zo'n ding.
-Het is iets...
-Nee, dat ben je helemaal niet.
-Jij bent geen van deze dingen, Shirl.
-Hoe dan ook, het is gewoon een van die dingen.
-Maar die dingen gebeuren.
-Gewoon een van die dingen.
-Is dit zo'n fout?
-Een beetje scheuren in zo'n ding.
-Zulke dingen doen ze.
-Een van die dingen zijn Pugg doelen.
-Het is een van die dingen die...
-Dat is geen ven beiden waar.
-Mag ik er zo een?
-Ik heb vandaag één van die dingen gezien.
-Die dingen gebeuren.
-Geleerdheid is gewoon een van die dingen... Het is onverklaarbaar.
-- Het is één van die dingen.
-Zoiets wat Franny heeft?
-Ik denk dat het geen van beide is.
-Ik ben bang dat het gewoon zo is.
-Je hebt me veranderd in een van die dingen!
-Zulke dingen zijn hier niet.
-- Sam is in één van die dingen veranderd.
-Een ervan heeft ze nog steeds nodig.
-Had ze zo'n beest in haar?
-Dan krijg ik moordneigingen.
-Zo gaan die dingen, weet je?
-Of er gebeurt helemaal niets.
-Niets van die dingen, nee.
-Je zou in een van die dingen kunnen veranderen.
-In ieder geval een familielid van hem.
-Heb je ooit eerder geschoten?
-Zoiets onderbreekt de gang van zaken.
--Ik word niet één van die dingen.
-En één van die dingen...
-Ik zal nooit in zo'n ding gaan.
-Jij denkt, dat dit een van die dingen is?
-Jou in de gaten houden is één van die dingen.
-Dat is allemaal niet de bedoeling van dit bureau.
-Is hij in zo'n ding veranderd?
-goed, laten we dan 1 van deze dingen halen.
-- Oh, het is niets, gewoon een van die dingen.
-Is één van die dingen, een hogere macht?
-Dit is één van die dingen.
-Kun je het niet uitleggen?
-Dat is geen van beide gebeurd.
-Mijn vriend Walt is één van die dingen.
-Zoiets vergeet je nooit.
-Op z'n minst is één van die dingen niet waar.
-Wat doen we als er daar zo'n ding zit?
-Ik had niet gedacht nog één van die dingen te vinden.
-Er bleek van die dingen maar eentje waar te zijn.
-Het was gewoon, weet ik veel, één van die dingen.
-Het was iets van...
-Ik ben in ieder geval goed in een van die dingen.
-Ik heb deze dingen in geen jaren gezien.
-Ze vielen zo'n ding aan.
-Een paradox? Een van die dingen die het heelal kunnen opblazen?
-Eén van die dingen had je dood kunnen betekenen.
-Ik ga nooit het water op in zo'n ding.
-Dat is zoals één van die dingen die we haten.
-Het is een ongelukkige samenloop van omstandigheden.
-Ik denk dat één van die dingen in hem zit.
-Geen van die dingen zal mij overkomen.
-Dat is één van de dingen die een meisje doet.
-Ik zou niet graag in de buurt van zo'n ding komen.
-Heb je daar weleens in gezeten?
-Laat me niet in zo'n ding veranderen.
-Heb je ooit met zo'n ding geschoten?
-- Dat ben ik allemaal niet.
-Eén van die dingen die je niet meer wil doen?
-Het bleek dat jij dat niet was.
-- Als er één met Hammer afgaat, moet ik kotsen.
-Is hij zo'n ding?
-oh, Trevor wilde ook wat kopen van dat spul.
-Die dingen gebeuren gewoon.
-Behalve dat mijn vader geen van deze dingen bezat.
-Dus dit alles is over een van die dingen die je ziet, Clyde?
-Zoiets als die dingen daarbuiten?
-Ik denk dat ik over 1 van die dingen heb gelogen. Dus je bent een leugenaar.
-Florida ga je gewoon moeten vergeten.
-Denk je dat, dat de laatsten waren?
-Maar je bent, mijn liefje, niets van die dingen.
-Is dat zo'n ding dat landmeters gebruiken?
-Alleen hoefden jullie geen moord op te lossen.
-Ik heb over al die dingen gelogen.
-Hebt u echt een van die dingen in uw hoofd?
-Je bent één van die dingen uit dat ruimteschip
-Je moet het boven z'n bedje hangen.
-Ik wil niet sterven als een van die dingen,Gwen.
-- Zien we vaak genoeg.
-Zit er zo'n ding achter m'n schip aan?
-Ik zou blij zijn als ik één van die dingen kon geloven.
-Ik word ook zoiets, hè?
-Weer zoiets wat je onderweg leert.
-Schiet je nog wel 's?
-Tenminste één van die dingen herken je wel.
-Ik zag één van die dingen op het scherm.
-Ik heb dat niet nodig.
-En ik wil niet een van die dingen zijn.
-Dat is een van die dingen die ze je nooit vertellen als je getrouwd bent?
-Kan er zo'n ding in mijn hersenen groeien?
-Hoe moeilijk is het om zoiets te besturen?
-Ze wil er in worden begraven.
-Ik doe die dingen allemaal niet. Maar ik begrijp het wel.
-- Ja, we hebben 'n nieuwe lift nodig.
-Zo'n geval dat de academie en mijzelf in moeilijkheden brengt.
-En zoiets ben ik niet gewend.
-Het is één van die dingen die je moet doen.
-Echt? Heb je toevallig zo'n ding bij de hand?
-Het is een van die dingen die gewoon gebeuren.
-Wat gebeurt er als ik mezelf volgende keer niet kan inhouden?
-Maar weinig mensen weten hoe sterk dat spul is.
-Je stelt dus eigenlijk voor om jezelf te bevriezen in één van die dingen?
-Je hebt ook zo'n ding in mijn horloge gedaan, hè?
-Zeven jaar, nooit een contract.
-Je stopt me niet in zo'n ding.
-Je gaat me niet in een van die dingen veranderen.
-Dat is gewoon een van die dingen die juist is op deze manier.
-Eén van die dingen heeft twee kogels in mijn vaders borst geschoten.
-Dat klinkt als of jullie dit soort dingen om de paar maanden hebben.
-Maar ik denk dat dit een van die dingen als "letterlijk,"
-Ooit gestruikeld over die dingen in het donker?
-Daniël heeft er al tien keer in gezeten.
-Dat is een van die dingen die je niet van te voren weet.
-Ik denk dat ik je met een van die dingen kan helpen.
-Niets voor hem om dat te missen.
-Ik dacht dat je zo maar wat zei.
-Dit is één van die dingen die je zo gek niet kan verzinnen.
-Dat klinkt helemaal niet goed.
-Nee, ze zei niets van dat soort dingen.
-En één van die dingen is de behoefte om ons te verbeteren.
-Was hij zo'n ding dat je kunt zien?
-Dat je een looping hebt gemaakt met een heli.
-Dat zeggen meiden nou eenmaal.
-Ik kan tenminste niet opgegeten worden door een van die dingen.
-Om zo'n ding in je te hebben dat controle over je heeft.
-Hij zal wel bovenop een van die dingen zitten.
-Dit is gewoon een van die dingen... Laten we het gewoon doen.
-De een is wetenschap, de ander fantasie.
-Ik ben hier om te verzekeren dat niets minder waar is.
-Of is dit weer zoiets dat ik nooit zal begrijpen?
-Iedereen die het water dronken veranderde in een van die dingen.
-- Eén van de wezens neemt er een bad.
-Wil je ons even excuseren? - Zeker. Het Franse platteland is echt...
-Maar geen van die dingen zou ik als eerste doen.
-Maar tenminste stierf ze niet als één van die dingen.
-Het was één van die dingen waar mensen hun juwelen in bewaren.
-Het was gewoon één van die dingen die je zegt, weet je ?
-Ik wou dat ik iets wist te zeggen.
-Ik kan me er niets bij voorstellen.
-Ik weet niet eens hoe je dat soort dingen doet.
-Een van die dingen kroop zo uit de bron.
-Waar ik je mee naartoe wil nemen, hebben we niets van dat al.
-Als je die pil inneemt... moet je niets van die dingen doen.
-Dat is een van die dingen die een vader moet doen, denk ik.
-Heb je zo'n kartonnen ding bij je?
-Het is gewoon iets wat je beter met rust kunt laten.'
-Het was mooi maar het was iets tijdelijks
-Ik wil voor geen enkele van die dingen terechtstaan. Waarom niet?
-Maar dit moest ik gewoon weten.
-Nee, dat is er nooit van gekomen.
-Dat bewijst dat hij als je broer gestorven is en niet zo'n ding.
-- Ik moest het gewoon proberen.
-Vrijheid is een van die dingen die zeer wordt gewaardeerd door mensen.
-Ik denk zelfs dat ik weet waar ik zo'n ding kan vinden.
-Maar dat was gewoon iets wat ik zei...
-Hopelijk kan ik zo'n ding besturen.
-Wat is dit, één van die dingen die tante Martha moest dragen?
-Ik weet het niet jongens, ik denk dat het gewoon zo iets van die dingen is.
-Het is één van die dingen die we hebben geleerd tijdens de techniekles in groep 7.
-Wil je dat we een van die dingen aan boord van het schip brengen?
-Dat doe ik nooit voor de middag, schat. Tot kijk.
-Één van die dingen is benzine tanken.
-Dat kan natuur lijk gebeuren, iedereen maakt wel eens een fout.
-Eén van die dingen is bijdragen tot een zaak die groter is dan jijzelf.
-Weet je dat één van die dingen... net zoiets is als het eten van drie double cheeseburgers?
-Heb je ooit geprobeerd om een date te vinden voor een van die dingen?
-Laat staan hoe we zo'n ding weer uit iemand moeten krijgen.
-Een van die dingen die je weet, maar weet dat je het niet weet.
-Kent u iemand met zo'n beest?
-is dat ook één van die dingen die een beetje uit de hand liepen?
-Ik wil geen geboorte van zo'n ding zien.
-Je zult toch aan zoiets moeten denken.
-Eén van die dingen werd 30 keer geraakt en liep toch door.
-Dat kan niemand je vertellen.
-Daar is het allemaal begonnen, daar zag ik voor het eerst zo'n ding.
-We moeten zo'n ding vangen om erin te geraken.
-- Weet je, het is... gewoon één van die dingen die je altijd bijblijft.
-Net zo'n ding om een suikerspin mee te maken.
-Krijg ik dingen die uit mijn hoofd steken?
-Je zit in een blik onder de oceaan met een van die dingen.
-Je liet me zo'n ding worden.
-Zo'n ding gaat dwars door de RHlB.
-Iedere keer toen één van die dingen mij aanviel, ging dat rode licht aan.
-Ze dwongen me te scheiden.
-Dit zijn van die dingen die je pas echt gelooft...
-Je bent dood, en je wordt net zoiets als die dingen buiten.
-Hoezo, zelfs met die kraan krijgt u één van hen niet naar buiten.
-Liever vroeger dan later dat ik die dingen nooit meer zie.
-Ik werkte voor het eerst met dat ding... ik werd afgeleid.
-Hij kreeg er een ster voor.
-Neem me niet kwalijk.
-Nou, ondanks het feit dat ik een van die dingen in me heb verdomd lekker.
-Rits het dicht voordat ik één van die dingen over je mond bind.
-Recentelijk onderzoek toont aan...
-Vier met de Zeppelin.
-Zoiets komt in elke generatie één keer voor.
-En één van die twee gaat terug naar Pocaju zonder de andere.
-Ik kan je niet zeggen wanneer ik voor het laatst zoiets heb gevoeld.
-Het is zo oud dat het nu weer in de mode is.
-Ze zullen je niet één van die dingen geven zodat je kunt gaan vissen.
-Verslagen. Alles wat je je vrouw niet aan wilt doen.
-Dat is nou weer zo'n misvatting.
-Nee, dit is één van die dingen die ik gewoon alleen moet doen.
-Als mijn vader me met zo'n ding zou zien zou hij me vermoorden.
-Het is iets dat mensen raakt. Heb ik gelijk?
-Je zou er vegetariër van worden.
-En ik wil dat je iets voor ze maakt een van die dingen om ze te beschermen.
-Ik zoek zo'n ding dat alles bijhoudt...
-Het is iets wat ik doe om de tijd te doden op de set.
-Ik was letterlijk een paar centimeters van één van die dingen af, het bewoog niet eens.
-Na een van die dingen, zult u waarschijnlijk over root-toegang op de machine!
-Hoe lang zou het duren voor zoiets scherp is?
-Als je met 'een van die dingen' een 2000 jaar oude Tokra symbiont bedoelt.
-We hebben amper genoeg mensen om een van deze dingen te doen, laat staan alle drie.
-Ik wil niet eindigen als één van die dingen... ronddolend zonder een ziel.
-Dat valt niet uit te leggen.
-Sommige zaken zijn niet voor geld te koop, maar jij gelukkig wel.
-Zo'n feest... waar men wat grappigs over me zegt voor de zaal.
-Natuurlijk is de release van hun goed ontvangen debuutalbum 'Guilty Water' een van die dingen.
-Is dit niet zoiets waarvan we gezworen hebben dat het niet zou gebeuren?
-Maar zo gaan die dingen. Zij gingen uit elkaar, wij kwamen tot elkaar.
-Met kant en wat frutsels en zo.
-Het is iets waarvan je denkt dat het nooit meer gebeurt.
-Poker uitspraken zijn slechts een van die dingen die zijn moeilijk om zin van te maken.
-Ik zeg je, ik lees een van deze schijtboeken in één nacht uit.
-Ik snap het, het is dus net zoiets als Bigfoot en het monster van Loch Ness.
-Ongelooflijk hoeveel hitte zo'n kaars afgeven kan.
-Natuurlijk, is dit een van die dingen die wij kunnen alleen adviseren u op.
-Geloof me, ik ben één van de eersten die één van die dingen neerknalt.
-Heb jij nooit het gevoel dat dit zoiets is wat niet mag gebeuren ?
-Een, ik ben niet meer een van die dingen meer, dus gooi me niet meer op een hoop met ze.
-Poker uitspraken zijn slechts een van die dingen die moeilijk zinvol van zijn.
-Ik gelukkig niet, dus ik zeg het in je gezicht.
-Ja, maar ik kan niks als zo'n beest aanvalt.
-Hoeveel avonden hebben jullie geprobeerd om er één te vangen?
-Maar Ed was niet de enige die gek werd van die dingen.
-Het is vervelend, maar het moet. Net als belasting betalen.
-Als ik ooit zou zien dat jij in z'n ding gedrukt wordt, zal ik waarschijnlijk gaan huilen.
-Dit is niet iets wat je kunt rechtzetten zoals je strik.
-De vraag is: Wie is krachtig genoeg om hem de baas te zijn?
-Sabine had één van die dingen verstopt onder haar bed als een lelijke smerige secreet.
-Toch niet zo'n ding waar een vent in het beeld springt om je bang te maken?
-Heerlijk toch, naakt in zo'n ding?
-Aan dit soort dingen denk je later lachend terug.
-Nou ja, dat is een van die dingen die je niet al te serieus neemt.
-En ik heb een vijs-verwijderaar en een ding waar je mee hamert.
-Weet je wat? Ik kan niet garanderen dat die dingen niet zullen gebeuren.
-Of we gaan snel dood of we worden ook zombies.
-Dit is iets wat ik zelf moet uitzoeken.
-Ik wist niet dat je met zo'n ding overweg kon.
-Ik zoek iets moois en goedkoops voor een vrouw die één van die dingen is.
-Zo bedoel ik het niet. Dat zeggen mensen.
-Misschien is ons universum slechts één van die dingen die af en toe gebeuren.
-Ik dacht dat als ik zo één ding kon hebben, ik ze kon chanteren.
-Want als zo'n ding hier komt, is het gebeurd. Dan kunt u al die flauwekul die u zo belangrijk vindt ook vergeten.
-Dit is vast ook zoiets wat we niet gemeen hebben.
-We doen alles groots en dat geldt ook voor barbecue.
-Vermits dat elk van die dingen vereist van jou, geduld, concentratie, opoffering.
-Een mens stelt zoiets altijd uit, hè?
-Ben is op weg naar het vliegveld vermoord door zo'n ding.
-We hadden toch iets moeten vinden, maar niks.
-doet het echt zeer.
-Dit is één van die dingen waar erover praten het slechter maakt.
-Je had een zendertje om z'n nek moeten hangen.
-Eén van die dingen is niet waar maar ik betwijfel of jullie uitvinden welk.
-Kom ik daar of kom jij hier?
-Ik heb één ervan gedaan toen ik 12 was, tijdens een baseball wedstrijd.
-Kunst is een van die dingen die mensen al heel lang doen.
-Dit is een van de dingen waar we nooit achter komen, zoals wat er gebeurd is met de "Titanic."
-Dit is een van die dingen dat je er van houdt of dat je gezond bent.
-Ik had niet op Adam gerekend toen ik CatCo oprichtte.
-Dat is een van die dingen die uit de stilte tevoorschijn kwamen, het naar elkaar luisteren.
-Als ik ooit in zo'n ding verandert, en je hebt een geweer vast... doe me... geen pijn.
-Dit is één van die dingen waar we het niet echt over hebben waar we het over hebben, niet?
-Zoals Hera al zei, als we tegen zo'n ding botsen, worden ze allemaal wakker.
-De eerste versie ontplofte in m'n gezicht.
-En als je een van die dingen kon kiezen boven het andere, Welke zou je dan kiezen?
-Dit is misschien iets... waarvoor je naar 't ziekenhuis moet.
-We hebben zo'n ding nodig om de buis vast te grijpen... en los te draaien.
-Vroeger of later, sterf je in een vieze kamer met één van die dingen die over je heen staat.
-Dat het verslag laat is, ligt niet aan hem, maar het is wel een feit dat wij gewoon moeten vaststellen.
-Ehm, ik weet niet of iemand van jullie er ooit al eens een heeft horen spelen.
-De volgende keer als ik weer zo´n ding zie, draai ik me om en "ba-bam!"
-Want er zijn dingen die je niet meer ongedaan kunt maken, En dit is één van die dingen.
-Dat dacht ik ook. Daar doen je studenten hun tentamens in, hè?
-Als je 'm mee naar bed neemt, hoop ik dat het zo'n ding is dat trilt.
-Er is maar weinig dat een meisje niet wil doen... op de passagiersstoel van één van die dingen.
 'n Bolo is zo'n smalle das... of zoiets dat ze gooien in Argentinië.
-Concentreer. Misschien is dit een van die dingen waar je zo vaak gelijk in had.
-Je weet wel, het is een van die dingen die je wilt, maar op hetzelfde moment je schuldig laat voelen.
-Het klinkt als sciencefiction, maar het is nog beter omdat het echt is.
-Het is iets wat niet zou gebeuren als de wereld bij z'n volle verstand was.
-We proberen niet de draak te steken met slechte films.
-- Ik zag u nergens. En ik dacht dat u zou willen dat ik dit zelf afhandelde.
-Wat je net voorbij zag komen was een onbemand Raventoestel, uit de hand te lanceren.
-Hij weet dat ieder onderdeel daarvan onderhandelbaar is tot op een honderdste van een procent.
-Wel, dat is dus een van die dingen waar we achter moeten komen, nietwaar?
-Dat gebeurt maar een keer... op de miljard vliegkilometer.
-Ik weet dat het niet eenvoudig is om je dat voor te stellen, Kate, dat je vriendin zo'n soort monster wordt.
-Mijn vrouw is ontvoerd door één van die dingen. Verwacht je nu echt dat ik er met één ga samenwerken?
-Dit wordt zoiets waarvan je achteraf zegt... dat je dit ook hebt verslagen.
-De omvang van de zaak en de zaak zelf doen er niet toe.
-De gedachte om zo lang opgesloten te zitten in een van die dingen, bezorgt me de griezels.
-Je hebt mijn permissie dat als ik één van hen word... doe me een plezier en schiet mijn hoofd eraf.
-Weet je, dit is één van die dingen, waarvan je denkt iemand te kennen, en dan...
-Geen Jacqui, geen liefdes. Niets moois om hoop te hebben.
-Je kunt nooit met zekerheid stellen dat het een van die dingen is, die is... als haat, zoals het in de Bijbel staat.
-Als je voedsel wordt... wil ik geen sleutelbos in een van de buiken van die schepsels.
-Als iemand bereid is levens te offeren voor zijn eigen kleinzielige belangen. Dat is één van die dingen.
-Er was natuurlijk al een zekere aantrekkingskracht maar dit was een van de dingen die het echt maakte.
-Het gaat om jullie en jullie herstel, want ik ben er om jullie te helpen.
-Maar ons vijven, in de bar bij MacLarens, jong en dom... dat is gewoon niet één van die dingen.
-- Niemand. Ik dacht dat ik het zou vergeten.
-Ik wilde dat je 'ns liet zien hoe die dingen werken.
-Best, maar wat heeft dat te maken met de wormimplantaat? Ze zei dat ze een 'draagster' was, dus misschien heeft ze zo'n ding in haar...
-Als redsters van de onschuldigen staat dit ons wel vaker te wachten.
-- Ted, zij is een tiran... zij heeft jouw ballen aan zo een dingetje... die heen en weer gaan, weet je wat ik bedoel?
-Hij wil na z'n dood niet blijven rondlopen en worden zoals zij.
-Wil je zeggen dat Elaine's vriendje, oude jongen die vaders kist omver stootte, maar één van die dingen ophad?
-Dat zeg je altijd. En het klinkt alsof het iets betekent, maar dat is niet zo.
-Maar dat was gewoon iets wat ik zei... Terwijl ik eigenlijk iets anders bedoelde.
-Zo niet dan hebben we een boze patiënt en een apoplectisch chirurg, en geen van deze dingen zijn bevorderlijk voor een succesvolle procedure op een falend hart, en niet te vergeten het falen van het slijmen.
-Het Verdrag van Rome en de Europese Akte zijn geen blauwdruk van een Europese superstaat.
-Ik ben lui, ik ben bang van verantwoordelijkheden... ik zet mijn zangcarrière voor mijn volk... maar dat is het allemaal niet.
-Ja, ik kan de plek in de fik steken. Maar zodra een van die dingen wakker wordt en schreeuwt Dan vliegen ze alle kanten op.
-Zij hebben geen uitkeringen: geen sociale zekerheid; ze hebben geen pensioen, geen gezondheidszorg...
-En als dat niet gebeurt, als al die dingen niet gebeuren, dan staat hem nog steeds een maandenlang martelend herstel van deze operatie te wachten.
-Geen zorgen, het gaat niet zo zijn dat jij hem afkraakt en dat we dan weer terug bij elkaar komen.
-Vroeg of laat is dit weer één van die dingen... die je weer opgeeft.
 Bijvoorbeeld dat ik naast m'n heksen- bestaan nog een ander leven wil.
-Een Banshee duikt op, jij snijdt je in je hand, drukt het tegen zo'n teken en dan is het gevangen?
-Ik zat ook vast tussen die dingen voor een tijdje, maar ik geraakte los met de hulp van een paar vrienden.
-Improvisatie is al die dingen, maar wat ik zo mooi vind, is dat het niet één van die dingen is.
-Bij EST zeiden ze, dat bijna gedood worden, iets was waardoor je pas voelt dat je leeft.
-Emma komt haar hele leven niet meer op zo'n ding.
-Echt niet dat ik me in zo'n ding laat vastzetten en als cadeau klaar ga liggen voor de G.O., geen kans.
-- Het is niet... dat als je 't honderd keer herhaalt, het verandert in de waarheid.
-Weet je, ik heb altijd gedacht dat als je dat ding door snijdt, dat er ergens een alarm zou afgaan.
-Als ik alles nog een keer over zou kunnen doen... zou ik al die dingen met je willen doen.
-Laat dit niet iets zijn waarbij je weggaat en ik loop te schreeuwen op straat.
-Iedereen kijkt naar een vrouwelijk SecNav zonder militaire ervaring, ze vragen zich af of dit een rol zal spelen.
-Het spijt me, maar het is niet echt ernstig.
-Elektriciteit is een van de dingen die door oude culturen gebruikt lijkt te zijn op een manier die we nog niet hebben kunnen achterhalen.
-Zelfs op topsnelheid zou zo'n schuit 3000 jaar over zo'n afstand doen.
-Weet je, één van de dingen die ik me probeerde te herinneren, liggend op m'n legerbrits, was het geluid van mijn man's lach.
-Maar desondanks, is er, weet je... het is een van die dingen waarbij je wacht tot je hart weer gelijke tred houdt met je verstand.
-Je vader maakte een keuze, en het leger heeft regels. Je had aan niets van die dingen iets kunnen veranderen.
-Elektriciteit is een van die dingen die oude culturen leken te benutten op een manier die we nog altijd niet kunnen begrijpen.
-Het zal moeilijk zijn, om sommigen van hen te overtuigen op dezelfde plaats te werken als één van die dingen.
-Dit soort dingen laat ik aan mijn studenten zien, want het is een complete verbastering -- een ontkenning van de wetten van perspectief.
-Ik mag je echt en ik wil niet afgestreept worden als een van de zaken op je to do lijst.
-Je bent als een van die dingen die vastzitten aan de zijkant van een boot die alleen kunnen verwijderd worden met een ijzerzaag of zoiets.
-Als ik niet wist hoe ik Karine uit zo'n ding moest halen, hoe kon ik Madeline er dan instoppen?
-Hij had al eens op zo’n ding mogen spelen bij Jonas thuis, en dat vond hij zo cool dat hij er ook één wou hebben.
-Sommigen van jullie hebben misschien dezelfde ervaring gehad. Het was een van die dingen - het heeft geen uren en uren tijd gekost om pijnlijke, strategische plannen maken.
-Er is iets veranderd en dat moet je gewoon accepteren.
-Eerst een berylliumbol halen.
-Wij moeten afstappen van die olie en veel meer in hernieuwbare energie investeren, zodat wij een koers kunnen volgen waar ook de burgers achter staan. Daar zijn wij echter absoluut niet in geslaagd, en daarom luidt onze conclusie dat deze begroting gewoonweg niet toekomstgericht genoeg is.
-- Maar? Voor elke larve in zijn longweefsel zijn er tien eitjes die moeten uitkomen.
-Het is gewoon één van die dingen, net zoiets als naar de vlammen van een zelfgemaakt kampvuur staren of het luisteren naar de brekende golven op het strand.
-Als je weet hoe je zo'n ding moet programmeren, zodat het een programma opneemt als je zit te eten, hoor ik dat graag.
-Is dit echt een bloemisterij of is dit zo'n geval waarbij ik meespeel zodat u weet dat ik 't weet?
-Ik vond het op dat moment wel goed klinken... maar ik stond in de lift en ik wist het ook niet.
-Ik heb (lang geleden, dat wel) veel gewindsurft en dus was kitesurfen altijd al een van die dingen die ik nog eens wilde proberen.
-Omdat Clarkson haar afspraak met de label heeft geschonden, leek het erop dat RCA zou stoppen met het promoten van het album en er geen verdere singles zouden komen.
-Ik heb plannen en een toekomst, dingen die ik graag wil... niets daarvan heeft met jou te maken, niets.
-Ik denk dat zelfvertrouwen een van die dingen is waarvan mensen niet kunnen vertellen dat je het hebt of alsof doet, net als een vrouwelijk orgasme.
-Maar al de Grieken namen Sosthenes, den overste der synagoge, en sloegen hem voor den rechterstoel; en Gallio trok zich geen van deze dingen aan.
-Eerlijk gezegd, ben ik er niet 100% zeker van dat jij meer in hem ziet dan een gebroken hart en dronken sex.
-Als een van die dingen niet gebeurd was... had ik nooit de beste baan gekregen die ik ooit gehad heb.
-''Updaten van programma´s is een van die dingen waarvan we weten dat we zouden moeten doen, maar waar we ons waarschijnlijk geen zorgen over maken totdat er een probleem is met een programma.
-De volgende keer dat.. je weer bij zoiets in de buurt bent is het waarschijnlijk na sluitingstijd, en zijn alle knappe mannen toch al naar huis.
-Het ging zo. Ik had getraind en toen gedoucht, maar niet lang genoeg.
-Van een beangstigend cijfer als 12 miljard kan je je niet afmaken door te zeggen dat het een van de dingen is waarmee wij in een vrijhandelsstelsel moeten leren leven.
-Jullie denken natuurlijk dat ik nee zeg omdat ik wil dat jullie gaan smeken.
-18:17 Maar al de Grieken namen Sosthenes, den overste der synagoge, en sloegen hem voor den rechterstoel; en Gallio trok zich geen van deze dingen aan.
-Het is gewoon een van die dingen, als je een man ontmoet, plaats je hem in een categorie - ja, nee of misschien.
-18:17 Maar al de Grieken namen Sosthenes, den overste der synagoge, en sloegen hem voor den rechterstoel; en Gallio trok zich geen van deze dingen aan.
-Toen grepen zij Sosthenes, de leider van de synagoge en gaven hem voor de ogen van Gallio een pak slaag. Maar Gallio trok zich er niets van aan.
-Maar als je hen vraagt over hún onderwijs, dan nágelen ze je aan de muur. Want het is één van die dingen… dat mensen raakt. Heb ik gelijk?
-Dit is net zoiets als wanneer de honden vlak voor een aardbeving wegvluchten.
-Overzichten maken is zoiets... als masturberen of tanden flossen. Je weet dat ik het doe, maar ik wil niet dat je het ziet.
-Managers dienen ook over al deze vaardigheden te beschikken en verder nog te weten hoe ze marktonderzoek moeten doen of laten doen, hoe ze een gedecentraliseerde organisatie moeten leiden, hoe ze een klachtenprocedure op moeten zetten.
-Maar ik zal je dit zeggen. Als ik oud en grijs ben... zal de vorige zomer een heel erg mooie herinnering zijn.
-2011-09-23 02:30:08 - Eigendoms-en ongevallenverzekeringen, wij allen willen dat we niet nodig hebben Laten we eerlijk zijn, verzekering is een van die dingen die we willen dat we niet hoefden te kopen.
-Ik kan het niet helpen, maar ik vraag me af wat er zou gebeuren... als we halverwege over het Kanaal zijn in die helikopter, en nergens heen kunnen en ze verandert in een van die dingen.
-Kennelijk behoort tijd tot de dingen die alleen God volledig kan bevatten, want alleen hij is „van onbepaalde tijd tot onbepaalde tijd ”. — Psalm 90: 2.
-Mensen te vertellen over Jezus lijkt een van die dingen die wij allemaal kennen we moeten doen, maar ieder van ons voelen zich schuldig over niet genoeg doen.
-Typisch zo'n avond: volkomen explosief. <i>Toen hij opkwam, voelde hij de menigte in de zaal...</i> <i>...yes... eindelijk.</i> <i>Dit was eigendom van Chris Blackwell, Island House.</i>
-Oké, dus, uh... dit is zo'n situatie dat ik iets ga zeggen... en jij je een klotezak gaat voelen. Maar voel je niet zo, oké?
-Ik heb dabbled in haak hier en daar en het is altijd geweest dat een van die dingen die ik van plan om erachter te komen … Someday. Vele andere ambachten kwam altijd eerst echter.
-Volgens velen was dit een teken dat Pixar het einde van zijn contract met Disney af wilde wachten.
-Een van deze dingen is de tijd voor het uitbreken van de „grote verdrukking ”, welke werd afgeschaduwd door de verdrukking die over Jeruzalem kwam, een verdrukking die zich op wereldomvattende schaal zal voltrekken.
-Ik ben geprogrammeerd om mensen met één blik te doorgronden. Ik weet wat je wilt, voordat jij het weet.
-Het was een van die dingen waar je zo van schrikt dat je er nog jarenlang aan denkt, aan hoe een gezinsleven in één klap kapot kan worden gemaakt door zoiets oliedoms.
-Er waren tien kunstenaars gevraagd mee te doen, en er was veel concurrerentiestrijd en ik wilde niet afgaan. Ik heb er dus heel hard aan gewerkt.
-Een van die dingen is dat van nu af aan verkrachting voorgoed als een oorlogsmisdaad beschouwd moet worden, waarvoormen voorde interna tionale gerechtshoven rekenschap moet afleggen.
-Geen van die dingen is gebeurd. En verbazingwekkend, als je kijkt naar wat er werkelijk gebeurt tijdens mijn leven, het gemiddelde inkomen per hoofd van de gemiddelde mens op de planeet, in reële termen, gecorrigeerd voor inflatie, is verdrievoudigd.
-Geen van die dingen is gebeurd. (Gelach) En verbazingwekkend, als je kijkt naar wat er werkelijk gebeurt tijdens mijn leven, het gemiddelde inkomen per hoofd van de gemiddelde mens op de planeet, in reële termen, gecorrigeerd voor inflatie, is verdrievoudigd.
-Hij vertelde dat hij deze website had gezien, dat hij had nagedacht over wat hij in zijn leven eigenlijk nou allemaal belangrijk vond en dat muziek maken daar eigenlijk een heel groot deel van had uitgemaakt.
-Als het een moment van besluitloosheid was, een van dat soort dingen, dan kun je het laten zitten, maar...als er een probleem is, dan moet je uitzoeken wat het is, en je moet het oplossen...snel.
-En het antwoord luidde: "Om de lusten, vermaken en voordelen van deze wereld, van welke ik mij veel genot beloofde; maar nu knaagt mij elk van deze dingen als een vurige worm."
-Mike Harness aan de lijn. - Laat maar wachten. Ga verder.
-Waarschijnlijk, mijn moeder gaat dood en mijn vriendin zit vast een alternatief universum... haar beer ligt begraven in het bos dat is iets waar ik wel wat aan kan doen.
-Iedereen wil geliefd zijn en je weet niet of je het echt voelt. Net als bij je ouders is het zoals het is... want je groeit er in mee, maar als je het echt ervaart met iemand anders... buiten die omgeving.
-Als ik iets heb gedaan waarop de doodstraf staat, wil ik mij niet tegen mijn terechtstelling verzetten. Maar als hun beschuldigingen stuk voor stuk gelogen zijn, heeft niemand het recht mij aan hen uit te leveren. Ik ga in hoger beroep bij de keizer!"
-Als de samenstelling van een voedingsmiddel verandert, als de voedingswaarde verandert of als het gebruiksdoel verandert - en wel in elk van deze gevallen apart, dat hebben wij nooit betwist, respectievelijk nooit anders gezien - moet worden geëtiketteerd. Dat is zonneklaar.
-Na veel inspanning is dit gelukt, en Christian vergelijkt deze vooruitgang op het gebied van real-time ray tracing met "een van die dingen die misschien eens in de 10 jaar gebeuren, zoals de generatiesprong van graphics die we in de jaren 90 zagen, met de introductie van hardware-acceleratie voor 3d-graphics."
-Een van die dingen die ik pas later ZELF heb mogen ervaren en hervinden is het feit dat je een menselijk leven op kunt delen in periodes van steeds 7 jaar, dit is dan ook de reden, waarom ik dit dan ook EXPRES zo verweven heb in de onderstaande links.
-Poker uitspraken zijn slechts een van die dingen die moeilijk zinvol van zijn. Maar misschien kon geen uitspraak ooit dicht bij de een komen Daniel Negreanu Tweeted over tijdens Dag 2c van het 2012 WSOP Main Event, een hand die blijkbaar vond plaats tijdens een cash-game in het Rio.
-Indien ik dus werkelijk een kwaaddoener ben en iets heb bedreven wat de dood verdient, verzoek ik niet om vrijstelling van de dood; indien daarentegen geen van de dingen waarvan deze mannen mij beschuldigen waar is, kan geen mens mij bij wijze van gunst aan hen uitleveren.
-Poker uitspraken zijn slechts een van die dingen die zijn moeilijk om zin van te maken. Maar misschien geen uitspraak kon ooit in de buurt komen van de ene Daniel Negreanu over Tweeted tijdens Dag 2c van het 2012 WSOP Main Event, een hand die blijkbaar vond plaats tijdens een cash-game in het Rio.
-Maar in persoonlijke intieme relaties, is het veel moeilijker omdat, met je vrouw of vriendje, of iemand waarvan je hoopt dat die dat ooit zal worden, we deze illusie van romantiek vertrouwen en intimiteit hebben en niets is zo onromantisch als de vraag "mijn condoom of het jouwe, schat?"
-Een van die dingen is de enorme Blog Tour door haak land gehost door Crochetville. Ik gedeeld enkele van de vroege posten uit die in het oorspronkelijke artikel, maar ik dacht dat ik zou geven u een update op twee dozijn leuke dingen in haak die zijn geboekt op dat tour sinds, inclusief gratis haak patronen, Tutorials en meer.
-Daarom vindt u hier de gids van BOSS om uw smoking in onberispelijke staat te houden, hoe vaak u deze ook draagt.De begeerde auto die u in het weekend liefdevol met de hand wast of het horloge dat u bewaart voor speciale gelegenheden: er zijn een paar dingen waarin u maar enkele keren in uw leven investeert.Een perfecte smoking is er daar één van.
+Dat is een van die dingen die uit de stilte tevoorschijn kwamen, het naar elkaar luisteren.
+Is het bij je opgekomen dat al die dingen binnenin Cass hebben gezeten?
+Dus dit alles is over een van die dingen die je ziet, Clyde?
+We hebben zo'n ding nodig om de buis vast te grijpen... en los te draaien.
+Je weet wel, het is een van die dingen die je wilt, maar op hetzelfde moment je schuldig laat voelen.
+Moet ze het echt weten of is dit één van die dingen die ze beter niet kan weten?
+Ik had ze nog nooit gezien, en hoop ze ook nooit meer te zien.
+Dat moeten ze zeggen net als: Niet drinken als je zwanger bent.
+Heb je ooit eerder geschoten?
+Ik wil geen geboorte van zo'n ding zien.
+Had toch zo'n kattending gehaald waarbij er eten in het bakje valt als je ertegen duwt.
 Wat het eerste opvalt is dat Tairrie meer vocale variatie laat horen.Waar voorheen haar diepgaande, soms zwartgallige, teksten in een orkaan van woede werden uitgeschreeuwd en aan de luisteraar werde opgedrongen valt er nieuw veel meer nuance te bespeuren.Er wordt meer geĆ«xperimenteerd met rustigere zanglijnen en dat komt (ondanks het feit dat ze geen echte zangeres is) veel beter uit de verf.
-De Sativa fenotypes van Jack kunnen ook een goede opbrengst per meter of per plant produceren wanneer ze vakkundig worden gecultiveerd, hoewel het niet gebruikelijk is dat deze plant commercieel verkocht wordt. De meeste kwekers die hun sappige, fantastisch grote kelken zien zwellen en rijpen zullen aarzelen om zulke toppen te verkopen en het beste van Jack Herer wordt dikwijls bewaard voor een selecte groep vrienden - een voorbeeld van een van die dingen die niet met geld te koop zijn.
-En dit is een van de dingen waar -- de ideale communistische staat kwam er nooit, aangezien het nogal moeilijk is om te weten waneer je er bent. En wat er dus gebeurt in een leninistische staat is dat deze voorhodepartij, die meestal de communistische partij werd genoemd, in een constante staat van revolutie verkeert. Het is alsof ze zouden zeggen:
+Je gedraagt je zoals die dingen daarbuiten.
+Het is een van die dingen die...
+En het antwoord luidde: "Om de lusten, vermaken en voordelen van deze wereld, van welke ik mij veel genot beloofde; maar nu knaagt mij elk van deze dingen als een vurige worm."
+Daniël heeft er al tien keer in gezeten.
+Misschien heeft een van die dingen bezit van hem genomen.
+Wacht eens, dus een van die dingen zit in Kanaan?
+Er is nog zo'n ding buiten.
+California's overweegt een soortgelijke wetgeving. Dit zou maken dat de autonome auto niet een van die dingen is die alleen maar in Vegas thuishoren.
+Een van die dingen volgde me net naar de stuurboordgang.
+Alles voor de kunst. Maar betalen, ho maar.
+Van een beangstigend cijfer als 12 miljard kan je je niet afmaken door te zeggen dat het een van de dingen is waarmee wij in een vrijhandelsstelsel moeten leren leven.
+Zo'n geval dat de academie en mijzelf in moeilijkheden brengt.
+Dat zeg je altijd. En het klinkt alsof het iets betekent, maar dat is niet zo.
+Een van die dingen zijn Pugg doelen.
+Zoiets vergeet je nooit.
+Eén van die dingen is?
+Dat kan niemand je vertellen.
+Ik denk dat één van die dingen in hem zit.
+Hoe weten we dat ze niet gepakt is door een van die dingen? Is ze dat?
+Het was iets van...
+Als de samenstelling van een voedingsmiddel verandert, als de voedingswaarde verandert of als het gebruiksdoel verandert - en wel in elk van deze gevallen apart, dat hebben wij nooit betwist, respectievelijk nooit anders gezien - moet worden geëtiketteerd.
+Misschien heeft ons gezin wel helemaal geen zwembad nodig.
+-Mooi. Mag ik een tequila met ananas? En wat zoete aardappel-sticks.
+Net zo'n ding om een suikerspin mee te maken.
+- Dit ding werkt voor Glory. Ja, dat komt goed uit.
+Dit is een van die dingen wanneer negatief, positief is, of niet?
+Er is iets veranderd en dat moet je gewoon accepteren.
+Eén van die dingen is niet waar maar ik betwijfel of jullie uitvinden welk.
 Privacy in de functionele zin, is het toegestaan de verwerking van persoonlijk identificeerbare gegevens met behulp van reële, morele, juridische en ethische normen. Dus, we brengen elk één van die dingen en zeggen, “Wat zijn de gefunctionaliseerde tools die we kunnen gebruiken om te bevorderen dat de hele arsenaal en ingewikkelde beweging van persoonlijk identificeerbare informatie over netwerken met al deze andere factoren ingebouwd in?” [Het is] als ik kan voor u de stof naar beneden hier, en onze teams kunnen bouwen en maken het als een geroutineerde en onzichtbaar, dan de rest van de wereld kunt werken op de meer genuanceerde lagen die zijn ook moeilijk en uitdagend.
-2:8 En schrijf aan den engel der Gemeente van die van Smyrna: Dit zegt de Eerste en de Laatste, Die dood geweest is, en weder levend is geworden: 2:9 Ik weet uw werken, en verdrukking, en armoede (doch gij zijt rijk), en de lastering dergenen, die zeggen, dat zij Joden zijn, en zijn het niet, maar zijn een synagoge des satans.2:10 Vrees geen der dingen, die gij lijden zult.Ziet, de duivel zal enigen van ulieden in de gevangenis werpen, opdat gij verzocht wordt; en gij zult een verdrukking hebben van tien dagen.
+Het is zo oud dat het nu weer in de mode is.
+Ik wil niet dat dit zoiets is wat onbesproken blijft tussen jou en mij.
+Ik begrijp dat het slechts een van die dingen was, maar... wat ik probeer te zeggen is...
+Ik en Finny deden gewoon onze ronde, zoals gewoonlijk en het laatste wat ik tegen hem zei, was dat er niemand een pistool tegen z'n hoofd hield. Het is één van die dingen die je zegt zonder erbij na te denken en, even later is hij...
+Dit zijn van die dingen die je pas echt gelooft...
+Dat is omdat Mars het symbool is van o.a. 'infectie' (iets vurigs).
+Ik zat ook vast tussen die dingen voor een tijdje, maar ik geraakte los met de hulp van een paar vrienden.
+Waarschijnlijk, mijn moeder gaat dood en mijn vriendin zit vast een alternatief universum... haar beer ligt begraven in het bos dat is iets waar ik wel wat aan kan doen.
+Een mens stelt zoiets altijd uit, hè?
+Misschien is dit een vuur dat snel opbrandt.
+Wel, dat is dus een van die dingen waar we achter moeten komen, nietwaar?
+Was hij zo'n ding dat je kunt zien?
+Dit wordt zoiets waarvan je achteraf zegt... dat je dit ook hebt verslagen.
+Omdat Clarkson haar afspraak met de label heeft geschonden, leek het erop dat RCA zou stoppen met het promoten van het album en er geen verdere singles zouden komen.
+Het is onder andere aan deze geest te wijten dat de „laatste dagen ” van het samenstel van dingen van deze wereld zo„ moeilijk zijn door te komen ”.
+Vertel me, Derek, weet je wel, hoe je deze dingen moet gebruiken?
+Het is gewoon een van die dingen die je moet geloven.
+Het was één van die dingen waar mensen hun juwelen in bewaren.
+Best, maar wat heeft dat te maken met de wormimplantaat? Ze zei dat ze een 'draagster' was, dus misschien heeft ze zo'n ding in haar...
+Dit is vast een van die dingen, die beter klinken in mijn hoofd, dan hardop.
+Er was natuurlijk al een zekere aantrekkingskracht maar dit was een van de dingen die het echt maakte.
+Het einde van de zittingsperiode van het Parlement en het mandaat van de Commissie komen nu snel naderbij. Daarom verzoek ik mevrouw Vassiliou, die de heer Kyprianou op uitstekende wijze heeft vervangen, zich van deze taak te kwijten, aangezien het vervoer van dieren een van die zaken is die wij zeer serieus moeten nemen.
+Het is een van die dingen waar je jarenlang over praat, en dan gebeurt het uiteindelijk, en... en...
+Als je 'm mee naar bed neemt, hoop ik dat het zo'n ding is dat trilt.
+Je had een zendertje om z'n nek moeten hangen.
+Managers dienen ook over al deze vaardigheden te beschikken en verder nog te weten hoe ze marktonderzoek moeten doen of laten doen, hoe ze een gedecentraliseerde organisatie moeten leiden, hoe ze een klachtenprocedure op moeten zetten.
+Eerst een berylliumbol halen.
+Ik wilde zo graag zelf met één van die dingen rijden.
+Hebt u echt een van die dingen in uw hoofd?
+Laat me raden... één van die dingen was stomme hoeden kopen.
+Dat betekent dus ook dingen over...
+Eén van die dingen die ze beter moesten weten, maar te dom waren om erover na te denken.
+Het duurt weken voordat ik erover heen ben. Chad?
+Als ik ooit in zo'n ding verandert, en je hebt een geweer vast... doe me... geen pijn.
+Je -- je moet soms dingen alleen doen, en 1 van die dingen is alleen op school zitten.
+Ik wil niet rondschuifelen op zo'n ding als een omaatje.
+Ik ben één van die dingen gevolgd in '89.
+Ik zag het als iets wat een leraar tegen een ouder zegt zodat ze zich beter voelen over hun lastige kind.
+- Weet je, het is... gewoon één van die dingen die je altijd bijblijft.
+Ben is op weg naar het vliegveld vermoord door zo'n ding.
+Mensen te vertellen over Jezus lijkt een van die dingen die wij allemaal kennen we moeten doen, maar ieder van ons voelen zich schuldig over niet genoeg doen.
+Dit is één van die dinge die de wetenschap niet kan verklaren, leg het terug .
+Zoiets vergeet je nooit.
+Ik heb een zaak... en ik heb zo'n ding waar hij in handelt, om af te handelen.
+Zoë was vandaag met zo'n ding aan het oefenen in Café Diem.
+Eén van die dingen, die je gewoon moet zien als je hier op vakantie bent, is de Vierwaldstättersee.
+Volgens velen was dit een teken dat Pixar het einde van zijn contract met Disney af wilde wachten.
+Ik heb vandaag één van die dingen gezien.
+Het is iets wat ik doe om de tijd te doden op de set.
+Papa, dit is iets wat iemand ooit zou moeten doen.
+Die onbetrouwbare hond kan best al vanaf het begin één van die dingen zijn geweest.
+Hoe groot worden die dingen?
+- Meld het bij de kinderbescherming.
+Een van twee is een leugen.
+Ik voel me zo'n verlept blaadje sla dat niemand meer lust.
+Lees het. Een van die dingen roeide wel m'n hele bemanning uit in een dag.
+Een reality show is een van die dingen die tot de mogelijkheden behoren.
+Pech gehad.
+Ik zag één van die dingen op het scherm.
+Ik vraag me af of een modderbad zoiets is als in de brochures... waarin ze je in handdoeken wikkelen alsof je in een cocon zit of zo.
+Dit is weer zoiets wat je zelf moet doen.
+Krijg ik dingen die uit mijn hoofd steken?
+Wat als dat gewoon een van Jonathans verzinsels was?
+De mijn was een van de dingen die we nooit bespraken... als mijn opa op zondagavond kwam eten.
+Dat is één van de dingen die een meisje doet.
+Als iemand die single koopt dan hoor je er helemaal bij.
+Je moet het boven z'n bedje hangen.
+Auto verzekering is een van die dingen die we allemaal klagen over totdat we het nodig hebben - dan hebben we er zeker van zijn blij dat we deze premies betaald op tijd. Maar zoals bij elk ander product, de prijs die u betaalt voor uw auto verzekering kan variëren sterk per bedrijf.
+Dus ik dacht, voor het geval ze langskomt om één van die dingen te kopen die ze lekker vindt, één van die...hoe noemen ze die ook al weer...die
+Als we lef hadden, vielen we zo'n ding aan.
+Nee, zijn pa viel op een stuk gereedschap dat bij de trap lag. Zo'n ding waarmee ze spijkers uit planken trekken.
+We wisten allebei dat het een slecht idee was... zodra we klaar waren.
+Ik was gewoon kwaad.
+Uh, waarom niet, uh, waarom niet de drie van ons uh, doen, uh, een van die dingen die we gebruikt om te doen in de oude dagen -
+Er is maar één ding dat we kunnen terugkrijgen.
+Een van die dingen doe je nu, op dit ogenblik.
+Zulke dingen doen ze.
+Als het ontploft brandt het zich meteen een gat dwars door het dek.
+Het is vervelend, maar het moet. Net als belasting betalen.
+Dat is een van die dingen die een vader moet doen, denk ik.
+Het is een wonder dat je zusje nog niet vermoord is.
+Mijn vrouw is ontvoerd door één van die dingen. Verwacht je nu echt dat ik er met één ga samenwerken?
+Als een van die dingen niet gebeurd was... had ik nooit de beste baan gekregen die ik ooit gehad heb.
+Vroeger of later, sterf je in een vieze kamer met één van die dingen die over je heen staat.
+Dit is misschien iets... waarvoor je naar 't ziekenhuis moet.
+Om te kunnen zeggen wat een uitschieter is, is zo een ding waarvan een statisticus zou zeggen:
+Dat zeggen meiden nou eenmaal.
+Dan zeg je zulke dingen.
+Je kunt nooit met zekerheid stellen dat het een van die dingen is, die is... als haat, zoals het in de Bijbel staat.
+2011-09-23 02:30:08 - Eigendoms-en ongevallenverzekeringen, wij allen willen dat we niet nodig hebben Laten we eerlijk zijn, verzekering is een van die dingen die we willen dat we niet hoefden te kopen.
+Dat dacht ik ook. Daar doen je studenten hun tentamens in, hè?
+Dit is een van de dingen waar we nooit achter komen, zoals wat er gebeurd is met de "Titanic."
+Eén van die dingen probeerde mij te pakken en ik... beet één van zijn vingers eraf.
+Het was gewoon één van die dingen die je zegt, weet je ?
+Dat is geen van beide gebeurd.
+Wat zou er gebeuren als een van die dingen besluit om door het raam te breken?
+Het stappenplan dat we in de vorige paragraaf hebben uitgelegd is een globale, universele manier van wassen, maar dit is wel zoiets dat iedere kweker anders zal doen.
+Een van deze dingen is de tijd voor het uitbreken van de „grote verdrukking ”, welke werd afgeschaduwd door de verdrukking die over Jeruzalem kwam, een verdrukking die zich op wereldomvattende schaal zal voltrekken.
+Denk je dat jullie een kans hebben als er buiten nog zo'n ding is?
+Oké, dus het was niet een zaak, dat er maar plek was voor één kunstenaar in de relatie en dat Pattis carrière op gang kwam en de jouwe overschaduwde, en dat je besloot je droom op te geven om haar te ondersteunen, toch? Dat was het wel.
+Weet je dat één van die dingen... net zoiets is als het eten van drie double cheeseburgers?
+Het is iets wat ik niet had willen zien.
+Zoet water is een van die dingen die veel mensen als vanzelfsprekend.
+Dit zijn van die dingen waar we morgen om lachen.
+- Het is niet... dat als je 't honderd keer herhaalt, het verandert in de waarheid.
+Vrijheid is een van die dingen die zeer wordt gewaardeerd door mensen.
+Elektriciteit is een van die dingen die oude culturen leken te benutten op een manier die we nog altijd niet kunnen begrijpen.
+Nee, dit is één van die dingen die ik gewoon alleen moet doen.
+Als ik één van die dingen was, had ik mezelf al jaren geleden volledig laten gaan.
+Dit is één van die dingen die je zo gek niet kan verzinnen.
+Hij deed nog veel meer dingen dan alleen die ik in dit filmpje ga beschrijven en elk van die dingen had hem zijn plaats in de geschiedenisboeken kunnen opleveren.
+Misschien hebben ze zo'n ding geraakt.
+Er zijn sommige dingen die het leven op je dat je gewoon leren kan om te gaan gooit met en sommige dingen die je kan het gewoon niet. De gevolgen van acne en andere huidproblemen lijden is een van die dingen dat maakt niet uit hoe u probeert om het te negeren, het gewoon niet ooit weggaan.
+Bij EST zeiden ze, dat bijna gedood worden, iets was waardoor je pas voelt dat je leeft.
+Dit is vast ook zoiets wat we niet gemeen hebben.
+Helaas voor de meeste, niemand zal alleen maar zorgen voor een naar de auto monteur school, is het een van die dingen die vereist liquide middelen en vrij van geld voor de meeste Amerikanen eist geld te besparen.
+Weet je, één van de dingen die ik me probeerde te herinneren, liggend op m'n legerbrits, was het geluid van mijn man's lach.
+Ze draait rond, net als zo'n ding dat ronddraait.
+Het is heerlijk om die bril op te zetten en weg te dromen.
+Ze zijn erg belangrijk.
+Geef maar aan m'n hond.
+Je herhaalt 't een miljoen keer in je hoofd en je ziet dat 't echt toeval was.
+Amerikaanse soldaten grendelden een noordelijke dorp af op woensdag 1 september terwijl hun Iraakse partners een raid uitvoerden, huizen binnenvielen en tientallen vermoedelijke opstandelingen arresteerden.[31] "Samen met de Grote Muur van China," zei VS ambassadeur Hill, "is de Amerikaanse ambassade in Bagdad een van die dingen die je kunt zien met het blote oog vanuit de ruimte.
+Je bent als een van die dingen die vastzitten aan de zijkant van een boot die alleen kunnen verwijderd worden met een ijzerzaag of zoiets.
+Ik zag zo'n ding in Stanfordville.
+AI had ik zo'n ding in mijn handen gehad, we hadden er nog meer.
+Die heeft ze altijd al gewild.
+Krijg je alleen een duidelijk antwoord als je je vader's lichaam ziet?
+Dat was een van de redenen... voor m'n interesse in Jupiter.
+Dat hangt er van af wat voor ding dit is.
+Dat bleef hangen bij mij.
+Op z'n minst is één van die dingen niet waar.
+Is één van die dingen, een hogere macht?
+Mijn vrouw zegt dat ik met zo'n ding in mijn handen sterf.
+Weet je, ik heb altijd gedacht dat als je dat ding door snijdt, dat er ergens een alarm zou afgaan.
+6:7 En hij zal bidden voor hem in de ogen van de Heer, en hij zal worden vrijgelaten uit een van die dingen die hij deed toen hij zondigde.
+Met kant en wat frutsels en zo.
+Zo'n ding waar je plannen op bevestigt.
+Maar Ed was niet de enige die gek werd van die dingen.
+Dit soort dingen laat ik aan mijn studenten zien, want het is een complete verbastering -- een ontkenning van de wetten van perspectief.
+Nou ja, dat is een van die dingen die je niet al te serieus neemt.
+Nou ja, het was zo'n situatie...
+Dat is zoals één van die dingen die we haten.
+Ik heb (lang geleden, dat wel) veel gewindsurft en dus was kitesurfen altijd al een van die dingen die ik nog eens wilde proberen.
+Dit is één van die dingen waar we het niet echt over hebben waar we het over hebben, niet?
+Weet je, ik dacht er over het zelf te gaan doen, maar ik denk dat het een van die dingen is waarmee je moet beginnen als je jong bent.
+Hoe lang zou het duren voor zoiets scherp is?
+Het klinkt als sciencefiction, maar het is nog beter omdat het echt is.
+Zoiets blijft maar rondtollen in je hoofd.
+Ze dwongen me te scheiden.
+Maar al is dat zo, ik zal voor eeuwig vervloekt zijn... als ik een van m'n medestanders... zo'n ding op een medemens laat richten.
+Concentreer. Misschien is dit een van die dingen waar je zo vaak gelijk in had.
+Sommigen van jullie hebben misschien dezelfde ervaring gehad. Het was een van die dingen - het heeft geen uren en uren tijd gekost om pijnlijke, strategische plannen maken.
+Dat doe ik nooit voor de middag, schat. Tot kijk.
+Als je je dus sterk hecht aan een van die dingen alsof het van jezelf is, dan zul je de straf ondergaan die past bij iemand die verlangt naar wat van een ander is.
+Maar ik zal je dit zeggen. Als ik oud en grijs ben... zal de vorige zomer een heel erg mooie herinnering zijn.
+Dit is niet iets wat je kunt rechtzetten zoals je strik.
+Het is iets dat mensen raakt. Heb ik gelijk?
+De meeste kwekers die hun sappige, fantastisch grote kelken zien zwellen en rijpen zullen aarzelen om zulke toppen te verkopen en het beste van Jack Herer wordt dikwijls bewaard voor een selecte groep vrienden - een voorbeeld van een van die dingen die niet met geld te koop zijn.Een eigenschap die alle Jack Herer fenotypen bezitten is een verbluffende tweezijdige sterkte: een stratosferisch cerebrale high, ondersteund door een adembenemende body-buzz met seismische kracht.
+Dit is iets wat ik zelf moet uitzoeken.
+Hij was in het huis.
+Het is iets wat niet zou gebeuren als de wereld bij z'n volle verstand was.
+Nee, dat is er nooit van gekomen.
+Eén van die dingen heeft twee kogels in mijn vaders borst geschoten.
+Ze maakte een lijst van de weinige dingen die nog steeds haar het gevoel maakte kalm en gelukkig en een van die dingen was haak zodat ze haar weg naar betere dagen haakwerk. Rachel deelt veel plezier tutorials en projecten op haar blog.
+In het voorstel voor een richtlijn van de Raad tot wijziging, voor een derde maal, van richtlijn 76/768/EEG waren zoveel fouten dat de Commissie het voor verbetering moest terugnemen.
+Dat is één van de dingen waaraan je niet mag denken.
+Is één van die dingen de hogere macht?
+Het is gewoon een van die dingen waar een mens mee te maken heeft, alleen.
+Een van die dingen is dat van nu af aan verkrachting voorgoed als een oorlogsmisdaad beschouwd moet worden, waarvoormen voorde interna tionale gerechtshoven rekenschap moet afleggen.
+Eén van die dingen kost nogal wat tijd.
+Misschien heeft het zo'n ding dat...
+Hoe dit licht wordt veroorzaakt, behoort tot de dingen die de wetenschap nog niet volledig begrijpt.
+Het is één van die dingen die onverklaarbaar zijn.
+Wil je dat we een van die dingen aan boord van het schip brengen?
+Heerlijk toch, naakt in zo'n ding?
+Ik ben straks ook zo'n ding.
+Dit is een van die dingen dat je er van houdt of dat je gezond bent.
+Toch niet zo'n ding waar een vent in het beeld springt om je bang te maken?
+Dat is gewoon niet hoe ik ben.
+Dit is één van die dingen waar erover praten het slechter maakt.
+En ik wil dat je iets voor ze maakt een van die dingen om ze te beschermen.
+Zoiets komt in elke generatie één keer voor.
+Wel eens zo'n ding zien werken?
+Of is dat één van die dingen die iedereen stiekem haat?
+Het zijn van die dingen, waar je maar beter, niet over na moet denken.
+Ik denk dat het één van die dingen is als je samen opgroeit.
+Het is iets waarvan je denkt dat het nooit meer gebeurt.
+zulke dingen vergeet je niet.
+Iedere keer toen één van die dingen mij aanviel, ging dat rode licht aan.
+- Ik zag u nergens. En ik dacht dat u zou willen dat ik dit zelf afhandelde.
+Iedereen kijkt naar een vrouwelijk SecNav zonder militaire ervaring, ze vragen zich af of dit een rol zal spelen.
+Dit is één van die dingen die gebeuren als je hier woont.
+Dat is nou weer zo'n misvatting.
+Verslagen. Alles wat je je vrouw niet aan wilt doen.
+Het is één van die dingen die je moet doen.
+We hebben amper genoeg mensen om een van deze dingen te doen, laat staan alle drie.
+- Dat jullie seks hadden in zijn rolstoel?
+Er zijn dingen die we zullen niet herinneren, En gevoelens zullen we nooit vinden Het heeft zo lang geduurd om het te zien, Omdat we nooit leek de tijd te hebben Er was altijd wel iets belangrijkers te doen, Belangrijker zeggen Maar 'ik hou van je "was niet een van die dingen, En nu is het te laat Weet je nog?
+Nee, die dingen gaan allebei niet gebeuren.
+Er wordt nog steeds op ze gejaagd. Ik hoop dat ze niet uitgeroeid worden, maar dit is net zoals met de ijsberen.
+Of één van die dingen kregen haar te pakken.
+Hier kun je je niet op voorbereiden.
+Ik denk dat het iets is dat andere mensen intimideert.
+Overzichten maken is zoiets... als masturberen of tanden flossen. Je weet dat ik het doe, maar ik wil niet dat je het ziet.
+Vermits dat elk van die dingen vereist van jou, geduld, concentratie, opoffering.
+Dus dit alles is over een van die dingen die je ziet, Clyde?
+Jullie denken natuurlijk dat ik nee zeg omdat ik wil dat jullie gaan smeken.
+Heb jij nooit het gevoel dat dit zoiets is wat niet mag gebeuren ?
+Ze zullen je niet één van die dingen geven zodat je kunt gaan vissen.
+Een van die dingen in die gang?
+Zo'n ding waar fooien in bewaard worden.
+Een van de dingen die ik in je bewonder.
+Eén van die dingen is bijdragen tot een zaak die groter is dan jijzelf.
+Eén van de twee is veel makkelijker.
+- Ted, zij is een tiran... zij heeft jouw ballen aan zo een dingetje... die heen en weer gaan, weet je wat ik bedoel?
+Rits het dicht voordat ik één van die dingen over je mond bind.
+Het was zo'n moment met veel mensen, zoals Small, Sean, Tay, die ik allemaal al een tijd niet had gezien.
+Afluisteren is een van de zaken die bij onnodige, ongepaste en onevenredige toepassing voor de staat een wapen wordt, in plaats van een instrument ter bestrijding van de georganiseerde misdaad, wat zeer belangrijk is in Bulgarije en elders in de Europese Unie.
+Ja, een van die dingen die je niet aan de persoon van wie je houdt moet vertellen om ze te beschermen.
+Jij hebt één van die dingen op je voorruit?
+Want nu ben ik een van die dingen die de nacht verstoord.
+Als redsters van de onschuldigen staat dit ons wel vaker te wachten.
+Het is zoiets wat je zegt als je ophangt.
+Liever vroeger dan later dat ik die dingen nooit meer zie.
+Ik heb een beslissing genomen, ik wil niet een van die dingen. tegenover me hebben staan als ik mijn laatste adem uitblaas.
+Hij had al eens op zo’n ding mogen spelen bij Jonas thuis, en dat vond hij zo cool dat hij er ook één wou hebben.
+Hier is nog iets wat bleef hangen.
+Een van de dingen die je lekker vindt.
+Een van die dingen die je leven doet veranderen.
+Maar ik kan je vertellen, dat angst, een van de dingen is in deze Wereld, die zonder enige twijfel bewijzen, dat je werkelijk leeft.
+Een van die dingen kwam in de beveiligingsruimte en vernietigde alles, dus de beveiligingscamera's zijn nutteloos maar ik heb iets beters.
+Maar dat was gewoon iets wat ik zei...
+Toen ik je de eerste keer zag, had je een van die dingen in je hand.
+Dit is een van die dingen die besproken moeten worden.
+Je bent één van die dingen uit dat ruimteschip
+Als een van hen hier komt trekken we ons hier terug... en blokkeren we de deur.
+Helaas is een van die dingen die veel gebruikers denken dat het nooit zal gebeuren.
+Ze is niet een van de dingen die die gemakkelijk in een gesprek opkomen.
+Weer één van die dingen.
+Echt? Heb je toevallig zo'n ding bij de hand?
+Wie verantwoordelijk is. Verantwoording ligt in het algemeen bij de leidinggevenden.
+Natuurlijk, is dit een van die dingen die wij kunnen alleen adviseren u op.
+En één van die twee gaat terug naar Pocaju zonder de andere.
+- Maar? Voor elke larve in zijn longweefsel zijn er tien eitjes die moeten uitkomen.
+Ik had niet op Adam gerekend toen ik CatCo oprichtte.
+Maar zo gaan die dingen. Zij gingen uit elkaar, wij kwamen tot elkaar.
+Ja, maar ik kan niks als zo'n beest aanvalt.
+Dat klinkt als of jullie dit soort dingen om de paar maanden hebben.
+Iedereen wil geliefd zijn en je weet niet of je het echt voelt. Net als bij je ouders is het zoals het is... want je groeit er in mee, maar als je het echt ervaart met iemand anders... buiten die omgeving.
+En één van die dingen is de behoefte om ons te verbeteren.
+Het is een van die dingen die gewoon gebeuren.
+Laat dit niet iets zijn waarbij je weggaat en ik loop te schreeuwen op straat.
+Sabine had één van die dingen verstopt onder haar bed als een lelijke smerige secreet.
+Hij weet dat ieder onderdeel daarvan onderhandelbaar is tot op een honderdste van een procent.
+Ik zoek zo'n ding dat alles bijhoudt...
+Dat kan gebeuren... als je er te veel mee koopt.
+Het was een van die lessen waar ze er een beroemde chef bijhalen, waar ze een paar eieren en een fles wijn opentrekken.
+Als hij ontslag genomen of gekregen had. Maar dat is allebei ondenkbaar.
+Hiertoe behoorde onder andere de opstanding der doden.
+De vlucht van de mensapen door Cheerland is één van die dingen die niemand kan omschrijven.
+- Ik heb daar alleen maar over gelezen.
+Ik snap het, het is dus net zoiets als Bigfoot en het monster van Loch Ness.
+is dat ook één van die dingen die een beetje uit de hand liepen?
+Ze hebben het er nooit over gehad in Sex Ed, en ik kan 't weten. Bedankt.
+Ik kon er zo een zien vanwaar ik vroeger woonde.
+Het was mooi maar het was iets tijdelijks
+Maar ik denk dat dit een van die dingen als "letterlijk,"
+Zo'n feest... waar men wat grappigs over me zegt voor de zaal.
+Wat is dit, één van die dingen die tante Martha moest dragen?
+Het is gewoon een van die dingen, als je een man ontmoet, plaats je hem in een categorie - ja, nee of misschien.
+Wat doen we als er daar zo'n ding zit?
+Een van die dingen kroop zo uit de bron.
+Dat was een van die dingen die 'm probeerde te imiteren, Garry.
+Geen paniek, ik moet toch iets kunnen maken met de rotzooi uit mijn bureau.
+Met een zenuwinzinking krijg je geen beurs voor Vassar.
+Dat kan natuur lijk gebeuren, iedereen maakt wel eens een fout.
+Ik kan niet geloven, dat je een van die dingen hierheen gebracht hebt.
+Ze vielen zo'n ding aan.
+Poker uitspraken zijn slechts een van die dingen die zijn moeilijk om zin van te maken. Maar misschien geen uitspraak kon ooit in de buurt komen van de ene Daniel Negreanu over Tweeted tijdens Dag 2c van het 2012 WSOP Main Event, een hand die blijkbaar vond plaats tijdens een cash-game in het Rio.
+Je bent dood, en je wordt net zoiets als die dingen buiten.
+Ik heb deze dingen in geen jaren gezien.
+Ongelooflijk hoeveel hitte zo'n kaars afgeven kan.
+Je zou er vegetariër van worden.
+Zelfs op topsnelheid zou zo'n schuit 3000 jaar over zo'n afstand doen.
+Ze laten me daar niet zomaar binnen.
+En, ik denk dat een van de dingen gewoon is dat ze niet zeker is waar precies je excuses vandaan komen.
+Als ik alles nog een keer over zou kunnen doen... zou ik al die dingen met je willen doen.
+Vroeg of laat is dit weer één van die dingen... die je weer opgeeft.
+Een van die dingen die je weet, maar weet dat je het niet weet.
+En dit is een van de dingen waar -- de ideale communistische staat kwam er nooit, aangezien het nogal moeilijk is om te weten waneer je er bent. En wat er dus gebeurt in een leninistische staat is dat deze voorhodepartij, die meestal de communistische partij werd genoemd, in een constante staat van revolutie verkeert. Het is alsof ze zouden zeggen:
+Ik denk dat zelfvertrouwen een van die dingen is waarvan mensen niet kunnen vertellen dat je het hebt of alsof doet, net als een vrouwelijk orgasme.
+Het ging zo. Ik had getraind en toen gedoucht, maar niet lang genoeg.
+Schiet je nog wel 's?
+Ik zag zo'n ding eens in Washington autorijden op Independence Avenue.
+- Eén van de wezens neemt er een bad.
+Het is iets waarvan je denkt dat het nooit meer gebeurt.
+Het is een van die dingen die je denkt,
+Het kan niet over de telefoon.
+Wat je net voorbij zag komen was een onbemand Raventoestel, uit de hand te lanceren.
+Niet te geloven dat ik aan 't duimen ben voor zo'n mormel.
+Kun je het niet uitleggen?
+Als je mij niet kan redden,..
+Ik weet dat het tijd wordt om al gauw te gaan, maar dit "levend worden" is een van die dingen die zo dichtbij en toch zo ver weg voelen.
+Nog iets wat blijft hangen.
+Is dat zo'n ding dat landmeters gebruiken?
+Maar desondanks, is er, weet je... het is een van die dingen waarbij je wacht tot je hart weer gelijke tred houdt met je verstand.
+Welk van die dingen past niet in het rijtje?
+Dit is iets wat hoort bij het leven van een misdaadbestrijder.
+We weten dat mensen normaal kunnen praten en doen... en toch nog steeds zo'n ding in hun hoofd hebben.
+Dat is een van die dingen die je niet van te voren weet.
+Laat staan hoe we zo'n ding weer uit iemand moeten krijgen.
+Het is iets wat mensen zeggen... Je kunt niet verder tenzij je het verleden loslaat.
+Dit is zo'n moment waar ik al spijt van heb.
+" Samen met de Grote Muur van China," zei VS ambassadeur Hill, "is de Amerikaanse ambassade in Bagdad een van die dingen die je kunt zien met het blote oog vanuit de ruimte. Ik bedoel, het is enorm." [32] Inderdaad. Op 104 hectare is het de grootste Amerikaanse ambassade ter wereld.
+Zo'n ding gaat dwars door de RHlB.
+Heb je ooit met zo'n ding geschoten?
+Zo niet, dan komt dat nog wel. Zoals jij dat doet.
+Het voelt echt goed.
+Hoe is het als er zo'n ding je hersens binnengaat en je beheerst?
+Geloof me, ik ben één van de eersten die één van die dingen neerknalt.
+Misschien is het iets waarbij je... het karakter zo lang kent en dan zie je iemand in het echt en het valt niet samen.
+Een van die dingen die ik pas later ZELF heb mogen ervaren en hervinden is het feit dat je een menselijk leven op kunt delen in periodes van steeds 7 jaar, dit is dan ook de reden, waarom ik dit dan ook EXPRES zo verweven heb in de onderstaande links.
+Is één van die vragen over je voorliefde voor jus d'orange? Nee.
+Ik voel geen van die dingen met haar.
+- Ik wilde niet nieuwsgierig zijn... maar er zaten spuiten, een bloeddrukmeter en flesjes in.
+Curtis... hoe kunnen we zo'n ding uit iemand halen?
+Heb je ooit met zo'n ding geschoten?
+Dit is net zoals met ijsberen. Ik wil ze zien voor ze er niet meer zijn.
+Ik hoop dat het zoiets is dat hij bewusteloos is... gedurende het hele proces en daarna wakker wordt en speelgoed krijgt.
+Ze is een van hun nu, of dood.
+Hij kreeg er een ster voor.
+De volgende keer dat.. je weer bij zoiets in de buurt bent is het waarschijnlijk na sluitingstijd, en zijn alle knappe mannen toch al naar huis.
+Ooit gestruikeld over die dingen in het donker?
+Ehm, ik weet niet of iemand van jullie er ooit al eens een heeft horen spelen.
+En dan word ik één van die dingen, zittend in 'n kooi.
+Een van die dingen die je niet aanraakt.
+Kerken vieren sprookjes... beschermengelen, beschermheiligen... maar begraafplaatsen bevatten bewijs... dat niets van deze dingen je kan besparen van het onvermijdelijke.
+''Updaten van programma´s is een van die dingen waarvan we weten dat we zouden moeten doen, maar waar we ons waarschijnlijk geen zorgen over maken totdat er een probleem is met een programma.
+Slapen met een prostituee?
+De een is wetenschap, de ander fantasie.
+Zoiets kan gebeuren.
+We moeten zo'n ding vangen om erin te geraken.
+Want als zo'n ding hier komt, is het gebeurd. Dan kunt u al die flauwekul die u zo belangrijk vindt ook vergeten.
+Als een nieuwe taal leren is een van die dingen die je wilt doen, dan zorg ervoor dat u realistische verwachtingen voor jezelf. Er is geen "magische formule" om een taal te leren overnachten.
+Als je z0'n ding ziet moet je meteen schieten.
+Met het geluid dat zij maakt, komen ze straks allemaal op haar hoofd vallen.
+Dat zeggen volwassenen om de kleintjes rustig te houden.
+Is dat weer zoiets waarvan je hoopt dat Christine er niet achter komt?
+- Hij had zo'n ding in z'n oor.
+- Als er één met Hammer afgaat, moet ik kotsen.
+Om zo'n ding in je te hebben dat controle over je heeft.
+Is God daar één van?
+Heb je zo'n kartonnen ding bij je?
+Is dit echt een bloemisterij of is dit zo'n geval waarbij ik meespeel zodat u weet dat ik 't weet?
+Misschien hebben ze bij de crash zo'n beest geraakt.
+5:17 Als een ziel zal gezondigd hebben door onwetendheid, en zal gedaan één van die dingen die de wet van de Heer verbiedt hebben, en, schuldig zonde, begrijpt zijn ongerechtigheid,
+Kennelijk behoort tijd tot de dingen die alleen God volledig kan bevatten, want alleen hij is „van onbepaalde tijd tot onbepaalde tijd ”. — Psalm 90: 2.
+Geen zorgen, het gaat niet zo zijn dat jij hem afkraakt en dat we dan weer terug bij elkaar komen.
+Ik weet zeker dat ik er een van altijd voel.
+Dat er zo'n ding in het noorden is dat kan vliegen.
+Is dit niet zoiets waarvan we gezworen hebben dat het niet zou gebeuren?
+22 jaar bij de politie en ik heb dat ding nog nooit gebruikt.
+Dat is een van die dingen die uit de stilte tevoorschijn kwamen, het naar elkaar luisteren.
+Kan er zo'n ding in mijn hersenen groeien?
+En als je een van die dingen kon kiezen boven het andere, Welke zou je dan kiezen?
+Poker uitspraken zijn slechts een van die dingen die zijn moeilijk om zin van te maken.
+Florida ga je gewoon moeten vergeten.
+Weet je, van zo'n trein raken is moeilijker dan erop geraken.
+Wat is dat? O, dat is om sleutels terug te vinden.
+Dan is dit gewoon iets wat we moesten doen.
+En nu zou ik eigenlijk alles van tafel moeten vegen en jou erop gooien.
+Het is zo'n ding waardoor Jackson's vader stierf.
+Eén van die dingen die je niet meer wil doen?
+Weet je hoeveel die dingen wegen?
+Kunst is een van die dingen die mensen al heel lang doen.
+Dat is gewoon een van die dingen die juist is op deze manier.
+Ze heeft zo'n ding om haar nek die normaal gesproken een regisseur heeft.
+Dit is een van die dingen die slecht lijken maar eigenlijk goed zijn.
+Dat is geen ven beiden waar.
+Oké, dus, uh... dit is zo'n situatie dat ik iets ga zeggen... en jij je een klotezak gaat voelen. Maar voel je niet zo, oké?
+Het Verdrag van Rome en de Europese Akte zijn geen blauwdruk van een Europese superstaat.
+Nou, ondanks het feit dat ik een van die dingen in me heb verdomd lekker.
+Het is één van die dingen die iedereen ziet, behalve zijzelf.
+- Gaat wel, maar naast die van mij ben je net zo'n geval uit de grond in The Lord of the Rings.
+Zoiets als die dingen daarbuiten?
+Of is dit weer zoiets dat ik nooit zal begrijpen?
+Alleen hoefden jullie geen moord op te lossen.
+Één van die dingen is benzine tanken.
+De gedachte om zo lang opgesloten te zitten in een van die dingen, bezorgt me de griezels.
+Een paradox? Een van die dingen die het heelal kunnen opblazen?
+Dat krijg je er niet makkelijk af.
+Weer zoiets wat je onderweg leert.
+Emma komt haar hele leven niet meer op zo'n ding.
+Het is één van die dingen die we hebben geleerd tijdens de techniekles in groep 7.
+Kira weet één van die twee noodzakelijke dingen niet over mij.
+De Sativa fenotypes van Jack kunnen ook een goede opbrengst per meter of per plant produceren wanneer ze vakkundig worden gecultiveerd, hoewel het niet gebruikelijk is dat deze plant commercieel verkocht wordt. De meeste kwekers die hun sappige, fantastisch grote kelken zien zwellen en rijpen zullen aarzelen om zulke toppen te verkopen en het beste van Jack Herer wordt dikwijls bewaard voor een selecte groep vrienden - een voorbeeld van een van die dingen die niet met geld te koop zijn.
+Als je weet hoe je zo'n ding moet programmeren, zodat het een programma opneemt als je zit te eten, hoor ik dat graag.
+Ik heb één ervan gedaan toen ik 12 was, tijdens een baseball wedstrijd.
+Dat klinkt helemaal niet goed.
+Zoiets wat Franny heeft?
+Aha, ik heb het! O jee dit is net als zo'n ding op de kermis.
+Had ze zo'n beest in haar?
+Eén van die dingen werd 30 keer geraakt en liep toch door.
+- Ik moest het gewoon proberen.
+Je hebt ook zo'n ding in mijn horloge gedaan, hè?
+Normaal doen de mensen dat graag.
+Ik denk dat het een voorbarende conclusie is maar het is een soort, in zeker zin, ik bedoel het lijkt alles dat je daar ziet, te reduceren, al die films en materiaal, soort van reduceert het op een listige manier.
+Ik heb dabbled in haak hier en daar en het is altijd geweest dat een van die dingen die ik van plan om erachter te komen … Someday. Vele andere ambachten kwam altijd eerst echter.
+Zoals Reuben forceert dat zijn baby een Linda is terwijl echte Linda's moeten rijpen, zoals die dingen die aan planten hangen.
+Ik zeg je, ik lees een van deze schijtboeken in één nacht uit.
+Ik dacht dat je zo maar wat zei.
+Dit is één van die dingen, waar ze eten mee naar boven stuurde.
+Dat valt niet uit te leggen.
+Ik weiger om me voorstellen dat jij ook een van die dingen hebt.
+Daar tekende iemand iets op een whiteboard.
+Nee, je vertelt me weinig de laatste tijd.
+Maak me nu niet tot iets dat de dingen alleen maar erger maakt.
+We hadden toch iets moeten vinden, maar niks.
+Het is een van die dingen die je moet zien om te geloven.
+Een, ik ben niet meer een van die dingen meer, dus gooi me niet meer op een hoop met ze.
+Je moest er naar kijken en het over je heen laten komen.
+Dacht je echt dat ik zo stom was om zelf ook zo'n implantaat in m'n hoofd te stoppen?
+Zit er zo'n ding achter m'n schip aan?
+Maar dit moest ik gewoon weten.
+Dat is een van die dingen die ze je nooit vertellen als je getrouwd bent?
+Weet je nog wat een van die dingen met je deed?
+Dat is een van de dingen die ik doe.
+Er waren tien kunstenaars gevraagd mee te doen, en er was veel concurrerentiestrijd en ik wilde niet afgaan. Ik heb er dus heel hard aan gewerkt.
+Zo bedoel ik het niet. Dat zeggen mensen.
+Een van die dingen is de enorme Blog Tour door haak land gehost door Crochetville. Ik gedeeld enkele van de vroege posten uit die in het oorspronkelijke artikel, maar ik dacht dat ik zou geven u een update op twee dozijn leuke dingen in haak die zijn geboekt op dat tour sinds, inclusief gratis haak patronen, Tutorials en meer.
+Zag er uit alsof een van die dingen...
+Maar dat was gewoon iets wat ik zei... Terwijl ik eigenlijk iets anders bedoelde.
+Ik mag je echt en ik wil niet afgestreept worden als een van de zaken op je to do lijst.
+Hoezo, zelfs met die kraan krijgt u één van hen niet naar buiten.
+Dus je hebt 't uitgemaakt met ' m. Wil je nu weten wat ik ervan vind zodat ik voor paal sta als je 't morgen weer goedmaakt met hem?
+Dit is gewoon één van die dingen waar hij niet mee ophoudt.
+Ik ben geprogrammeerd om mensen met één blik te doorgronden. Ik weet wat je wilt, voordat jij het weet.
+Is dit zoiets waar ik blijf vragen en jij nee blijft zeggen?
+Het was zoiets dat je nooit vergeet, want het gebeurt niet vaak dat je een land binnenkomt dat zichzelf net bevrijd heeft.
+Mike Harness aan de lijn. - Laat maar wachten. Ga verder.
+Aan dit soort dingen denk je later lachend terug.
+Het is echt zoiets...
+Dat gebeurt maar een keer... op de miljard vliegkilometer.
+Ik vond het op dat moment wel goed klinken... maar ik stond in de lift en ik wist het ook niet.
+Er bleek van die dingen maar eentje waar te zijn.
+We hadden 't liever niet ontdekt.
+Maar als je hen vraagt over hún onderwijs, dan nágelen ze je aan de muur. Want het is één van die dingen… dat mensen raakt. Heb ik gelijk?
+En ik heb een vijs-verwijderaar en een ding waar je mee hamert.
+de Champagne, Michelet, Daubigny, Ruysdael, Jacque Dit is een van de dingen die ons langzamerhand ‘droevig maar altijd blijde’ maken; & dat moeten we worden.
+- Niemand. Ik dacht dat ik het zou vergeten.
+Ja, ik kan de plek in de fik steken. Maar zodra een van die dingen wakker wordt en schreeuwt Dan vliegen ze alle kanten op.
+Misschien is ons universum slechts één van die dingen die af en toe gebeuren.
+Geen, het is zo één van die gevallen waarin je me gewoon zal moeten vertrouwen.
+Het was een van die dingen waar je zo van schrikt dat je er nog jarenlang aan denkt, aan hoe een gezinsleven in één klap kapot kan worden gemaakt door zoiets oliedoms.
+Zoiets zou nooit mogen gebeuren... maar helaas, het is gebeurd.
+Dat is een van die dingen die je zegt waarvan je hoop dat niemand er op in gaat.

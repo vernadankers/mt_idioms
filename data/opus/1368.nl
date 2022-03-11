@@ -1,0 +1,1 @@
+Hij had dan me teken op de stippellijn voor een opgeblazen prijs van een "regelmatig" lidmaatschap (ja, Het was eigenlijk meer dan zelfs een gewone lidmaatschap zou hebben gekost), ending up about 4 en 5 maal zoveel als het Vitality gebaseerde lidmaatschap.

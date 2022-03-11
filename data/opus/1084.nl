@@ -1,500 +1,500 @@
-Of vermoord...voor eens en altijd.
--Voor eens en altijd!
-Voor altijd.
-- Voorgoed.
-Onderwijs en scholing
-Het is voorbij.
-Het voor eens en voor altijd bestrijden.
-Ik wil graag een ding weten:
-Laten we dit natrekken.
-Versla hem voor eens en voor altijd.
-Dat heb ik eens en voor altijd besloten.
-Luister naar me. Voor eens en altijd.
-Maak voor eens en altijd een einde aan deze schijnvertoning.
-Morgen.
-Voorgoed, stop met deze sentimentele onzin.
-- Zo kan je voorgoed weg uit Lisieux...
-Daar moet nu eindelijk eens voorgoed verandering in komen.
-Laten we dit maar meteen uitvechten.
-Begrijp me nu toch voor eens en altijd.
-En zorg dat je ze voorgoed kapotmaakt.
-We maken hier een eind aan.
-Ze zetten alles voor eens en voor altijd recht.
-Jij kan dit voor eens en altijd oplossen.
-We gaan er nu voor eens en voor altijd een eind aan maken.
-Ze moest tekenen.
-Laten we ze voor eens en altijd stoppen, meiden.
-Ik ben me bewust van de goede wil van mevrouw Figueiredo, van de Commissie en in het bijzonder van de commissaris, mevrouw Diamantopoulou, maar ik herhaal nog eens wat ik al in de Commissie werkgelegenheid en sociale zaken heb gezegd: we moeten stoppen met programma' s die sociale uitsluiting bestrijden.
-Ray, jij hebt het bewezen, voor eens en voor altijd.
-Dan kunnen we terugkeren. Voorgoed.
-Maar dat is nu afgelopen, voorgoed.
-Ik verlang een bepaalde beslissing.
-Ik wil graag dat u daar voor eens en altijd akte van neemt! (')
-En ik ga het voor eens en altijd afmaken.
-Dan kun je weg bij die kleuterschool.
-Hoe kan vooroordeel eens en voor altijd overwonnen worden?
-Het zal die slaapvloek voor altijd verbreken.
-Om helder te kunnen denken?
-Tijd om hier een eind aan te maken, Finch, Voor altijd.
-- We maken hem af... voor eens en altijd.
-Will Schuester, ik zal je voor eens en altijd vernietigen.
-"Stop deze vete voor eens en altijd."
-Wij moeten dit hoofdstuk nu echt sluiten.
-Als je achter hem aan wilt rennen en je leven voorgoed door de wc wil spoelen.
-Daarom willen we de kwestie definitiefin het reine trekken.
-Christina moet voor eens en altijd met Jesse afrekenen.
-Voor eens en altijd, dit is 'n professionele eenmalige relatie.
-Die verlossing wordt voor eens en altijd gegeven.Deze is voor eeuwig veilig gesteld.
-Ik ga er korte metten mee maken.
-Ik hoop dat er voor eens en voor altijd een einde zal komen aan deze arrogante houding.
-We gaan dit eindigen, voor eens en altijd.
-Dat mag je niet verraden. Machk, laat ze gaan.
-Ik ga hier een einde aan maken.
-Dyslexie Eczeem Hooikoorts Er moest een einde aan komen.
-De munchers in deze stad voorgoed uitschakelen.
-En ik ga het voor eens en altijd uitzoeken:
-Aan de basis van het buitenlands beleid moet de volledige eerbiediging van de mensenrechten in al haar facetten komen te staan.
-Of we kunnen dit beëindigen, Lucy, nu, voor eens en altijd.
-Hoe zou je het vinden om rijk te worden, voor eens en altijd? .
-Ik wil graag openhartig met je spreken.
-Voor ze voorgoed een einde maakt aan het leven.
-En daar moet je een keer overheen.
-En Israel zal voor eens en altijd haar nucleaire programma erkennen.
-Laten we die poppenkast beëindigen voor eens en altijd?
-Nu gaan we dit eens even uitvechten.
-Het voelt raar om voor eens en altijd echt naamloos te zijn.
-We lossen het voorgoed op.
-Hij wilde de Gerhardts voor eens en voor altijd uitroeien.
-En nu ga je er voor altijd aan.
-Wat zou jouw huwelijk definitief doen instorten ?
-Je kunt deze keten van misplaatste loyaliteit voor eens en altijd breken.
-Misschien moet hij... een lesje leren... voor eens en altijd.
-Scott Tenorman gaat eraan.
-Éénmalige heffing op nieuwe bet drijfs- en kantoorruimte
-Samen met belofte om de Iraanse dreiging voor eens en altijd te beëindigen.
-De top van ordehandhavers is voorgoed verenigd.
-Ik wil duidelijkheid. Ik moet weten hoeveel ie om me geeft.
-Het wordt tijd dat we voor eens en altijd afrekenen met die Druïden.
-En om voorgoed een einde te maken aan het hoofdstuk Levani Jordania.
-Ik wil één voorbeeldje aanhalen.
-De terroristen leven allang in de twintigste en de eenentwintigste eeuw.
-Dan zullen we eens zien wie hier werkelijk de baas is.
-Dan kunnen we dat verrekte ding voorgoed buiten werking stellen.
-En vertel haar eens en voor altijd wat je voor haar voelt.
-De tijd is gekomen, om voor eens en voor altijd af te rekenen met dat tuig. Om ze voor eens en voor altijd uit te roeien.
-Ik denk dat je Dave alleen voorgoed wou afschrikken.
-Wickham moest hem dus een halt toeroepen, hetgeen hij deed ... .. eens en voor altijd!
-Nou ja, een leuk bedrag, waarmee we dit achter ons kunnen laten.
-Laten we ons in vredesnaam bevrijden van de onwetendheid omtrent giftige stoffen.
-Je zult de stroom eens en voor altijd vergeten.
-Het is tijd om deze kinderen, voor eens en altijd, op hun plaats te zetten.
-Laat het voor eens en altijd worden gezegd, kan WordPress alles doen.
-Dat willen wij nu definitief verbieden.
-Ik zeg het je nog één keer, ouwe.
-Leun achterover in onze armen en je ziet het voor eens en altijd.
-Om voor eens en altijd te weten te komen... wat er in John Aldens hart is.
-Ik wil dat die verrekte Maltese broers voor eens en voor altijd verdwijnen.
-Het is tijd dat we de grote oliemaatschappij uitschakelen.
-"Eens en voor altijd: wij zijn geen naïeve vrijhandelaars.
-Dat wil zeggen: de benoeming en het politieke optreden van de Commissie berusten inmiddels niet langer uitsluitend op het vertrouwen van de Raad, maar ook, in beslissende mate, op het vertrouwen van het Parlement.
-Dit is een kans om de moordenaar uit z'n tent te lokken.
-laten we ons gevecht hier in de menselijke wereld afmaken eens en voor altijd.
-Dat geloof ik niet, laat dat voor eens en altijd duidelijk zijn.
-Ik heb een manier waarop we Jimmy voor altijd kunnen kwijtraken.
-Gebruik de verwijdering gids hieronder en verwijderen Number Ascend eens en voor altijd.
-Ik ga een einde maken aan onze sluwe tegenstander voor eens en altijd.
-Het is tijd om haar voor eens en voor altijd uit de weg te ruimen.
-Ik zou dus heel graag willen dat wij ons eens afvroegen of we deze praktijk niet gewoon moeten afschaffen, en wel definitief.
-Want ik wil nu dat het voorbij is.
-Eens en voor altijd, ga je akkoord met het huwelijk dat je vader geregeld heeft?
-Laten we het dus eerlijk spelen en voor altijd oplossen.
-De enige absoluut veilige oplossing is het eens en voor altijd stabiliseren van het kwik.
-Activeer de desintegrator, dan is dit snel achter de rug.
-Trouwens, het is een prima manier om voorgoed van hem af te zijn.
-Het systeem dat eindelijk korte metten maakt met gas en olie.
-Dan moeten we ze voor altijd laten zien dat hij geen god is.
-Ik verwacht dat je met die onzin over Bennie voor eens en altijd stopt.
-Zorg dat we van haar afkomen.
-We moeten voor eens en voor altijd afrekenen met Eduardo.
-En daardoor kon Christus opstaan en het geopende graf eens voor altijd achter zich laten!
-Het is heel belangrijk dat we ons standpunt voor eens en altijd duidelijk maken.
-En ik vraag u om toestemming dit af te wikkelen, voor eens en altijd.
-En zeg ook maar dat ik eis dat ze me met rust laat.
-In 2001, het televisieseizoen van september 2001, legt humor het definitief af tegen oordelen.
-We moeten hem snel vinden en doden, voor eens en altijd.
-Ik gebruik de krachten van de Tijd Vanger om de Justice League voor altijd te verslaan.
-We zullen dit voor eens en voor altijd oplossen.
-En als het antwoord nee is, laat ik je voor altijd met rust.
-En het is sterk genoeg om de illusie van dualiteit voorgoed te doen verdwijnen.
-De nieuwe Versie X upgrade moet de concurrentie voor eens en altijd de mond snoeren.
-We hadden dit dienstpistool nodig om de gemene agent te doden en de losse eindjes aan elkaar te knopen.
-In ‘Pubers Bestaan Niet’ verbrandde ze Barbie-poppen en analyseerde wat anderen dachten.
-We moeten de Goa'uld voorgoed ontmaskeren.
-Misschien moet je gewoon eens afrekenen met Henry... voorgoed.
-Volgens wat er geschreven staat, kunnen we voorgoed de kinderen van God worden.
-Ik heb een idee hoe we dit probleempje gaan oplossen... voor eens en altijd.
-Het zou voor eens en voor altijd duidelijkheid geven... om jou gelukkig te zien met iemand anders.
-We moeten de huidige regelingen dringend ontdoen van procycliciteitseffecten.
-Ik geef jou Duncan. Jij geeft Kira op. Dan zullen wij voor altijd verdwijnen.
-Wij willen benadrukken dat het. voor een goed functionerende wereldwijde concurrentie in de scheepsbouwsector van het grootste belang is dat deze sector ook zonder overheidssubsidies kan werken.
-Vervolgens offert hij zichzelf op om ook Zanon en diens schip te vernietigen.
-We dachten dat we voor altijd van hem af waren. Het monster, Vlad Kossei.
-Dan moet je nu beslissen, voor eens en altijd, wat het is wat je wilt.
-Laat me nu eens eindelijk met rust.
-We moeten ons voordeel doen met deze situatie.. en de Galactica voor eens en voor altijd uitschakelen.
-Ze zouden hem toch niet kunnen doden, denk je?
-Ik stel voor dat Pompeus legioenen krijgt om dit probleem aan te pakken.
-Ik wil stoere, begrijpelijke ideeën, die het stropersprobleem voor altijd oplossen.
-We kunnen onze kracht verenen en hier een eind aan maken.
-Supersnelle treinen zullen ons van de ene grote stad naar de andere brengen, maar het zal onmogelijk worden van provincie naar provincie, van kleine stad naar kleine stad te gaan.
-- Ik bel generaal Hamilton.
-We kunnen de rekening vereffenen met de yankees.
-Het belangrijkste is dat socialezekerheidsrechten, voor eens en voor altijd, gemakkelijk moeten kunnen worden meegenomen naar andere lidstaten.
-Ik denk dat we die bedreiging voor eens en voor altijd kunnen elimineren.
-Bescherm het wagenpark van uw bedrijf eens en voor altijd door het JABLOTRON-autoalarmsysteem te gebruiken.
-Dan zou ik met die pepmiddelen moeten stoppen. Deze keer voorgoed.
-Ik beloof je dat ik alles zal uitleggen voor eens en altijd waarom ik deed wat ik deed.
-Ik stel voor haar te gebruiken en voor eens en altijd ter ruste te leggen.
-De Europese landen moeten Turkije voor eens en altijd vertellen dat foltering een inbreuk op de mensenrechten is.
-Hij is eruit weggegaan, en het probleem van de Kerk heeft — voorgoed — voor hem afgedaan. ”
-De tweede mogelijkheid is, dat de afvalstoffen opnieuw in een kernreactor worden gebracht en op dezelfde manier worden verspleten als uranium; deze mogelijkheid is ook in de inrichting van het Gemeenschappelijk Centrum voor Onderzoek van de KEG in studie.
-Daarom ben ik verrukt dat deze onzekerheid en verwarring voor eens en voor altijd is opgelost.
-Deze onthullingen zullen noodzakelijk zijn om jullie voor eens en voor altijd van die energieën te bevrijden.
-Je hebt me gekwetst. Daarom heb ik er 'n eind aan gemaakt.
-Ik geef je Duncan en ik verdwijn met Kira.
-Deze is nodig, zodat enorm speculatieve uitspattingen eindelijk aan banden kunnen worden gelegd.
-Het is barbaars, het mag niet worden geduld en we moeten het voor eens en voor altijd verbieden.
-Al lange tijd koesterden wij de hoop dat deze bladzijde eindelijk definitief zou kunnen worden omgeslagen.
-Mijnheer de Voorzitter, het is de hoogste tijd dat we dit oude en complexe onderwerp definitief afhandelen.
-We verlaten van dit appartement niet. Totdat we een manier vinden om hem eens en voor altijd te doden.
-Met gecamoufleerde schepen, kan ik het verzet voorgoed uitroeien.
-Ze willen 'n eind maken aan wat we bestrijden.
-Maar het is de enige manier om je te dwingen eindelijk op te treden.
-Welnu, I ben ervan overtuigd dat we, voor eens en altijd, de kwestie van illegale immigratie onder handen moeten nemen.
-Het wordt tijd om doelbewust te handelen, zodat de grootste problemen in één keer worden opgelost.
-Tietmeyer zijn tot een compromis en tot samenwerking ten einde een oplossing te vinden voor ontstane misverstanden, konflikten en problemen.
-Want ik ga mijn vrouw bevrijden en mijn broer, en dan gaan we dit definitief afhandelen.
-Deze zaak heeft me aangezet, om mijn bureau eens op te gaan ruimen.
-Ik ga Gant op heterdaad betrappen, als hij de wet overtreedt... en dan ga ik de wet gebruiken om hem voor altijd op te sluiten.
-We mogen niet langer een nationale minderheid in Europa bepaalde grondrechten ontzeggen.
-De enige manier om voorgoed afscheid van hen te nemen, is hun hoofden openrijten.
-Ik wil dat ze worden opgespoord en opgebracht om ons voor eens en voor altijd te zeggen wat ze weten.
-Dat moet eindelijk worden verduidelijkt, opdat de bepaling inzake de insulaire gebieden van toepassing kan worden.
-Dit bewijst weer dat de Centauri niet alleen onze wereld bedreigen.
-Ik kom hier aankondigen dat Canada vanaf nu New Bagdad heet.
-Wat als ik je ze hielp uitschakelen?
-Voorzitter, laten wij voor eens en al ophouden met die masochistische neigingen, niet alleen in deze sector maar ook heel wat andere sectoren.
-Dat gedoe over die promotie moet nu maar afgelopen zijn.
-Hiermee is het bewijs geleverd dat de AN8 het stroomafwaarts deel vormt van de rivier van Anialarra.
-Laat die camera nou en kom toch even met mij dansen.
-Dit is niet alleen een opdracht voor de ambtenaren van de regeringen en van de Commissie.
-Brussel moet nu eindelijk eens verklaren of het voor of tegen het zelfbeschikkingsrecht der volkeren is.
-Geef nou maar toe dat je er niet onderuit kunt.
-De Raad is dus van mening dat hij voor die lijst, waarover toen overeenstemming is bereikt, voor eens en voor altijd een vrijstelling kreeg.
-De reactie van het Parlement was gunstig, maar gematigd.
-Welnu, de strijd van de land bouwers heeft, in het bijzonder in Frankrijk, geleid tot een stijging van ongeveer 10 % en de daling van het inkomen van de landbouwers beperkt.
-Men zou zich een methode van voorspellen kunnen voorstellen waarvan het echte planningsaspect niet noodzakelijkerwijze voor eens en altijd behoeft te worden vastgesteld.
-Om te vieren uw systematiek zindelijk adviseren wij sterk u te verwijderen Reg Pro Cleaner eens en voor altijd.
-Ook maakte hij de Mighty 'Vengers (kindversies van de Avengers), die zich ook tegen hem keerden.
-Wat het structuurbeleid betreft moet men eindelijk de uitstaande betalingsverplichtingen, de zogenaamde RAL's, verkleinen.
-Degene die jou zal laten boeten voor je zonden, voor eens en voor altijd!
-Het bezwaar van de heer Arndt komt dus te vervallen en zo kunnen wij dit debat eindelijk afsluiten. Wij hoeven nu enkel nog te stemmen.
-Bijgevolg zal Jehovah God deze belemmering voor vrede eens en voor altijd uit de weg ruimen. — Openbaring 18: 4, 5, 8.
-Dus ik stel voor om te stoppen met ruziemaken... en we rijden verder en proberen dit voor eens en altijd te stoppen.
-Kan de Commissie voor eens en altijd voorstellen dat er nooit meer steun wordt gegeven aan het vernietigen van voedsel?
-als ik dit echt eens en voor altijd wil laten eindigen, ga ik door en gebruik ik mijn kernraketten.
-Daarom zou ik U willen vragen deze zaak nu definitief in deze zin af te sluiten.
-Hij ontbood ons in zijn kantoor met de opmerking: „We gaan dit eens voor al regelen. ”
-In 740 v.G.T. bediende Jehovah zich van het Assyrische leger om het noordelijke koninkrijk Israël eens en voor altijd te verwoesten.
-En de enige manier dat ik Briarcliff eens en voor altijd achter me kon laten... was een manier te zoeken om te vergeven.
-Wij moeten een antwoord vinden op het probleem van de immigratie.
-Enkel de goddelozen verdelgen en goede mensen redden is niet voldoende om het criminaliteitsprobleem eens en voor al op te lossen.
-Het gevolg van deze ontwikkelingen is dat seksualiteit en voortplanting voor goed totaal gescheiden zaken zijn geworden, met een eigen ethische problematiek.
-Ik hoop dat ik met deze brunch jullie voor eens en altijd kan overtuigen dat ik het beste voor heb met het bedrijf.
-Laten we voor eens en altijd een einde maken aan die voortdurende twijfel en eindeloze redevoeringen.
-Verslag (A4-0239/9S) van de heer von Wogau, namens de Commissie economische en monetaire zaken en industrie beleid, over het voorstel voor een besluit van het Europees Parlement en de Raad (COM(95)0119 - C4-0142/95 -95/0087(COD)) houdende goedkeuring van een actiepro gramma voor de douanediensten van de Gemeenschap („Douane 2000")
-De Tovenaar... is de enige die de kracht heeft de duisternis te vernietigen voor het alles vernietigt. Waar is hij?
-...'n kans om de Wapens neer te leggen... en voor altijd te bewijzen... dat vrede vrede voortbrengt en liefde liefde.
-Als't werkt zoals ik denk, zou het voor altijd het einde van de Wraith betekenen.
-Mijnheer de Voorzitter, een paar jaar geleden probeerde de vorige Commissie haar stijve en verouderde structuren te veranderen.
-Om dit te laten werken, moet je voor altijd ophouden met jaloers te zijn. En me vertrouwen. -Dat doe ik ook.
-Het stuk zal ontsporen, en voor altijd... Zal het duidelijk zijn, dat ik de beste acteur ben.
-Als we het geld ergens voor gaan gebruiken... moeten we het gebruiken om Mendoza voorgoed uit te schakelen.
-U moet eindelijk kleur bekennen: staat u aan de kant van de financiële sector of aan de kant van de burgers?
-Wat wij willen — en ik geloof dat de Commissaris het met ons een is — is dat we direct het definitieve Reglement krijgen.
-Door de menselijke familie haar eigen weg te laten gaan, heeft God eens voor altijd aangetoond dat wij zijn heerschappij nodig hebben.
-Het verslag dat de Commissie eerder dit jaar heeft opgesteld — dat bijna 2000 bladzijden beslaat — verschaft informatie over de werkzaamheden van de 424 comités.
-Het was tijd om achter alles een punt te zetten, door mijn kant van het verhaal te vertellen.
-Ondertussen had Oroku Saki Japan verlaten en Yoshi opgespoord in New York, waar hij hem voorgoed uit de weg wilde ruimen.
-Zij kwamen terug omdat het op dat moment al niet meer rendabel was om nog langer door te gaan met vissen.
-Vanavond hebben wij Hitler en Goering en rekenen we af met de communisten.
-Het is een langlopend schandaal dat dit Parlement nog niet heeft geëist dat de regeringen van de lidstaten voor eens en voor altijd een einde maken aan het Straatsburg-circus.
-Het halfjaarlijks scorebord heeft twee doelstellingen: ten eerste moet hierin een beeld worden gegeven van de stand van zaken op de interne markt en ten tweede moet hierin een oordeel worden uitgesproken over de mate waarin de lidstaten, de Raad, het Parlement en de Commissie beantwoorden aan de doelstellingen die na gemeenschappelijk overleg in het actieplan voor de inteme markt werden op genomen. Dit scorebord is dan ook een meetinstrument
-Ik bel gewoon om te zeggen dat ik niet kan wachten tot zondag. Wanneer we die Philly clowns voor eens en altijd zullen verslaan.
-Ik zou het niet wagen om te raden ... Maar ik weet zeker dat de Dynamic Duo haar carrière zal beëindigen voor eens en altijd.
-dacht ik Waarom deze fantasie nu eens niet voor eens en altijd uitvoeren.
-Om de demonen van het verleden definitief te verslaan, werd begonnen met een gemeenschap van kolen en staal.
-Volgens deze geïnspireerde profetie zal Satan een laatste grote aanval doen in een poging Gods volk eens en voor al te vernietigen.
-De Voorzitter. — Aan de orde is vraag nr. 93 van de heer Vandemeulebroucke (H-205/81):
-Het is niet hetzelfde voor landbouw en toerisme, of voor vervoer en industrie, bij voorbeeld, maar we moeten uitzien naar een
-Ik spreek vrijuit want ik wil dit geregeld hebben voor eens en altijd. Ik wil deze kinderachtige discussies niet, jaar na jaar.
-Studies wezen uit dat het hebben van een grotere orbito-prefrontale cortex gerelateerd is aan meer vriendschappen, hetgeen definitief bewijst dat... grootte wel degelijk ertoe doet.
-Daarvoor is het echter dringend noodzakelijk dat het onderhandelingsmandaat van de Commissie eindelijk opnieuw wordt vastgesteld.
-Daar hoopte ik al op. Ze zijn daar vast met hun volledige strijdmacht. Nu kunnen we ze voor eens en altijd met wortel en tak uitroeien.
-We moeten samenwerken om voor eens en altijd een einde te maken aan het wapengeweld...
-Kanselier Kohl sprak, helemaal in de kerstsfeer, van een karavaan die verder trekt.
-Zonder te kijken hoe laat het was stuurde ik hem naar de dierenarts... om het beest voor altijd te laten inslapen.
-Het kan goed zijn dat de komst van HFCS de ruggegraat van de suikerproduktie voor export voorgoed gebroken heeft.
-Misschien zullen we op een dag het raadsel kunnen oplossen en weten we dan eindelijk wie we zijn en waarom we hier zijn.
-Het lijkt mij dan ook bijzonder belangrijk dat we definitief besluiten om de maatschappelijke betekenis van ondernemerschap meer voor het voetlicht te brengen.
-de Franse autoriteiten benadrukken het feit dat bij wet nr. 90-568 „ten enen male” één enkele belastingregeling voor FT voor de periode van 1991 tot 2003 is ingevoerd.
-Transacties met OTC-derivaten in de toekomst verbieden en de banken ertoe aan te zetten hun derivaatcontracten definitief te laten aflopen?
-Alle politici op lokaal niveau zijn in actie geschoten, maar kerstman Kinnock kan natuurlijk niet elke dag wegen en spoorwegen uitdelen.
-Doordat wij allen zondaars zijn, is dit onmogelijk, en bovendien heeft Jezus eens en voor altijd door middel van zijn offer een rantsoen verschaft. — Hebr.
-SEM 2000 is als antwoord onvoldoende, hoewel er een goed stuk werk gedaan wordt, maar wij moeten deze vraag voor eens en altijd uit de wereld helpen.
-In de eerste plaats is de corrida een eenmalig evenement en indien de vechtstieren van verzoekers er niet bij kunnen worden ingezet, is de gelegenheid voorgoed verdaan.
-Een nieuwe knieval voor de industriële landbouw zou op lange termijn leiden tot de definitieve vernietiging van onze belangrijkste drinkwaterbronnen.
+Ten eerste : de burgers van de in de Gemeenschap ver enigde Lid-Staten — zo luidt de formulering in de Akte betreffende de rechtstreekse verkiezingen door de door ons vertegenwoordigde 270 miljoen mensen — moeten inzien waarom de Gemeenschap constitutionele vooruitgang nodig heeft.
+Indien u gelooft dat Jezus de Zoon van God is, dat Hij voor uw zonden is gestorven, dat Hij de derde dag is opgestaan, indien u zich bekeert (indien u berouw hebt voor uw zonden en vast besloten bent uw leven aan God te wijden), indien u uw geloof belijdt, en indien u gedoopt wordt tot vergeving van uw zonden, wordt u aan Christus' gemeente, Zijn lichaam, toegevoegd. Samen met ons kan u dan ook voor het geloof strijden, dat eenmaal aan de heiligen werd overgeleverd.
+Nu is het aan de juryleden om eens en voor altijd te beslissen... wie Johnson County zal vertegenwoordigen op de staatscompetitie.
+Daarom zouden wij eens en voor altijd moeten weten wat daar de reden van is. Als landen zich vrijelijk uitspreken tegen de heersende opvattingen, dan krijgen zij steeds maar weer hetzelfde menu voorgeschoteld dat zij afgeslagen hebben.
+Toen die prioriteit vertraging opliep, hebben zij het onderhandelingsproces met de Europese Unie versneld, maar dat was al in de laatste fase van het voorzitterschap.
+Laat dit eindelijk eens doordringen tot alle landen ter wereld!
+Mijnheer de Voorzitter, mevrouw de commissaris, geachte collega's, met deze richtlijn wordt definitief bekrachtigd dat democratie en transparantie in Europa sterk gekoppeld zijn aan vrije, pluralistische media.
+Voor eens en altijd moet duidelijk worden gemaakt dat volgens de definitie van de Wereldgezondheidsorganisatie onder dit begrip abortus als een methode van gezinsplanning valt.
+We dienen definitief de rug toe te keren aan een systeem van jaarlijkse cheques, waarvan de omvang slechts het resultaat is van een voorlopige krachtsverhouding, en dit te vervangen voor een duurzaam systeem dat elke Lid-Staat kan verzoenen met de werking van de Gemeenschap waartoe zij zijn toegetreden.
+Op dit ogenblik zorgt deze industrie voor 365 000 arbeidsplaatsen in Frank rijk en 3 miljoen in de Gemeenschap.
+Dat wordt nu met dit voorstel voor eens en voor altijd geregeld.
+De manier waarop deze resolutie het onderwerp benadert, haar strategie als het ware, is dat wij proberen te wijzen op het belang van de zeer gedetailleerde bevindingen van de Rekenkamer, dat wij in dit stadium niet nog eens alle bijzonderheden van dat verslag wil len behandelen, maar in plaats daarvan een reactie van de instellingen uitlokken op de voorstellen van de Rekenkamer.
+Het idee is in beginsel aanvaardbaar, maar, zoals ook al ten aanzien van amendement 18 van het Parlement (nieuwe overweging 33 bis, dat in het gewijzigde voorstel van de Commissie als overweging 34 bis is opgenomen) is vermeld, lijkt het de Commissie beter dezelfde beginselen hier niet te herhalen; de Commissie geeft er de voorkeur aan de kwestie eens en voor al te verduidelijken in de genoemde nieuwe overweging.
+Wij zijn dan ook van mening dat de enige oplossing erin bestaat om de internationale handelsbesprekingen opnieuw te openen opdat uiteindelijk rekening gehouden wordt met wat ons op sociaal, gezondheids-, cultureel en milieugebied bezighoudt, en wij betreuren het nu al dat de Commissie zich in haar landbouwontwerp van Agenda 2000 eens te meer alleen heeft laten leiden door het streven zich op de wereldprijzen te richten.
+Daar is nu de gelegenheid voor.We zitten middenin het kweekseizoen en doe nu eens alles weg wat niet goed is.
+En het feit dat wij leden van dit Parlement — die in elk van onze landen door de burgers zijn gekozen — al jaren lang met el kaar kunnen praten, gezamenlijk verlangens, plannen en eisen kunnen formuleren, en het met elkaar eens kunnen zijn, ook al zijn onze uitgangspunten verschil lend, vormt het bewijs dat deze gemeenschappelijke politieke basis in onze volkeren bestaat.
+Het lot van Efeze werd voorgoed bezegeld toen de haven volledig dichtslibde en de stad tot een ruïne verviel.
+Het levert een krachtige en stabiele resultaten, dus je kunt eens en voor altijd om een ​​probleem dat is gekoppeld aan uw seksuele disfunctie of slechte erecties te lossen.
+Met Eurodac kunnen wij de Overeenkomst van Dublin uitvoeren en vaststellen welke lidstaat voor de afwikkeling van de asielprocedure bevoegd is.
+Je verlaat deze kamer niet voor we zeker weten of we echt alleen maar vrienden zijn.
+Deze « eenmalige » systemen zijn erop gericht de ambtstermijnen van leden van besluitvormende organen op verschillende tijdstippen te doen aflopen en strekken er aldus toe continuïteit in het bestuur van de nationale centrale bank te verzekeren .
+Ik hoop dat het Parlement de dwaze term „juste retour" nooit meer zal gebruiken.
+Nee, we hebben het recht net zo lang vragen te stellen tot we kunnen aanvaarden dat het antwoord definitief is.
+Het wordt tijd dat wij u duidelijk maken dat ons een andere Europese Unie en een andere Europese toekomst voor ogen staat dan een Unie die van conferentie naar conferentie strompelt.
+Het Parlement betreurt het ontbreken van een echte interne markt op het gebied van de distributieen het onderhoud van motorvoertuigen, zoals blijkt uit de talrijke klachten van consumenten: wenst dal de Commissie definitief zorgt voor een vrije markt waarop consumenten zonder problemen een auto kunnen kopen in een andere lidstaat en waar er geen belemmeringen bestaan voor parallelle handel;
+Juist binnen de EG gedane aan kopen waarvoor, eens en voor altijd, BTW betaald is in de Lid-Staat van herkomst, zullen ertoe bijdragen dat een gelijkschakeling van tarieven en een verdere economische integratie zal worden verlangd.
+Deze dingen zullen eens en voor altijd zijn volbracht.
+Tuomas: Kun je je voorstellen hoe vaak we dan het “waarom” zouden moeten uitleggen, dus het hele idee achter het op deze manier doen was om het voor eens en altijd op te helderen waarom dit allemaal gebeurd is. Dus als het alleen “oké, ze zit niet meer in de band” zou zijn geweest kun je je voorstellen hoeveel geroddel, speculaties en vragen er zouden komen, dan zouden we nog steeds dozijnen interviews iedere week hebben over het waarom.
+Sterker nog, ik vind dat het een oproep zou moeten zijn aan de Franse en de Britse regering om nu eindelijk eens duidelijk te maken wat zij willen met nucleaire wapens.
+"De schizofrenie moet stoppen: ongebreideld subsidies vragen en tegelijk de EU een echte begroting weigeren
+Zij kwamen naar Johannes en herinnerden zich de Wet van het Oude Testament, zij biechtten dat zij slechts zondigen totdat zij stierven. Zij biechtten ook dat zij, volgens de Wet, nooit met hun goede daden het koninkrijk der hemel konden binnentreden, en hun gedachten keerden terug naar Jezus Christus die al hun zonden voor eens en voor altijd zal uitwissen en de poort naar het koninkrijk der hemel zal openen. Het doopsel dat Johannes de Doper aan de mensen van Israël gaf, was het volgende.
+Dat is de strekking van onze resolutie. Morgen zal het echter de taak van de Raad en de Commissie zijn om niet alleen mogelijk te maken dat dit risico definitief uit de wereld wordt verbannen, maar om het ook te eisen.
+De kwijting voor het begrotingsjaar 1985 is opgeschort op grond van de constatering dat allerlei tekortkomingen een gezond financieel beheer van diverse communautaire beleidsvormen in de weg stonden; hiermee werd definitief duidelijk dat er behoefte bestaat aan een controle die probeert vast te stellen wat de voorwaarden zijn voor een gezond beheer van het communautaire beleid.
 Daarom, mijnheer de Voorzitter, dames en heren, moeten we de situatie in Algerije eens en voor altijd onder ogen durven zien. Ja, er zijn buitenlandse mogendheden actief in Algerije.
-Hier moeten drastische keuzen worden gemaakt: de vicieuze cirkel van schulden die almaar tot nieuwe schulden leiden, moet worden doorbroken en alle schulden moeten eens en vooral worden kwijtgescholden.
-Ik ga het artikel van de eeuw schrijven... zodat de hele wereld zal weten dat diep van binnen alle vrouwen hetzelfde zijn.
-En als er al niet eerder een woord van jouw Heer over een vastgestelde termijn gekomen was, dan was er tussen hen al een beslissing getroffen.
-Vanavond smelt mijn ziel samen met Estella... en kan ik weer een generatie lang mannenharten gaan breken.
-Nu, 360 jaar later, heeft de paus geprobeerd de kwestie eens en voor al te beslechten met een plechtige toespraak voor de Pauselijke Academie van Wetenschappen.
-Het uiteenvallen van de Europese munt, en dat is slechts een kwestie van tijd, zal de politieke en economische integratie voorgoed de das omdoen.
-Zouden we niet voor eens en voor altijd de gedachte moeten laten varen dat alles wat wordt onder nomen voorde aanleg van wegen, spoorlijnen en snelwegen persé een aanslag vormt op het milieu?
-En jullie kunnen nooit een relatie met iemand anders aangaan... tot jullie eindelijk je oude problemen oplossen.
-Het is de hoogste tijd dat de EU en haar leiders onder ogen zien dat deze ernstige crisis niet uit de VS is komen overwaaien!
-Ten derde moeten ze geboortebeperking in de hand werken. Dat is van vitaal belang en kan ook helpen in de strijd tegen AIDS.
-A) de burgemeester heeft een zeer Belle-positief platform. En B) ik wil Ruby voor eens en altijd laten weten dat ze Lemon Breeland niet kan verslaan.
-U kan in de Raad een meerderheid halen voor deze reeks maatregelen met het oog op een definitief verbod op dit vistuig.
-Je doet wat ik zeg en je trouwt met Loras Tyrell en maakt voorgoed een einde aan de walgelijke geruchten over jou.
-Voor deze basisopleiding moet de gehele bevolking in aanmerking komen, dus al op de lagere school, ten einde een kritisch, gefundeerd en verantwoordelijk oordeel ten opzichte van het economische en sociale milieu te vormen.
-Ik wil horen wat hij te zeggen heeft, en als het ons niet bevalt, stikt hij maar.
-Mijnheer de Voorzitter, bij gebrek aan tijd kan ik andere onderwerpen zoals de milieubescherming of de ontwikkeling in het algemeen, niet meer behandelen.
-"Noch door het bloed der bokken en kalveren, maar door Zijn eigen bloed, eenmaal ingegaan in het heiligdom, een eeuwige verlossing teweeggebracht hebbende."
-De Europese volkshuishoudingen zullen alleen maar naar elkaar toegroeien indien er ook bij openbare aanbestedingen eindelijk een eind wordt gemaakt aan de nog steeds bestaande neiging van de autoriteiten om de voorkeur te geven aan "nationale kampioenen".
-Ik herinner me, toen hij naar buiten liep. Hij zwoer dat hij een einde ging maken aan alles en voor altijd.
-C News heeft een bepaalde mate van dagelijks beheer nodig, maar dit kan voor eens en voor altijd worden aangegeven via het commando crontab -e dat als gebruiker news wordt uitgevoerd.
-Zoals verscheidenen vandaag al hebben vermeld, is het ontzettend belangrijk dat wij een beroep doen op de Raad om met een begroting te komen die toereikend is voor heel 1985.
-Daarom wil ik eens en voor altijd officieel vermeld zien dat Ierland wat de visvangst betreft een netto betaler aan Europa is.
-Het is mijns inziens onvermijdelijk dat de ontwikkeling van
-Dat is een kaakslag aan de miljoenen slachtoffers van de oorlog tegen het fascisme en het hof van Neurenberg, dat de oorlogsmisdadigers en de misdaden tegen de mens heid heeft veroordeeld, en het is een schending van de internationale overeenkomsten terzake die door Bulgarije werden ondertekend. Dat is onaanvaardbaar.
-Denk eraan de uitvoerbare bestanden te comprimeren wanneer je een nieuw package installeert! 3.5 Gzip Er zijn heel wat andere bestanden die voor eens en voor altijd kunnen worden gecomprimeerd.
-Hij zal de geschillen tussen landen eens en voor altijd oplossen door ‘ oorlogen te doen ophouden tot het uiteinde der aarde ’.
-Laten we naast de onmisbare humanitaire, maar vergeefse uitgaven, positieve uitgaven verrichten die deze gesel zouden kunnen bedwingen - we kunnen daarvan dromen.
-Zo ben ik het bijvoorbeeld met mijn collega's eens dat het Parlement bij deze fundamentele politieke besluiten moet worden betrokken. Het gaat hier uiteindelijk om arbeidsplaatsen en om veranderingen ook in onze economieën. mieën.
-- Ik wil dat de test lukt. Maar als hij weer mislukt, is bewezen dat Crane onschuldig is. Tja...
-Het verhaal gaat over een uil die het niet zo op het daglicht heeft en daarom op een queeste gaat om de zonsopgang voor altijd te stoppen.
-Het enige dat in termen van configuratie in de meeste gevallen is vereist voor het lezen van news, is de NNTPSERVER in te stellen (meestal slechts éénmalig in het bestand .profile):
-In plaats daarvan zijn we voortgegaan en is de situatie nu kritiek. Deze moeten we aanpakken door de schadelijke afgunst en de mislukte economische recepten voor eens en voor altijd achter ons te laten.
-In het midden van de zestiende eeuw werd deze aangelegenheid eens voor al door specifieke regels betreffende het celibaat in de Rooms - Katholieke Kerk op het concilie van Trente vastgelegd.
-Wij hebben ook gevraagd of de Commissie niet meteen in een doeltreffende recyclage kan voorzien.
-De Europese Unie, de lidstaten, de politiek, de industrie en de wetenschap moeten elk hun verantwoordelijkheid op zich nemen om de muur tussen welvaart en honger op termijn te slechten.
-Het Ierse "nee” betekent dat het proces van het ratificeren van het Verdrag van Lissabon in de EU moet worden beëindigd en voor eens en altijd te ruste moet worden gelegd.
-Al mijn gelovige kinderen zullen helpen om uiteindelijk de lauwe zielen te wekken opdat zij niet verloren zullen gaan en zich voor eens en voor altijd kunnen uitspreken.
-Ik wil een gebedsgenezer vinden die m'n kleinzoon wil bezoeken... z'n handen wil opleggen en de leukemie voorgoed wegjaagt.
-Ditmaal moeten de terroristische bewegingen eindelijk snel worden uitgeschakeld en daarom moet Iran door Europa worden geïsoleerd en Syrië gedwongen tot onderhandelen.
-Welnu, als dit voorzitterschap het programma van Tampere te berde brengt en zich voorneemt om daar eens en voorgoed werk van te maken is dat mijns inziens een lovenswaardig initiatief en zeker geen reden tot kritiek.
-De enige mogelijke manier om te herwinnen de juiste functionaliteit van uw browser dat wil zeggen om te stoppen met de invasieve activiteit eens en voor altijd is door het uitvoeren van een volledige verwijdering van Emaildescontos.
-Dit geldt niet voor alle landbouwprodukten, maar volgens mij zou voor graan het woord „overschotten" volledig en voorgoed uit onze debatten moeten verdwijnen.
-In dat geval, accepteert u dan, om de lucht te klaren voor eens en altijd, dat u deel was van een dekmantel, en dat u de wet hebt gebroken?
-Met betrekking tot dat fundamentele probleem bewaren de industrie, maar ook de regeringen een onverantwoord stilzwijgen.
-Het is hoog tijd dat de Unie beleidsvormen en middelen krijgt om elke vorm van discriminatie op grond van geslacht, etnische afkomst, huidskleur, godsdienst of seksuele geaardheid te kunnen bestrijden.
-– Mijnheer de Voorzitter, het is belangrijk dat wij Cuba een niet mis te verstaan signaal geven dat het nu eindelijk afgelopen moet zijn met de dictatuur van Castro.
-Alan, weet je, jij en ik konden het niet meteen goed met elkaar vinden... maar ik leef samen met 'n man die voor eens en altijd beslist heeft... dat het leven synoniem is aan middelmatigheid.
-De Griekse leden van dit Parlement en ik veronderstel ook de Portugese, Ierse, Spaanse, Italiaanse en enkele Franse collega's zijn van mening dat de Lid-Staten die aan de rand liggen van de Gemeenschap aanzienlijke verliezen zullen lijden, indien het vervoerinfrastructuurbeleid gefinancierd zou worden door de reeds bestaande fondsen.
-De Europese Raad is van oordeel dat met deze cijfers en de begeleidende bepalingen in deze tekst voor eens en voor altijd wordt voldaan aan de verplichtingen die de Gemeenschap met betrekking tot de Geïntegreerde Mediterrane Programma's is aangegaan.
-De Top over de werkgelegenheid heeft deze nieuwe dimensie, die voorheen ontbrak en waarvoor onze bevolking zeer gevoelig is, definitief op de Europese agenda geplaatst.
-Dit vistuig moet definitief verdwijnen in deze wateren en dit plan wil deze netten dan ook doen verdwijnen en zorgen voor de omschakeling van de vloot.
-Ten vierde komt de tijd snel naderbij dat Jehovah zich eens voor al als de Universele Soeverein zal rechtvaardigen door al zijn vijanden te vernietigen en zijn volk te bevrijden.
-Is hier in de afgelopen drie jaar enige verbetering in gekomen ? Ons inziens is hierin ondanks alle gebeur
-Dat besluit maakt definitief een einde aan de verdeling van Europa, een van de afschuwelijkste gevolgen van de tweede wereldoorlog.
-Andere, niet te verwaarlozen punten, zijn bij voorbeeld de erkenning dat de vrouwen in de ontwikkelingslanden degenen zijn, die over voeding onderwezen kunnen worden.
-Het gevolg van deze ontwikkelingen is dat seksualiteit en voortplanting voor goed totaal gescheiden zaken zijn geworden, met een eigen ethische problematiek.Ook het openbare leven begint met dit feit rekening te houden.
-Ze hebben er geen behoefte aan dat twintig keer hetzelfde wordt herhaald wanneer er problemen zijn, maar dat er serieus en daadkrachtig iets gedaan wordt wat definitief is.
-We worden niet geleidelijk geheiligd door in Jezus te geloven, maar we worden in een keer voor altijd rechtvaardig door in het doopsel en het bloed van Jezus te geloven, het evangelie van spirituele zaligheid.
-Ten tweede, deze regulering staat of valt met de praktische uitvoerbaarheid en de afdwingbaarheid van de maatregel en ook de controle op de tenuitvoerlegging.
-Registratiebelastingen zijn een heilige koe; laten we ze voor eens en altijd slachten – niet in de laatste plaats, en misschien zelfs juist uit milieuoverwegingen.
-Ik vind het alleen jammer dat hij bij die gelegenheid niet verder is gegaan en geen openbaar onderzoek heeft gevraagd* om aan de mythe van Sellafield en THORP definitief een einde te maken.
-De beste en definitieve oplossing zal er slechts zijn wanneer het volledige buitenlands en veiligheidsbeleid van de Unie met de nodige aanpassingen naar het communautair niveau wordt overgedragen.
-Gecombineerde Nomenclaturen: Hiermee kan een zo groot mogelijke volledigheid worden bereikt, kunnen alle produkten worden bestreken en is meer samenhang mogelijk tussen de definitie van industrie- en landbouwprodukten en de fiscale vereisten.
-Kunnen we het niet voor eens en altijd duidelijk maken en het dan laten rusten, tot de tijd daar is waarop we ECHT moeten WETEN dat het WERKELIJK GAAT PLAATSVINDEN.
-Inderdaad ongestraft voor zover het dit Parlement betreft, want het heeft al onze resoluties, al onze oproepen voor fatsoen en gezond verstand naast zich neergelegd.
-Zij geloven dat we zijn verzwakt, maar in slechts een paar dagen, zullen we een slag slaan tegen Amerika zo vlug en vreselijk dat de kwaden voor eens en altijd in zullen storten.
-Door de zegeningen van dit door God bestuurde koninkrijk zal eens en voor al bewezen worden dat God werkelijk iedereen die hem dient, liefheeft en dat hij beslist niet aan rassenscheiding doet.
-Wij zullen nu de indieningstermijn voor ontwerpresoluties die na de fractiebijeenkomsten van woensdag zullen worden voorgelegd, vaststellen.
-Welke specifieke maatregelen kan de Commissie nemen om definitief een einde te maken aan deze praktijken die indruisen tegen het Gemeenschapsrecht, met name tegen de richtlijn inzake gegevensbescherming?
-Het zijn woorden, maar wel woorden uit de hoek waar de lading vandaan komt, Voorzitter, en om die lading gaat het in dit debat. Dat moeten we ons vanaf nu meer dan ooit realiseren.
-Na een tragisch ongeval ondernemen Caesar en zijn vrienden een gevaarlijke wraakmissie, waarmee ze hopen dat ze eens en voor altijd kunnen afrekenen met The Colonel.
-Het is natuurlijk ook belangrijk om nog meer onderzoek te doen naar de risico's van de vijf andere hormonen, maar het is een goede zaak dat 17ß-oestradiol nu verboden wordt.
-Gebleken is immers dat zij weer het Europa aan het worden is van de onstuitbare opkomst van een Mussolini en een Hitler, het Europa waar mensen de lakens uitdelen die ons aan dit lot vastnagelen.
-Daarom dring ik bij alle lidstaten aan op een gezonde discussie die volgend jaar elementen moet opleveren voor Commissievoorstellen, zodat we deze kwestie eens en voor altijd kunnen oplossen."
-Indien wij met dit voorstel instemmen, kan de procedure definitief worden afgesloten en kunnen de werkzaamheden op het gebied van de arbeidstijd in de zeevaartsector worden afgerond.
-De gemiddelde acne patiënt die op zoek is naar een acne behandeling zal waarschijnlijk in de war raken van al deze producten, die allemaal 100% garanderen om eindelijk een eind te maken aan acne.
-Wij roepen op tot de vrijlating van al deze gevangenen en vinden dat er eindelijk een eind moet komen aan de buitenlandse bedreiging van Syrië, die vooral afkomstig is van de VS, maar ook van de EU.
-Het lijkt dan ook mogelijk noch zinvol nu al eens en voor altijd de grenzen van de Europese Unie vast te stellen, omdat de contouren hiervan pas nà verloop van vele jaren duidelijk zichtbaar worden10.
-De lancering van de derde fase zal de onherroepelijke vastlegging betekenen van de pa riteiten tussen de deelnemende valuta's en de oprichting inluiden van de Europese Centrale Bank enkele maanden daarvoor.
-Ik doe dus een oproep opdat de IGC werk zou maken van het definitief onmogelijk maken van geheime stemmingen in de Raad wanneer hij optreedt als wetgever en in het algemeen de transparantie zou bevorderen.
-Met 'Trilateral Progression' zal Neuraxis ongetwijfeld uit de schaduw weten te kruipen van hun landgenoten Cryptopsy, Kataklysm en Gorguts en voortaan in één adem met hen worden genoemd.
-Overmand door verdriet en wroeging, zette hij de loop tegen z'n slaap. Hij wist dat hij, zodra dr. Ford de kamer uit was... definitief een einde aan de nachtmerrie zou maken.
-Welk mechanisme ook wordt voorge steld, wij moeten in ieder geval proberen het beter te doen.
-Het ware evangelie volgens de Bijbel is dat Jezus gedoopt werd en de zonden van de wereld voor eens en voor altijd wegnam en het oordeel voor alle zondaars aan het Kruis ontving.
-Maar, anders dan Van Meegeren, vervalst Luc Tuymans geen schilderijen, laat staan schilderijen van oude meesters, en al helemaal geen historietaferelen van vroeger - dat zou pas in één klap duidelijk maken hoe ongerijmd zijn stelling wel is.
-De Volkerengemeenschap moet eindelijk duidelijk maken: wat door deze landen wordt ondersteund is een misdaad tegen de vrede en moet daarom als internationale criminaliteit worden beschouwd en dienovereenkomstig worden behandeld.
-Hij komt langs dat pad, ziet Fishlegs, denkt dat ik het ben, loopt naar Fishlegs, waarop Phil dat touw lost, waardoor die ribbenkast valt en dan maken we hem af, eens en voor altijd!
-Bovendien moeten we eens en voor altijd ophelderen of erachter komen welke gegevens de VS nu eigenlijk nodig heeft voor de terreurbestrijding, en ook op welke manier wij hierbij assistentie kunnen verlenen en dit kunnen bewerkstelligen.
-Laten we hopen dat ze nu eens en voor altijd door het Parlement behandeld wordt, zodat de vrijheid van vestiging en van dienstverlening ook werkelijkheid worden in dit zo belangrijke financiële domein van de Gemeen schap.
-Dat moeten wij openhartig naar buiten verklaren, om eindelijk af te rekenen met het gerucht dat deze Europese Gemeenschap een instelling is die alsmaar geld uitgeeft en niet spaart.
-Er is een gebied in het bijzonder waarop solidariteit binnen de Europese Unie niet heeft gewerkt en nog steeds niet werkt, en het is uitermate belangrijk dat deze kwestie misschien voor eens en altijd kan worden opgelost.
-Aldus zijn de Deense leden hier in de zaal, ongeacht zeer uiteenlopende verkiezingsprogramma's verplicht tegen de conferentie te stemmen.
-Eén reden waarom God het zoveel duizenden jaren heeft toegelaten dat de mens onafhankelijk van hem heerschappij uitoefent, is om eens voor al aan te tonen dat een dergelijke heerschappij geen werkelijke vrijheid en werkelijk geluk tot stand kan brengen.
-Misschien mag ik u herinneren aan de regels die hiervoor gelden: we hebben een speciaal register waarin iedere afgevaardigde eenmaal, voor alle gelegenheden, opgave doet van alle financiële belangen, om te voorkomen dat steeds weer, bij ieder debat, verklaringen hieromtrent afgelegd moeten worden.
-Ik bedoel daarmee te zeggen dat onze eerste lezing niet in het luchtledige is opgezet, niet was gebaseerd op vage aanduidingen maar op cijfers die zeer krap waren berekend, zo krap dat de door de executieve zelf als minimaal aangemerkte getallen door ons nog verder zijn gekort in een streven naar realisme en laat ons zeggen toen al met de bedoeling om een dialoog met de Raad aan te gaan.
-In de meeste landen is men fel gekant tegen uw heilloze project. De toetredingsonderhandelingen met Turkije dienen dus te worden stopgezet - definitief.
-Daarom is een waarschuwing op zijn plaats aan diegenen die de regionale vrijheden willen verdedigen maar zich verbeelden deze te verdedigen tegen de nationale staten. De nationale staten vormen de basis van onze Europese beschaving en de wezenlijke beschermers van de vrijheden van de burgers.
-Nu, als je vriend zo onschuldig is zoals hij zegt, haal hem dan naar hier We nemen een staal, klaren dit voor eens en altijd, en zijn weg.
-Het gaat niet alleen om een erkenning van de Republiek Cyprus door Turkije. Wij moeten nu eindelijk eens erkennen dat de Turks-Cyprioten die op het eiland leven mensen zijn met dezelfde rechten.
-Het Europese Parlement heeft al vroeg ingezien hoe belangrijk de nieuwe media voor de Europese eenwording zijn. In 1980 ben ik met het eerste voorstel voor een Europees mediabeleid gekomen.
-. Voorzitter, commissaris, geachte collega's, ook vandaag tijdens de plechtige vergadering met president Schuster van de Republiek Slowakije hebben we weer gesproken over de historische kans om de deling van Europa definitief te overwinnen.
-Mijnheer de Voorzitter, neemt u mij niet kwalijk, maar als men de vertegenwoordiger van de Raad hoort spreken, vraagt men zich wanneer er een einde zal komen aan al die schijnheiligheid en medeplichtigheid.
-Maar wij weten dat de Raad helaas dikwijls niet tot handelen in staat is ; in dit geval zou hij ons eindelijk eens het tegendeel kunnen bewijzen.
-Het is echter evenzeer nodig om in dit nieuwe Verdrag uitsluitsel te geven over de grenzen van de Europese Unie. Hier hebben de burgers en de buren van de Europese Unie recht op.
-Een politieke oplossing voor Tsjetsjenië is inderdaad wenselijk - ik sta positief tegenover de pogingen van Vladimir Poetin in deze richting -, maar deze is alleen geloofwaardig wanneer de terroristische groepen definitief afzien van geweld.
-Onderwijl zal de regering in Khartoem haar geloofwaardigheid als partner te bewijzen hebben door democratie, respect voor de mensenrechten, het vrijlaten van politieke gevangenen en ontwikkeling van de rechtsstaat centraal te stellen.
-Vandaag de dag mogen wij ons gelukkig prijzen, omdat er veel vooruitgang is geboekt in het onderzoek naar het ontstaan van de ziekte en omdat de Commissie en de lidstaten er alles aan hebben gedaan deze ziekte voor eens en altijd uit te roeien. Desalniettemin zijn de onderzoeken nog niet volledig afgerond om de dringend noodzakelijke maatregelen te kunnen nemen.
-In mijn eigen land, zoals ook in vele andere lidstaten, is het van belang om het gebruik van elektronische douaneaangiften te regulariseren. Ook de documenten met bijlagen mogen niet op papier staan.
-Ten tweede moeten we er eindelijk voor zorgen dat op vluchten binnen de Europese Unie, maar ook tussen de Europese Unie en veilige derde landen, het systeem van een eenmalige veiligheidscontrole ingevoerd wordt.
-Ik wilde voor eens en voor altijd met dit probleem afrekenen waarbij ik mij realiseerde dat dit eigenlijk alleen mogelijk was door materialen te gebruiken voor de zuiger en de cilinder die onder deze omstandigheden in het geheel niet corroderen.
-Tegenover de uitleveringsplicht van het Europees arrestatiebevel moeten eindelijk helder geformuleerde rechten van verdachten worden gesteld. In de EU moeten gemeenschappelijke minimumnormen voor het strafprocesrecht worden vastgelegd.
-Daarom zeiden we jullie in de boodschap van vorige maand: ‘Wees standvastig, geliefden’, want jullie reiken nu diep tot in jullie binnenste KernWezen om voor eens en voor altijd de vastgezette, beperkende energiepatronen uit het verleden los te laten.
-Daarom zeiden we jullie in de boodschap van vorige maand: ‘Wees standvastig, geliefden’, want jullie reiken nu diep tot in jullie binnenste KernWezen om voor eens en voor altijd de vastgezette, beperkende energiepatronen uit het verleden los te laten.
-Ik denk ook dat deze beslissing van Frankrijk en de stilzwijgende instemming van de Commissie de Europese Unie politiek veel schade berokkent. Waar gaan wij naartoe en welke zin heeft het communautaire recht nog, als iedereen er zomaar uitpikt wat hem bevalt?
-We moeten hem eindelijk een kans geven. We moeten tegen Israël zeggen: geef hem de kans te bewijzen dat er een alternatief is voor Hamas.
-Nog een andere beschuldiging stond overal in de kranten te lezen, dat namelijk bij dit vervoer ook splijtstoffen illegaal naar derde landen werden getransporteerd.
-Jezus was er ook zeker van dat Satan en zijn demonen op Gods bestemde tijd in de afgrond geworpen zouden worden en later eens en voor altijd vernietigd zouden worden. — Romeinen 16: 20; Hebreeën 2: 14; Openbaring 20: 1 - 3, 7 - 10.
-Als dat niet gebeurd was zouden de levens van de Zes van Birmingham niet zo verwoest zijn als nu het geval is.
-Laten wij dus, om voorgoed een eind te maken aan deze twist die, het moet mij van het hart, noch de Europese Unie. noch het Parlement goed doet, de kwestie eens aan de orde stellen hoe het staat met de Europese bevoegdheid op het gebied van de jacht.
-In plaats van dat het Europees Parlement het Verdrag van Lissabon ten grave draagt, keurt het weer een resolutie goed, die de loftrompet afsteekt over het antidemocratische 'institutioneel evenwicht van de EU' en onder andere probeert te verhullen dat hiermee:
-Enerzijds wil men thuis een volledige etikettering van alle levensmiddelen en anderzijds geniet men tijdens een van de talrijke buitenlandse reisjes zonder enig bezwaar en zonder enig etiket van allerlei lokale lekkernijen.
-Als al de handelingen en regelingen naar behoren, voor het doel van het voor eens en altijd onderwerpen van de zes der zinnen en de geest, er niet toe leiden dat men positief in kontakt komt, heeft men alleen maar zijn tijd en moeite verspild.
-In The New Biology, door Robert Augros en George Stanciu, wordt op bladzijde 188 aandacht besteed aan enkele uitspraken van vooraanstaande wetenschappers die God terzijde schuiven: „De algemene mening is dat Darwin de biologie eens en voor al heeft ontdaan van de behoefte aan God.
-We kunnen slechts hopen dat het Witboek Sport ons wakker zal schudden en de trend voorgoed zal omkeren, zodat een extreem gebrek aan sensitiviteit en te veel zondes en verzuimen worden goedgemaakt.
-Voorwoord helft van de jaren tachtig — aan het eind waarvan wij nog 12 miljoen werklozen hadden en een zeer geringe totale werkgelegenheidsgraad in vergelijking met de rest van de ontwikkelde wereld — bracht ons onverbiddelijk tot dat oordeel.
-Het is mijns inziens werkelijk niet op zijn plaats in deze kwestie van moed te spreken, mijnheer Arndt, of het begrip logica, zoals de heer Dankert heeft gedaan, te gebruiken.
-Deze manier van spellen zou eens en voor altijd duidelijk maken dat 'kunst' slechts ťťn van de vele andere kunsten is: de kunst van het genezen, de kunst van het overreden, de kunst van het verkopen, de kunst van het bedriegen en ga zo maar door.
-Deze eigen middelen bestaan uit ontvangsten van fis­cale aard die eens en voor altijd aan de Gemeenschap zijn toegekend om haar begroting te financieren en die haar van rechtswege toekomen zonder dat de Lid­Staten daarover nog een besluit moeten nemen.
-Maar wij kunnen in overeenstemming, samenwerking en wisselwerking met de lidstaten de nog onbenutte krachten van deze gemeen schappelijke markt beter aanwenden voor het scheppen van meer banen, het bevorderen van de groei en het terugdringen van de werkloosheid.
-Deze eigen middelen bestaan uit ontvangsten van fiscale aard die eens en voor altijd aan de Gemeenschap zijn toegekend om haar begroting te financieren, en die haar van rechtswege toekomen zonder dat de Lid­Staten daarover nog een besluit moeten nemen.
-Om voor eens en altijd het bestaan van de wadmol te bewijzen hebben leden van de Nederlandse Jeugdbond voor Natuurstudie expedities uitgevoerd op verschillende plaatsen in de Waddenzee. Die expedities hebben helaas weinig concrete resultaten opgeleverd.
-Het benodigde geld is beschikbaar, mits wij nu eindelijk eens een keer de heilige koeien durven aan te pakken die in de begroting van het Parlement en natuurlijk met name in de algemene begroting van honderden miljarden verborgen zijn.
-Ik verzoek de Top in Göteborg eindelijk de juiste prioriteiten vast te stellen en het buitenlands en veiligheidsbeleid tot een centraal thema van de Top te maken, zodat de Europese Unie eindelijk een gelijkwaardige partner van de Verenigde Staten wordt.
-De Japanse krant Asahi Shimbun meldde dezer dagen dat de Japanse regering van mening is, dat de kwestie van de sex slavinnen eens en voor altijd geregeld was met het Vredesverdrag van San Francisco (1951) en verschillende bilaterale verdragen.
-Hier ligt een prachtig werkterrein braak, de EU standaardiseert toch zo graag? Ten tweede is het de hoogste tijd dat de EU genetisch gemodificeerde katoen toelaat.
-De SF ziet de EER-overeenkomst als een schakel in een proces dat deze positieve uitbreiding van de communautaire samenwerking ten goede komt.
-Tenslotte hoop ik dat wij, wanneer wij het bijgewerkte verslag van de Commissie ontvangen, in staat zullen zijn om alle nog openstaande problemen snel tot een oplossing te brengen, zodat de bevolking van Malta zelf eens en vooral over haar toekomstige plaats in de Europese Unie kan beslissen.
-Vervolgens, mijnheer de Voorzitter, moeten we terugkeren naar ons uitgangspunt en eisen dat de steun in het kader van de samenwerking met dit land wordt stopgezet, met uitzondering natuurlijk van de noodhulp en humanitaire hulp, totdat er definitieve stappen worden gezet naar meer democratie.
-Wees dus niet ontmoedigd, want naarmate je verder gaat naar je innerlijke kern, krijg je een kans om eens en voor al alle frequenties van dissonerende aard naar het Licht te brengen die niet je hoogste goed dienen.
-Dus voor eens en altijd: wij respecteren de Europese Rekenkamer volledig, wij zetten de Europese Rekenkamer niet onder druk, en wij doen ons best om de aanbevelingen van de onafhankelijke controle-instelling die de Europese Rekenkamer is, uit te voeren.
-Om deze en andere redenen schaar ik mij volledig achter het huidige verslag, en ik wijs met name op paragraaf 16 van de ontwerp-resolutie, waarin de Commissie wordt opgeroepen om eindelijk het specifieke karakter van kust- en traditionele visserij in het gemeenschappelijk visserijbeleid te erkennen. Tot nu toe is deze kleinschalige visserij stiefmoederlijk behandeld.
-De Europese Unie moet er inspiratie uit putten en zich actiever opstellen in haar betrekkingen met bestaande en opkomende wereldmachten, om de reputatie van 'politieke dwerg' op het gebied van internationaal beleid zo voor eens en voor altijd van zich af te schudden.
-God stond Satan en Adam en Eva toe nog een tijdlang te blijven bestaan, zodat de blaam die als gevolg van deze strijdvragen op God rustte, eens en voor altijd uit de weg zou kunnen worden geruimd; Satan werd hierdoor ten volle in de gelegenheid gesteld zijn bewering waar te maken. — Job, de hoofdst. 1 en 2; Spr.
+De eerste en belangrijkste stap naar een effectieve en duurzame sociale integratie van de meest achtergestelde gebieden wordt gezet als wij voorgoed een einde maken aan elke vorm van uitsluiting en gettovorming.
+Ik zal het voor eens en altijd bewijzen bij de Olympische try-outs.
+Maar één Verlosser zal ontdoen van deze plaag eens en voor iedereen... u beschermen uw bunker, upgrade uw wapens, maar vooral deze verdomd vuile zombies te dodenBesturingselementen: Speel spel in: Klein scherm - Groot scherm - Spel in volledig scherm Nauwe fullscreen
 Als wij dit onderwerp willen behandelen, zullen wij de nietwaarheidsgetrou we aanduiding voor de sedert het einde van de Tweede Wereldoorlog in onvrijheid levende Aliddeneuropeanen — nl. het begrip „communist nations" — voor eeuwig en altijd uit ons vocabulaire moeten bannen.
-Het gaat er dus om langzaam maar zeker en definitief de mentaliteit in de verschülende Üdstaten te veranderen, te zien dat de tidstaten definitief besluiten tot een communautaü optreden op het gebied van justitiële samenwerking en op het gebied van de nog heel wat intensievere en nauwere politiële samenwerking.
-Deze passage contrasteert het offersysteem in het oude verbond onder een feilbare hogepriester, een tijdelijke tabernakel en de bloedoffers van dieren met het eens voor allen offer van Christus, die het nieuwe verbond inluidde zoals hij de volmaakte, hemelse tabernakel binnentrad.
-… Een veel grimmiger, ja volwassener portret dan zijn voorganger ‘Pubers Bestaan Niet’, die intussen scoorde tot in Australië. (…) Ontroerend Goed levert evenwel een knappe voorstelling af (…) Ze stelt de enige echt gevaarlijke vraag: niet waar, maar wie je tiener is.
-De Unie beschikt voor de financiering van haar uitgaven over eigen middelen, dit zijn ontvangsten van fiscale aard die eens en voor altijd aan de Gemeenschap zijn toegekend en haar van rechtswege toekomen, zonder dat de Lid-Staten daarover nog een besluit moeten nemen.
-Wat de toekomst betreft lijkt mij het grootste probleem dat we niet de indruk moeten wekken dat we ons nu terugtrekken, dat het meeste werk erop zit, dat de bladzijde definitief omgeslagen is.
-Het Verdrag erkent niet expliciet de rechtspositie van de vrijwilliger.
-Als u dat een systeem, dat is schoon, veilig en volledig functionerende wilt, aarzel niet en verwijderen Security Bytes 2015 eens en voor altijd.Hoe te verwijderen Security Bytes 2015 Verwijderen Security Bytes 2015 van Windows 7 en Windows Vista Opnieuw opstarten naar de computer.
-Het zou zinvoller en consequenter zijn om daar voor eens en voor altijd duidelijk over te zijn. We zouden er beter aan doen onze betrekkingen met dit grote land op een andere manier te verdiepen, namelijk met partnerschapsovereenkomsten, in plaats van Turkije een aansluiting in het voor uitzicht te stellen die we toch voor ons uit blijven schuiven.
-Tot slot hebben we een algemene gedragscode nodig die van toepassing is op de lidstaten zodat ze hun verantwoordelijkheden nemen en eindelijk eens ophouden Europese successen toe te schrijven aan nationaal beleid en nationale fiasco's af te schuiven op de Gemeenschap.
-Volgens mij is nu de tijd rijp de stap naar de toekomst te nemen en op alle mogelijke manieren te streven naar een dekkend wereldwijd moratorium op het uitvoeren van de doodstraf als tussenfase naar een definitief verbod.
-Wij zijn ervan overtuigd dat het Europees Parlement kampt met een imageprobleem, maar wij menen dat de Raad nu eindelijk begrip moet hebben voor de noodzaak om eens en voorgoed dit principe van gelijk loon voor gelijk werk ook voor het Europees Parlement toe te passen.
-Alleen op deze manier komen wij tegemoet aan de reële problemen van de andere landbouw in Europa, die heterogeen en niet homogeen is.
-Niet alleen omdat het wel uniek en spannend is vanwege de inkijk in de cilinder, maar vooral ook om voor eens en voor altijd af te rekenen met het eeuwige euvel van alle vlamhappers, namelijk het corroderen van de cilinder en de zuiger door de hete en natte vlamgassen die naar binnen gezogen worden.
-Het besluit van de Top „een toetredingsproces te starten met de tien kandidaatlanden in Centraal- en Oost-Europa en met Cyprus" luidt een nieuw tijdperk in de ontwikkeling van Europa in. Het is zeer positief dat de staatshoofden en regeringsleiders van de EU de leidraad hebben gevolgd van de aanbeveling die het Parlement net vóór de Top met een grote meerderheid aannam.
-De juridische basis voor het intrekken van een ontwerp resolutie en het opnieuw gebruiken van dezelfde ontwerpresolutie door andere leden, bevindt zich in beginsel in lid 5 van artikel 64.
-Daarom moet volgende week als de Raad bijeen komt, alles in het werk worden gesteld om tot een besluit te komen, en als het niet anders gaat moet dat besluit met meerstemmigheid worden genomen, om eindelijk te bewijzen dat de Gemeenschap nog leeft.
-Ik wil dan ook de oproep van mijn voorzitter, de heer Cohn-Bendit, aan de Europese Commissie, aan de heer Verheugen onderstrepen om eindelijk nu eens heel concreet duidelijk te maken wat de veranderingen zijn die wij van Turkije verwachten.
 Men moet eindelijk de werkelijkheid onder ogen zien en de onderzeeër overbrengen, met alle garanties voor de veiligheid, naar een Britse haven die voldoet aan alle voorwaarden voor zijn reparatie, voordat het te laat is; voordat de "Onvermoeibare" ons allemaal, dit wil zeggen alle Europese burgers en Europese afgevaardigden, moe maakt.
-Nog beter: één apparaat vervangt nu alle afstandsbedieningen – de nieuwe Smart Remote. De passende app op uw smartphone of tablet laden, via Bluetooth met elkaar verbinden en het zoeken naar de passende afstandsbediening is voor altijd voorbij. Best wel slim, of niet?
-Deze verkiezingen vormen een unieke gelegenheid om definitief een streep te zetten onder de slechte praktijken van het verleden, die het land tot bankroet hebben gebracht, in oorlog hebben gestort en in een neerwaartse spiraal van onderontwikkeling en armoede hebben gesleurd.
-Wij hopen dat dit verslag eens en voor altijd een ommezwaai zal betekenen, echte ontwikkeling tot stand zal brengen en concrete antwoorden zal geven aan de nieuwe generaties die, hoewel geïntegreerd in de Europese context, willen wonen en werken op de plek waar ze zijn geboren.
-Daarom eisen wij dat er bij de WTO duidelijkheid geschapen wordt over alle importbepalingen, teneinde alle vraagtekens weg te nemen over regels zoals die er zijn voor etikettering, verpakking en douanetarieven, waaraan een bedrijf moet voldoen dat goederen naar een bepaald land exporteert.
-Dus ik ga deze communicatie in met een Licht hart, maar met vastberadenheid om deze zaak helemaal uit te zoeken, betreffende video’s van orbs. Ik heb erover nagedacht wat je zei en gelezen en opnieuw de laatste communicatie (hierboven staand dus) heel vaak gelezen.
-Ten slotte vraag ik een duidelijke reactie van de Commissaris op het voorstel om met ingang van 2005 een apart directoraat-generaal te creëren voor boekhouding en fraudebestrijding, zodat aan de functievermenging in het huidige DG Begroting radicaal een eind komt.
-Wij kunnen daar veel bijdragen, opdat eindelijk de onafhankelijkheid van die staten bevestigd wordt, opdat de democratie die daar zeer jong is, wordt uitgebouwd, opdat een rechtsstaat tot stand komt, opdat de mensenrechten geëerbiedigd worden en een civiele maatschappij mogelijk wordt.
-De vorming van de Europese Gemeenschap, met een gemeenschappelijke markt voor de economieën van zowel de overwinnaars als de verliezers van de Tweede Wereldoorlog, was een vredesproject op basis van economische samenwerking, bedoeld om eens en voor altijd te voorkomen dat een nieuwe wereldoorlog haar oorsprong zou vinden op het Europese continent.
-Evenals de Commissie erkent het Comité ten slotte dat bijzondere maatregelen ter ondersteuning van de produktie van aardappelzetmeel moeten worden genomen.
-Mijn bedoeling is niet zout te wrijven in deze wonden uit het verleden, maar juist bij te dragen tot hun genezing.
-Het getuigenis van 'de leider van onze gehele inlichtingengemeenschap', zoals president Bush hem noemt, brengt een ieder weer bij de les: De Amerikaanse regering lag, en naar nu blijkt ook ligt, volledig op ramkoers met Iran. De Amerikaanse argumentatie rondom Iran is een dynamisch proces.
-namens de PPE-DE-Fractie. - (FR) Mevrouw de Voorzitter, het sluiten van een vrijhandelsovereenkomst tussen de Europese Gemeenschap en de Samenwerkingsraad van Arabische Golfstaten is sinds 1988 het onderwerp van onderhandelingen geweest, en het lijkt er op dat deze binnenkort definitief worden afgerond.
-Om dit te vermijden leggen wij aan de plenaire vergadering amendementen voor - in de hoop dat deze worden aangenomen - waarin wordt gewezen op de verplichting ter informatie en verdediging van de consument een etiket aan te brengen op de op deze manier vervaardigde producten of waarin wordt voorgesteld een termijn van vijf jaar vast te stellen, waarna definitief moet worden afgezien van de mogelijkheid suiker aan de wijn toe te voegen.
-Toen de band in 1999 werd opgeheven, lag er een stapel songs voor een nieuwe cd klaar, maar door het vertrek van zanger Marco naar The Haunted en het ontbreken van een platencontract besloot de band er definitief mee te stoppen.
-Mijnheer MacSharry, ik hoop dat dit de goede keer zal zijn: ik beschik immers over een lange lijst met opmerkingen van de FAO over de schadelijke gevolgen van de export van eieren, gevogelte en pluimvee als gevolg van het gebrek aan controle bij hun aankomst in derde landen.
-Welke initiatieven gaat de Commissie ondernemen, o.a. in het licht van de resolutie van het Europese Parlement van 16 september 1982 over lozing van kernafval in de Atlantische Oceaan door Nederland, België en het Verenigd Koninkrijk, om België te bewegen definitief van het dumpen af te zien ?
-Mijnheer de Voorzitter, mijnheer Barrot, mijnheer Brown, u hebt het al gezegd, twintig jaar geleden viel de Berlijnse muur, waarmee voorgoed een einde kwam aan het model dat erdoor belichaamd werd, en dat sowieso al enige tijd ten dode opgeschreven was.
-Stirbois (NI). - (FR) Mijnheer de Voorzitter, het verslag van mevrouw Marinucci is een goed verslag want het be vat een heel duidelijke constatering: de werkloosheid on der vrouwen is hoger dan die onder mannen.
-Voor eens en voor al moet de Raad begrijpen dat, als de lidstaten hun voordeel niet zoeken in het gemeenschappelijk voordeel, wij stukjes soevereiniteit zullen moeten overdragen aan andere mogendheden die zich heel goed rekenschap hebben gegeven van de voordelen die eenwording en integratie met zich meebrengen.
-(EN) Mijnheer de Voorzitter, ik juich het voorstel van de Commissie ten zeerste toe. Als het in enigszins gewijzigde vorm zou worden aangenomen, zou dat een aanzienlijke verbetering van het huidige systeem betekenen en zou zelfs de basis kunnen worden gelegd voor de definitieve oplossing van het probleem met het comitologie-systeem dat ons al jaren parten speelt.
-Punt 13 van dit arrest is bijzonder belangrijk: “Hieraan zij toegevoegd, dat de beroepsrisico’s die door de werkgever moeten worden geëvalueerd, niet eens en voor altijd worden vastgesteld, maar voortdurend evolueren, met name als gevolg van de steeds betere arbeidsomstandigheden en het wetenschappelijk onderzoek op het gebied van beroepsrisico’s.”
-Zoals u al zei heeft de Commissie gisteren besloten de vrijwaringsclausule tot na 30 april te verlengen, en ik neem daar nota van; maar wanneer zal het besluit van de Raad over de associatie van de LGO's bij de Europese Unie nu eens eindelijk gewijzigd worden, zodat eindelijk de bezem door deze situatie gehaald wordt?
-Het kan zijn dat we langzamerhand dichter bij een betere situatie komen, maar we moeten onszelf geen zand in de ogen strooien en geloven dat de nieuwe wet, de nieuwe richtlijn, een nieuwe autoriteit voorgoed kan zorgen voor transparantie en misbruik op de financiële markten kan voorkomen.
-Het enige dat in termen van configuratie in de meeste gevallen is vereist voor het lezen van news, is de NNTPSERVER in te stellen (meestal slechts éénmalig in het bestand .profile): export NNTPSERVER=news.acme.xz Om in postings het From-adres goed te krijgen, kunnen een aantal programma's als vereiste stellen: export NNTP_INEWS_DOMAIN=acme.xz 5.2 Hoe stel ik een offline news-reader in?
-Ik vind dat we eindelijk moeten ophouden met mekkeren en elkaar de schuld te geven. We hebben genoeg besluiten genomen en doelstellingen bepaald en moeten nu eindelijk beginnen onze besluiten uit te voeren en onze doelen te verwezenlijken.
-Daar vindt een ouderwetse personencontrole plaats, Europese Unie of niet. Het gaat er hier dus om in dit debat om na een Unie van het kapitaal, te komen tot een Unie van de burger.
-De Commissie benadrukt derhalve dat als 1999 het jaar moet worden waarin de kwestie van het geweld tegen vrouwen definitief bespreekbaar wordt gemaakt, er dan ook voor moet worden ge zorgd dat de voor de uitvoering van deze belangrijke taak noodzakelijke instrumenten en financiële middelen beschikbaar zijn.
-Het lopende programma moet spoedig ontmanteld worden, en wel zodanig dat we die ontmanteling kunnen controleren. Noord-Korea moet verder toestaan dat er vanaf nu permanente controle wordt uitgeoefend en het moet zijn internationale verplichtingen aanvaarden en nakomen.
-Middels amendement 3 moeten we er echter bij de Raad op aandringen dat hij nu voor eens en voor altijd - na gedurende vijf of zes jaar voorstellen op tafel te hebben gehad - de moed heeft om een systeem vast te stellen waarmee het probleem van de consumptieaardappel in de hele Europese Unie door middel van een GMO kan worden geregeld.
-Een dergelijke evaluatie wordt evenwel niet verplicht gesteld. Deze tekortkoming heeft ons belet om een wetsvoorstel te doen waarmee eens en voorgoed een punt werd gezet achter de conflicten die veeleer worden ingegeven door gevestigde belangen dan door het argument dat voor ieder van ons doorslaggevend zou moeten zijn, namelijk de bescherming van de burger op het werk en in de maatschappij.
-Ik hoop van harte dat de verkiezingen van zondag een definitieve bevestiging zullen betekenen van de weg van de Republiek Moldavië naar een volledige democratie, een rechtsstaat en een functionele markteconomie, en uiteindelijk naar de Europese familie waarvan ik hoop dat de Republiek Moldavië volledig deel uit zal maken in de nabije toekomst.
+In aanvulling op dit alles, ze zette een kom - waarschijnlijk voor eens en voor alle aangewezen als Gregor's - in die ze had goot wat water.
+De onderzoekingen van Tyndall en van Louis Pasteur, op het vlak van bacterien en protozoan, hebben eens voor al wetenschappelijk bewezen dat wat Redi eerder bij grotere organismen aantoonde ook van toepassing is op deze micro-organismen.
+Mijnheer de Voorzitter, bij gebrek aan tijd kan ik andere onderwerpen zoals de milieubescherming of de ontwikkeling in het algemeen, niet meer behandelen.
+Ik zal voor altijd bewijzen dat ik geen vis ben.
+Onbewust heeft het Israëlische volk het bestaan van twee staten eens en voor altijd erkend.
+Als ik m'n DNA-resultaten heb, kan ik echt bewijzen dat ik geen Shay ben.
+Ik beloof je dat ik alles zal uitleggen voor eens en altijd waarom ik deed wat ik deed.
+We gaan voor eens en altijd... uitzoeken wie die Escalade bestuurd heeft.
+Dan zullen we eens zien wie hier werkelijk de baas is.
+De juridische basis voor het intrekken van een ontwerp resolutie en het opnieuw gebruiken van dezelfde ontwerpresolutie door andere leden, bevindt zich in beginsel in lid 5 van artikel 64.
+Deze voorstellen zijn buitengewoon belangrijk voor de verkeersveiligheid en de Commissie vervoer en toerisme is van mening dat de Commissie bij deze voorstellen de verkeersveiligheidsaspecten zwaar heeft ondergewaardeerd en ik ben blij dat ook de eerst verantwoordelijke commissie tot die conclusie is gekomen. Ik wil u daarom vragen, Voorzitter, naast commissaris Bangemann ook commissaris Kinnock voor dit debat uit te nodigen.
+Het moet ooit eens in alle helderheid worden gezegd: inderdaad, we nemen onze verantwoordelijkheid op ons voor wat er is misgegaan.
+DE VERMAATSCHAPPELIJKING VAN DE KUNST Vroeg in de eenentwintigste eeuw lijkt de notie van de populaire cultuur zich voorgoed gevestigd te hebben als het heersende paradigma met betrekking tot de kunsten.
+Zal de globalisering van de wereldeconomie voor Europa de definitieve structurele werkloosheid betekenen die onze samenleving verbrokkelt, de sociale verworvenheden uitschakelt en het Europees sociaal model, de vrucht van een subtiele vermenging van economische efficiëntie en solidariteit tussen mensen, voor altijd vernietigt?
+Laten we nu eens aannemen dat het moderne onderzoek zou hebben aangetoond, dat alle afzonderlijke uitspraken van Marx inhoudelijk onjuist zijn — iets wat overigens niet het geval is.
+Mijnheer de Voorzitter, als oud-rapporteur voor de strategie van de uitbreiding ben ik natuurlijk buitengewoon tevreden over de nieuwe voorstellen die voorliggen van de zijde van de Commissie aan de Raad om de ongelukkige tweedeling in de kandidaat-lidstaten eindelijk op te heffen.
+De Bijbel vertelt ons duidelijk, voor eens en altijd, over Gods liefde met de volgende woorden: “Want God had de wereld zo lief dat hij zijn enige Zoon heeft gegeven, opdat iedereen die in hem gelooft niet verloren gaat, maar eeuwig leven heeft” (Johannes 3:16).
+Ten slotte zou ik willen zeggen dat het belang ligt in de inhoud zelf van het verslag, die ik in grote trekken als volgt kan omschrijven : om te beginnen willen wij dat de ingevoerde regeling eens en vooral een eind maakt aan die extra last die de migrerende werknemers onder vinden door de taalmoeilijkheden bij de arbeidsrechtspraak in het gastland.
+Doel van deze beschikking is een definitieve oplossing van problemen met de uitvoering van de extra heffing die zich in het verleden in Italië hebben voorgedaan; deze kan daarom niet worden gebruikt als een precedent voor mogelijke toekomstige problemen met de uitvoering van deze heffing in Italië of in andere lidstaten.
+Ik koester geen wrok tegen u, maar hopelijk gelooft u nu dat ik Diana niet dronken wou voeren.
+We moeten definitief vaststellen of professor Bennett een spion is.
+Dit geldt niet voor alle landbouwprodukten, maar volgens mij zou voor graan het woord „overschotten" volledig en voorgoed uit onze debatten moeten verdwijnen.
+Ik weet dat de repliek op dit argument luidt dat we eens en vooral het probleem van de nog steeds toenemende landbouwoverschotten moeten oplossen.
+Ik ben het volkomen eens met wat de heer Casini heeft gezegd. Wij zouden het over de termijnen voor altijd eens moeten worden om dergelijke ietwat steriele discussies te voorkomen.
+Ik denk dat het voor het bedrijfsleven in de Gemeen schap heel goed zou zijn als de mogelijkheid van derogatie, dus van het niet of op een andere wijze toepassen van overheidsregels, kennelijk mogelijk zonder vitale andere belangen te schaden, ook in andere secto-
+1. als wij vooruitzicht op een sociaal en civiel Europa willen krijgen, dan moet het Constitutionele Verdrag voor de EU eindelijk in de archieven worden opgeborgen;
+Eens en voor altijd te ontdoen van het, raden wij u aan een veelzijdig en effectief middel van Nonacne pillen voor acne gebruiken.
+In plaats van een hogepriester te hebben die jaarlijks slachtoffers voor zijn eigen zonden en die van het volk moest brengen, hebben christenen als hun Hogepriester Jezus Christus, die zonder zonde is en die eens en voor altijd een slachtoffer voor zonden heeft gebracht.
+Indien wij deze inbreuken wensen in te dammen is het van belang dat tijdens de komende Intergouvernementele Conferentie en in het volgende Verdrag definitief komaf wordt gemaakt met het sociaal en politiek deficit, waaronder de Europese eenmaking lijdt en die haar toekomst onherroepelijk in twijfel kan brengen.
+WhatsApp gesprekken: meester hen eens en voor altijd – ComputerHoy
+Dan moeten we ze voor altijd laten zien dat hij geen god is.
+En nu, vandaag... komen Westerse en Arabische leiders samen... om de coalitie te formaliseren... om voor eens en altijd... het internationale terrorisme tegen te houden.
+- Het zou een kleine prijs zijn om te betalen... als voor eens en voor altijd kon worden bewezen dat de dood niet het einde is.
+De Tovenaar... is de enige die de kracht heeft de duisternis te vernietigen voor het alles vernietigt.
+En laten we beginnen door het met elkaar, Commissie en Parlement, eens te worden, laten we trachten ook de Raad erbij te betrekken, en laten we proberen te bereiken dat we het institutionele thema dat u naar voren hebt gebracht zonder de druk van de slotonderhandelingen van de toetreding van een nieuw land tot een oplossing kunnen brengen.
+We gaan voor eens en altijd uitzoeken wie de hoofdluizen heeft gehad
+Wij zullen erop toezien dat de slachtoffers, die in deze ramp geen enkele verantwoordelijkheid dragen, door de vervuiler integraal worden vergoed. Wij willen dat uit deze olieramp ook daadwerkelijk lering voor de veiligheid op zee wordt getrokken, zodat de vervuilers nooit meer met het leven van onze kustbewoners durven te spelen.
+Vervolgens offert hij zichzelf op om ook Zanon en diens schip te vernietigen.
+Geloof in het feit dat de Heer gedoopt werd door Johannes de Doper in de Jordaan om alle zonden weg te nemen en dat Hij gekruisigd werd, maakt het voor de zondaars mogelijk om van alle zonden in hun hart gered te worden.
+Om dat te bereiken heeft de Commissie echter voor de allerslechtste methode gekozen; in plaats van technische en controlemaatregelen te nemen die een van de meest problematische gebieden op het vlak van de vangst en verhandeling van jonge vis in Europa voor eens en voor altijd tot de orde roepen, gaat de Commissie deze vissers ontheffen van de verplichting tot naleving van de regels, en wettigt zij wat onwettig is.
+Laat het voor eens en altijd worden gezegd, kan WordPress alles doen.
+Enerzijds wil men thuis een volledige etikettering van alle levensmiddelen en anderzijds geniet men tijdens een van de talrijke buitenlandse reisjes zonder enig bezwaar en zonder enig etiket van allerlei lokale lekkernijen.
+Dan weten we wie deze mensen waren.
+Het gaat om de vraag of we in Europa in de toekomst in staat zullen zijn om beslissingen te nemen.
+Nu zowel het Zuid-Afrikaanse parlement als het Europees Parlement zich opmaken voor verkiezingen, willen beide partijen deze overeenkomst nu voor eens en voor altijd veiligstellen.
+Na de verschrikkelijke overstromingen in Duitsland en zijn buurlanden werd verwacht dat het klimaatprobleem nu eindelijk eens opgelost zou worden in Johannesburg. Toen werd er gezegd dat er andere punten op de agenda stonden.
+Gebruik je verstand, je humor en je drang naar avontuur om je aartsvijand voor eens en altijd te verslaan. Laat zien dat je de beste piraat in de Caraïben bent!
+Anderzijds is de situatie niet met één pennentrek te veranderen, en de moeilijkheden dienen zich aan zodra de concrete omzetting en de details ervan ter sprake komen.
+In ieder geval moeten we toewerken naar een gestandaardiseerde implementatie, dat wil zeggen naar uniformiteit bij de controles, zodat er een einde komt aan de ergerniswekkende situaties waarmee we op dit moment op de luchthavens worden geconfronteerd.
+In zijn grote wijsheid besloot Jehovah dat hij de rechtmatigheid en rechtvaardigheid van zijn soevereiniteit eens en voor altijd zou bewijzen.
+Wat we proberen is een beter evenwicht te vinden met de overheersende invloeden van technologische structuren en tegelijker tijd de hoogste ethische normen en passende cultuurwaarden te respecteren. " gevaarlijke stoffen ... ongezonde lucht.
+Ik vraag nogmaals wat zowel de negatieve als de positieve effecten van een algemeen verbod zijn. Hoe kunnen wij de mensen beschermen tegen misbruik van schadelijke stoffen, zonder die te verbieden ?
+Omdat we zo zwak zijn, kunnen we niet wedergeboren worden als we niet geloven dat Jezus ons eens en voor altijd geheel van al onze zonden waste met Zijn doopsel en bloed.
+Winnaars mogen verder, we doen een paar ronden en daarna weten wie de baas is.
+Ze bewijst eens en vooral dat vrouwen kleren laten dragen, de eerste stap is naar een gezondere Ferengi economie.
+Nadat zij gehuwd zijn of moeder geworden, houden de vrouwen definitief op met werken.
+Israël moet zich definitief terugtrekken uit de bezette gebieden en eindelijk, eens en voor altijd, de Palestijnse Autoriteit erkennen, wier nieuwe diplomatieke activiteiten een zekere toekomst beschoren zal zijn zolang deze in de wijze handen blijven liggen van Yasser Arafat. Men mag evenmin de kwestie-Irak uit het oog verliezen.
+Het vertrouwen van het bedrijfsleven en van alle Europese burgers in de opbouw van de gemeenschappelijke markt hangt immers volkomen af van de mate waarin de buitengrenzen efficiënt gecontroleerd worden.
+Er moet ook onder de aandacht gebracht worden dat de afwezigheid van homogene staten tot de verschrikkingen van de burger- en stammenoorlogen heeft geleid.
+Door die zware test te doorstaan, weerlegde Jezus eens en voor altijd de bewering van de Duivel dat geen enkel mens God onder beproeving trouw zou blijven.
+Dit opent nieuwe perspectieven want het gaat hier zowel om een nieuwe vorm van bestrijding van de honger in de wereld, als om een nieuwe vorm van de verschillende benaderingswijzen die de Gemeen schap in haar ontwikkelingsbeleid kan toepassen.
+Met het oog op de toekomst moeten wij vol gens mij dringend uitmaken wat wij onder een eenvormige sociale minimumnorm verstaan. Toch verzoek ik u dit akkoord goed te keuren, want anders hebben wij niets.
+Kanselier Kohl sprak, helemaal in de kerstsfeer, van een karavaan die verder trekt.
+Als verzekeringsmaatschappijen overal op het grondgebied van de Unie kunnen opereren zonder op grenzen te moeten letten, moeten ook degenen die hun producten aanbieden volgens algemeen geldende regels kunnen werken. Ze moeten dus overal hun diensten kunnen verlenen en zich overal vrij kunnen vestigen.
+- Dat moeten we onder controle krijgen.
+Het lijkt niet dat het Nieuwe Testament op zich alleen ons toestaat op een duidelijke manier en voor eens en altijd over het vraagstuk van de mogelijke toetreding van vrouwen tot het priesterschap te beslissen.
+Galileo maakte tekeningen van de planeet... en concludeerde dat het 'n wereld was... geen godheid en ook geen vuurbal.
+De Commissie heeft overigens voorgesteld om bij de nieuwe voorstellen betreffende de verordening van het Regionaal Fonds en ook betreffende de geïntegreerde
+Is het wel verstandig deze gevoelens van vervreemding te blijven voeden als wij het risico lopen dat de burgers zich definitief gaan afkeren van degenen die voor hen besluiten?
+Voor wat betreft het standpunt dat de Europese Commissie in dit debat inneemt, heb ik voorgesteld dat definitieve criteria aan de exploitanten moeten worden gegeven door middel van een richtsnoer voor het vaststellen van de berekeningsmethode voor afwikkelingsprovisies zodanig dat een adequate en transparante behandeling door de sector kan worden gewaarborgd.
+Het Europese Parlement spreekt zijn afkeuring uit over de constante schendingen van de rechten en de vrijheden van het Koerdische volk en verzoekt de Raad een initiatief te nemen om te bereiken dat het Koerdische probleem wordt opgenomen in de toekomstige regelingen om de vrede in deze re gio te herstellen.
+Daarom moeten we de bestaande procedures vereenvoudigen. Bij een volgende herziening van de Verdragen moeten we deze les goed in gedachten houden en de werkingssfeer inzake de communautaire bevoegdheden voor eens en altijd vastleggen.
+Als wij op de interinstitutionele conferentie op 20 december, naar ik hoop, op deze beide gebieden tot een oplossing kunnen komen, dan zal dat een zoveel ste bewijs zijn van de wil van alle zijden om tot een nauwe en vertrouwensvolle samenwerking te komen.
+Als ik Clemenceau zou mogen parafraseren, zou ik zeggen dat Europa een te serieuze zaak is om alleen overgelaten te worden aan de diplomaten.
+Bovendien weet de Commissie dat ik graag zou hebben dat DG IV erop toeziet dat onwettig verleende steun eerlijk wordt terugbetaald.
+In vergelijking met de periode voor de inwerkingtreding van de marktordening is de import in Duitsland sterk gedaald.
+Het moet nog eens gezegd worden dat het de taak van de Commissie en niet van de Raad is om toezicht uit te oefenen op de uitvoering van de EU-Verdragen .
+Ik wil hier in alle duidelijkheid het sprookje de wereld uit helpen dat de oppositie in Duitsland altijd een commissaris heeft gestuurd.
+Het heeft er echter alle schijn van dat de automobielindustrie en de oliemaatschappijen er weinig aan doen om te helpen deze doelstellingen te ver wezenlijken.
+Laten wij hopen dat Turkije het nieuwe millennium in 2000 luister bijzet door de doodstraf via een democratische parlementaire procedure definitief af te schaffen.
+Ik stel de vraag heel open. Waarom zou een maatschappij over de kracht moeten beschikken om het klonen eens en voor altijd onmogelijk te maken, als zij niet in staat is, te voorkomen dat ouders in Europa hun kind laten aborteren omdat het een meisje is, terwijl zij een jongen wensen?
+Wij pleiten er dan ook voor dat de interinstitutionele akkoorden met hun inhoud waarmee wij instemmen, slechts zouden afgesloten worden onder de opschortende voorwaarde dat de Europese Raad zijn beslissing van Edinburgh honoreert en er eens en voor altijd een einde wordt gesteld aan het geheime genootschap dat de Raad heet.
+Bijstand is noodzakelijk voor eens en altijd te bewerken. wet.
+De beste voorstellen en initiatieven van de meest democratische partijen van de bevriende en nauw
+We worden niet geleidelijk geheiligd door in Jezus te geloven, maar we worden in een keer voor altijd rechtvaardig door in het doopsel en het bloed van Jezus te geloven, het evangelie van spirituele zaligheid.
+Maar dat zijn ook allemaal kwesties van politieke controle en daarom moeten wij niet met elkaar wedijveren, maar onze kennis en ons werk aanvullen.
+Er staan kennelijk zo veel belangen op het spel dat wij daardoor worden weerhouden ons krachtig op te stellen tegen de regeerders van dat beproefde land.
 De heer Collins (voorzitter van de Commissie voor milieubeheer, volksgezondheid en consumentenbescherming
-Ik hoop dat de Europese landbouwers zich zullen ver­enigen en erin zullen slagen deze Commissie eens en voorgoed te doen verdwijnen en dat zij erin zullen sla­gen de top te hervormen van de COPA, die hen slecht vertegenwoordigt tegenover de EG, die eens te meer de verwachtingen van de landbouwers heeft be­schaamd.
-In de eerste plaats wil ik hun laten weten dat wij dit debat niet kunnen en niet mogen afsluiten zonder een serieus en rigoureus politiek compromis te hebben bereikt om nu eindelijk eens een einde te maken aan de doden, de uitbuiting en de mensenhandel, kortom met al die verschrikkelijke menselijke tragedies die wij dagelijks meemaken aan de zuidelijke Middellandse-Zeekust.
-Met deze cd bewijst de band eens te meer met metal weinig te doen te hebben, en zich eerder tot de alternatieve rock kan rekenen.Met die info in het achterhoofd denk ik dat de band het bij het gros van de oude fans definitief heeft verbruid, voor zover dat nog mogelijk was.
-Tegelijkertijd zou er eindelijk een einde moeten komen aan de versplintering, zoals het ook zo mooi heet in de brochure van de Commissie: van lappendeken tot netwerk.
-Er moet dan ook een regeling komen die duidelijk stelt - dat is ook het standpunt waar de Landbouwcommissie sinds kort op staat - dat er coëxistentie moet zijn. Dat houdt in dat degenen die gebruik willen maken van genetisch gemodificeerde organismen moeten waarborgen dat degenen die dat niet willen er niet mee in aanraking kunnen komen.
-De gezamenlijke leden van de Commissie Reglement hebben echter gemeend dat, als een gedeputeerde bijvoorbeeld kort voor een vergaderperiode aftreedt en de Commissie Reglement niet meer bijeen kan komen, het wenselijk zou zijn een vereenvoudigde procedure toe te passen.
-Dat is de manier waarop we altijd hebben gewerkt. We zijn een lange tijd bezig geweest met het laatste album, dus ik vind het moeilijk om me er van los te maken, objectief te luisteren en zeggen of ik er blij mee ben. Vraag het me nogmaals over een paar jaar en dan zal ik in staat zijn om een beter antwoord te geven!
-— een verordening tot wijziging van Verordening (EEG) nr. 486/85 betreffende de regeling die van toepassing is op landbouw produkten en bepaaldegoederen afkomstig uit de verwerking van landbouwprodukten van oorsprong uit de landen van Afrika, het Caraïbische gebied en de Stille Oceaan (ACS-landen) of de landen of gebieden overzee;
-De boodschap die dit Parlement destijds heeft afgegeven was helder: dat frauduleuze praktijken van misleidende bedrijvengidsen een ernstig probleem vormen, dat tienduizenden van onze kleine ondernemingen, vrijwilligersorganisaties en zelfs charitatieve instellingen ten prooi vallen aan deze frauduleuze praktijken, en dat we een eendrachtige aanpak nodig hebben om dit bedrog voor eens en voor altijd een halt toe te roepen.
-Die problemen wou Meubili voor eens en altijd uit de weg ruimten. "Wij legden ons oor te luisteren op de markt, en bij verschillende mensen viel de naam van Combell.Wij namen contact met hen op, en waren zeer aangenaam verrast door de manier van aanpakken, het familiale gevoel, het collegiale dat te vergelijken valt met wat zich ook in ons bedrijf afspeelt.
-In de gelaagde speelfilm También la Lluvia lopen verleden en heden, fictie en realiteit door elkaar.SynopsisSebastián is vastbesloten om met een historisch epos de mythe over het ontstaan van de Westerse beschaving in Amerika voor eens en voor altijd te herzien.Hij wil Columbus' goudzucht en slechte behandeling van de inheemse bevolking blootleggen.
-Daarbij verwijzen we, jawel, naar de principes van de Franse Revolutie die definitief een einde stelden aan het Ancien Régime, principes die bij de beperking van het aantal talen in het gedrang zouden komen, met name de vrijheid om uw taal te mogen spreken, gelijkheid waarmee die taal behandeld moet worden, en broederschap om daar solidair de nodige inspanningen voor te doen.
-Voor de Europese gebieden van doelstelling 2, waar een groot aantal arbeidsplaatsen verloren is gegaan in de kolen- en staalindustrie, was het EGKS-Verdrag van vitaal belang doordat het de mogelijkheid biedt om hoognodige financiële hulp te verlenen.
-Ten tweede moeten we in Europa eens en vooral begrijpen dat we niet als enige op de markt concurreren; we moeten ervoor zorgen dat de systemen die door andere lidstaten worden gebruikt - en door de Europese Unie in haar totaliteit - aantrekkelijk zijn voor serieuze bedrijven die de markt willen betreden en zich willen vestigen als ware Europese exploitanten.
-Wanneer dit niet gebeurt kan geen verdienstelijk werk worden verricht en ik heb in mijn naïviteit steeds geloofd dat de Raad verdienstelijk is.
-Maar er is meer nodig, mijnheer de commissaris, want heel Europa, niet dit Parlement, niet de afgevaardigden, niet wij die de mensen vertegenwoordigen, maar de mensen zelf willen dat de kwestie Tsjernobyl nu eens eindelijk opgelost wordt, en voorwaarde daarvoor is dat er een energiebesparingsprogramma komt en dat de sarcofaag wordt gerepareerd.
-Er dreigt nu na de presentatie van de heer Blix in de Veiligheidsraad echter een nieuw gevaar. Dit is het gevaar dat de geloofwaardigheid van de VN en het internationaal recht deze keer niet wordt ondermijnd door eenzijdig handelen van de Verenigde Staten, maar door nalatigheid van de internationale gemeenschap om ervoor te zorgen dat Irak eens en voor altijd afstand doet van zijn massavernietigingswapens.
-Bij vergelijking met hun Amerikaanse en Japanse concurrenten vallen de verschillen onmiddellijk op, bij voorbeeld op het gebied van de hooggeïntegreerde schakelingen (de fameuze „chips"). Ook hebben Europeanen de neiging om in nationale termen te denken over een markt waar, meer nog dan op andere, de grenzen definitief moeten worden afgeschaft.
-Het is noodzakelijk dat de herziening van de financiële vooruitzichten dit gevaar wegneemt en alle, de huidige en de toekomstige Europeanen garandeert dat al hetgeen tot nu toe bereikt is, dat wil zeggen de communautaire verworvenheden die de Unie zo aantrekkelijk maken voor degenen die er nog geen deel van uitmaken, behouden zal blijven.
-In het verslag wordt duidelijke steun uitgesproken voor de zes grote doelstellingen die in het Plan voor Regionale Ontwikkeling en in het communautair bestek worden genoemd, en welker verwezenlijking enerzijds Portugal nader tot de andere EG-lidstaten moet brengen en ander zijds de regio's binnen Portugal nader tot elkaar moet brengen.
-De Commissie is namelijk niet alleen geenszins van plan om eindelijk te proberen een oplossing te vinden voor het probleem van de RAL's, dat jarenlang een van de prioriteiten van ons Parlement is geweest, maar bovendien presenteert zij een ontwerp dat de basis legt om precies dezelfde situatie te krijgen met de landen die vanaf 2004 zullen toetreden.
-Ik zeg niet dat de Commissie niet haar best doet, maar ik ben wel van mening dat nog meer nadruk op deze aangelegenheid moet worden gelegd om eens en vooral duidelijk te maken dat de regering van een Lid-Staat niet, zoals de Nederlandse Regering al vijf à zes jaar doet, maatregelen mag nemen, waardoor een groot aantal producenten in andere landen wordt gedupeerd.
-Zij kwamen naar Johannes en herinnerden zich de Wet van het Oude Testament, zij biechtten dat zij slechts zondigen totdat zij stierven.Zij biechtten ook dat zij, volgens de Wet, nooit met hun goede daden het koninkrijk der hemel konden binnentreden, en hun gedachten keerden terug naar Jezus Christus die al hun zonden voor eens en voor altijd zal uitwissen en de poort naar het koninkrijk der hemel zal openen.
-Wij moeten eens en voor altijd weten of de herhaalde lijk door het Parlement geuite wensen al dan niet hun weerslag vinden in een daadwerkelijke wil van de Commissie en de Raad een Europees gezondheidsbeleid voor te stellen, en wel als strategie en niet alleen als een aantal sectoriële interventies of acties die alle weliswaar lovenswaardig zijn, maar waar geen duidelijke lijn in zit.
+We kunnen de wereld voor eens en altijd vrijmaken van monsters, als we eens goed ons best deden."
+Zwart-wit denkende milieuactivisten moet zich voor eens en voor altijd realiseren dat het verbranden van "eco”-brandstoffen en biomassa de hoeveelheid CO2 in de atmosfeer enorm verhoogt en dat een redelijk, bepalend aandeel kernenergie noodzakelijk is.
+De gebeurtenissen zelf toonden de onjuistheid van deze positie aan. Trotski gaf in 1917 zonder aarzeling zijn fout toe en zette elk idee van hereniging met de mensjewieken voor eens en altijd uit zijn hoofd.
+Elke onderzoeker, Wie is verbaasd dat het feit dat in sommige akkers, voornamelijk in het zuiden van Engeland, soms worden gevonden regelmatige, meestal ronde, maar andere vormen oek, en dezelfde of soortgelijke formaties, hoewel met minder frequentie, bevinden zich op OOK vele andere gebieden met granen over de hele wereld, en is voorts van mening Who Dat voor het optreden van Vergelijkbare constructies niet mogelijk is het vinden van een logische verklaring, moet eens en voor altijd zijn en eeuwig met de naam " Een beetje Tomnoody "
+Maar, anders dan Van Meegeren, vervalst Luc Tuymans geen schilderijen, laat staan schilderijen van oude meesters, en al helemaal geen historietaferelen van vroeger - dat zou pas in één klap duidelijk maken hoe ongerijmd zijn stelling wel is.
+- (EN) Mevrouw de Voorzitter, hoewel ik voor het verslag heb gestemd, heb ik toch het gevoel dat hier - in commissie - de kans gemist is om de elektroshock erin op te nemen en voor eens en altijd een aanbeveling te doen voor een verbod op deze martelende behandeling, die in veel landen van Europa nog steeds wordt toegepast.
+Ik probeer de discussie voor eens en voor altijd te beëindigen met... duidelijke en goede feiten.
+Wij willen echter vooral dat Europa eens en voor altijd besluit of het kernenergie al dan niet wil bevorderen: ofwel kernenergie is gevaarlijk en schadelijk, en dan is ze gevaarlijk en schadelijk in heel Europa, ofwel kernenergie is onze toekomst, onze wetenschap en vooruitgang, en dan moet ze worden uitgebreid tot alle landen van de Europese Unie.
+Naar mijn mening, en gelet op het feit dat het verslag van de Europese Rekenkamer over de tekortkomingen van het controlebeleid nog steeds de voorpagina's haalt en dat is besloten om de illegale visserij voor eens en voor altijd aan te pakken, is het niet aanvaardbaar om sommige overeenkomsten buiten een algemeen kader te houden dat zeer noodzakelijk is als essentiële wettelijke garantie voor een gelijke, niet-discrimerende behandeling van zowel de vissers als de lidstaten.
+Die doorbraak zal er de weg voor banen dat deze plagen eens voor altijd tenietgedaan zullen worden.
+Trotski gaf in 1917 zonder aarzeling zijn fout toe en zette elk idee van hereniging met de mensjewieken voor eens en altijd uit zijn hoofd.
+Anderzijds, mijnheer de Voorzitter, moet de aandacht van de Raad worden gevestigd op het feit dat ons Parlement bij de beoordeling van de ontwerp-begroting-1983 uiteraard rekening zal houden met het gevolg dat de Raad zal geven aan de centraal staande kwestie van het gebruik van de voor het begrotingsjaar 1982 beschikbare financiële besparingen.
+Ik wilde vanavond hier zijn om tegen mijn moeder te zeggen, dat ze voor ééns en altijd, uit mijn buurt moet blijven.
+het allerbelangrijkste motief. Overlast, milieuproblemen, gezondheidsproblemen, geluidshinder en onveiligheid in de steden worden voor het grootste deel door het autoverkeer veroorzaakt.
+Wat het structuurbeleid betreft moet men eindelijk de uitstaande betalingsverplichtingen, de zogenaamde RAL's, verkleinen.
+Nu betaalde het jonge Italiaanse rijk me niet meer om te doden maar om anderen te leren doden die zelf gevaar liepen.
+Naar onze mening dient de Europese Unie nu eindelijk eens - want dit gebeurt niet alleen in Tsjetsjenië maar ook in Turkije, en nog in vele andere landen - de pressiemiddelen te gebruiken waarover zij in verdragen beschikt in de vorm van de democratische clausule en de clausule van de bescherming van de mensenrechten, met als doel slachtingen te voorkomen.
+Er is een wijdverbreid misverstand dat voor eens en altijd uit de weg moeten geruimd: wanneer we spreken over harmoniseren, bedoelen we de problemen oplossen die een gegevensvergelijking in de weg staan.
+Zwart legt de pionstructuur op de koningsvleugel eens en voor altijd vast en wits hoop om deze pion ooit te veroveren lijkt me niet erg realistisch. [Na het meest normale 13...Rd8 bezorgde Felgaer zijn tegenstander Malakhov enige problemen na 14.Rxd8+ Bxd8 15.Rd1 Be7 (15...Bxg5!? 16.Nxg5 Ke7 ) 16.Ne2 maar zelfs nu heeft zwart ontegenzeggelijk mogelijkheden.; 13...b6!? is een nuttige wachtzet, bedacht door Pashikian.]
+Hij ziet nu de alles overheersende strijdvraag van Gods universele souvereiniteit in en hij weet overeenkomstig Gods Woord dat ze spoedig eens en voor altijd ten aanschouwen van de gehele schepping, in Armageddon, „de oorlog van de grote dag van God de Almachtige ”, opgelost zal worden.
+Om deze en andere redenen schaar ik mij volledig achter het huidige verslag, en ik wijs met name op paragraaf 16 van de ontwerp-resolutie, waarin de Commissie wordt opgeroepen om eindelijk het specifieke karakter van kust- en traditionele visserij in het gemeenschappelijk visserijbeleid te erkennen. Tot nu toe is deze kleinschalige visserij stiefmoederlijk behandeld.
+Kunt u, alleen maar door in Jezus te geloven, eens en voor altijd gered worden?
+Mijnheer de Voorzitter, dit voorstel is erop gericht de doelstellingen die al zijn vastgelegd in Amsterdam, in artikel 191 van het Verdrag, definitief ten uitvoer te leggen.
+Uit de ernstige incidenten van afgelopen september blijkt echter dat het nog met name schort aan communicatie en een echte dialoog tussen de politieke partijen van dit land. Zij kunnen het onderling niet eens worden over de toe passing van een, zij het dan minimaal, gemeenschappelijk programma om het land, in weerwil van de economische problemen, definitief uit de crisis te halen.
+U kan in de Raad een meerderheid halen voor deze reeks maatregelen met het oog op een definitief verbod op dit vistuig.
+Deze eigen middelen bestaan uit ontvangsten van fiscale aard die eens en voor altijd aan de Gemeenschap zijn toegekend om haar begroting te financieren, en die haar van rechtswege toekomen zonder dat de Lid­Staten daarover nog een besluit moeten nemen.
+Al deze duizenden jaren heeft God dit toegelaten, zodat de droevige gevolgen van rebellie eens en voor altijd duidelijk zouden zijn.
+Het moment is aangebroken dat de Raad voor eens en voor altijd erkent wat de meerderheid van het Parlement wil.
+Wij verwelkomen het onderzoek... en verheugen ons op het weerleggen van al deze vreselijke beschuldigingen.
+Studies wezen uit dat het hebben van een grotere orbito-prefrontale cortex gerelateerd is aan meer vriendschappen, hetgeen definitief bewijst dat... grootte wel degelijk ertoe doet.
+— Omdat het geloof eens voor altijd werd overgeleverd (vgl. Jud. 3), is de Kerk blijvend gebonden aan het apostolische erfgoed.
+Het éne Evangelie dat als vervulling van de beloften van het Oude Testament door Jezus Christus in volheid eens voor altijd is geopenbaard, is blijvend de bron voor alle heilswaarheid en zedenleer (vgl. DS 1501).
+In ruil voor een schoongeveegd strafblad is de Scorpion vastbesloten om Spider-Man voor altijd het zwijgen op te leggen met zijn giftige angel.
+Als het Milosevic lukt alle te genstand en oppositie daar te verpletteren, worden alle onderhandelingen over de toekomstige status van Kosovo zinloos.
+We zijn onze verdragsverplichtingen niet nagekomen, en ik zou van de gelegenheid gebruik willen maken om niet alleen mijn solidariteit met de betrokkenen uit te spreken, maar ook de Commissie op te roepen om gemeenschappelijk met het nieuwe Oostenrijkse voorzitterschap eindelijk de blokkade van de financiële middelen voor Turkije op te heffen, zodat we echt concrete hulp kunnen bieden.
+Velen hoopten dat de Oost-Duitsers na meer dan veertig jaar communisme volledig hun liefde voor hun vaderland zouden verloren zijn.
+Katjuscha-raketten moeten worden geleverd en getransporteerd.
+De enige mogelijke reactie zou zijn om niet alleen de ondertekening van het protocol ter discussie te stellen, maar om ook definitief af te zien van het openen van de toetredingsonderhandelingen met Turkije. Het is duidelijk dat deze onderhandelingen niet de juiste weg zijn om de rust te herstellen en een relatie op te bouwen waarvan beide partijen profijt hebben.
+Als dat niet gebeurt, blijven wij elkaar zand in de ogen strooien, en in dat geval is het maar beter een eind te maken aan de schijnvertoning die de meerjarige oriëntatieprogramma's dan onvermijdelijk zullen worden.
+Daarom wil ik eens en voor altijd officieel vermeld zien dat Ierland wat de visvangst betreft een netto betaler aan Europa is.
+De uitbreiding met de Oost-Europese landen, waarvan geen enkel land wordt uitgesloten (daaronder vallen de tien landen die toetreding wensen, alsmede Bulgarije en Roemenië) en de prioriteit die aan de toetreding van Cyprus wordt toegekend, zorgen ervoor dat de Europese integratie daadwerkelijk kan worden voltooid en dat een definitief einde kan worden gemaakt aan de conflicten uit het verleden.
+Toestemming voor het uitwerken van
+Deze kameraden menen dat het vraagstuk van de ‘wetenschappelijke’ methode eens en voor al is opgelost met de empirische methode van de natuurwetenschappen en de daarmee overeenkomende positief-historische methode van de maatschappijwetenschappen en hebben er weinig of geen vermoeden van dat juist die methode, die de oorlogskreet was waarmee de burgerlijke klasse van het begin af aan haar strijd om de macht heeft gevoerd, ook heden nog de specifiek burgerlijke methode van wetenschappelijk onderzoek is, die door de vertegenwoordigers van de moderne burgerlijke wetenschap in de huidige periode van verval van de burgerlijke maatschappij theoretisch wel af en toe geloochend, maar waaraan in de praktijk vastgehouden wordt.
+En de Palestijnen moeten ook zelf een aandeel leveren en besluiten om voor eens en altijd een einde te maken aan hun gevechten en zich te concentreren op vrede.
+Kijkers smulden van het idealisme waarmee werd beloofd dat de mensheid in staat zou zijn om oorlog, armoede, racisme en seksisme voorgoed achter zich te laten en met behulp van technologische vooruitgang hand in hand met progressieve waarden de utopie te bereiken: fully automated luxury gay space communism.
+En daardoor zou ik mij, voor eens en altijd, onderscheiden... van alle andere meiden die je kent, al die anderen... waar je nooit echt iets om geeft, door mijzelf zo voor te doen... als die persoon waarvan jij echt houdt en bewondert boven alles... jezelf.
+Hij heeft voor ééns en voor altijd, en definitief zijn "koekje" gedipt.
+Bovendien, de verschijning van fijne porselein: De kleurrijke design en drukken met excellent glazuur papieren bloemen voor een kleine film of een volledige bloem decoratie bloem rand, soms een enkel gepolijst goud, molybdeen en andere edele metalen side, eens en voor altijd versierd met een aantal speciale high-level kunst aardewerk is versierd met een variatie van high-level synthese.
+Ik zou graag zien dat we hier in het Europees Parlement eens en voor altijd klare wijn schonken en verklaarden dat de Szeklers recht hebben op territoriale autonomie.
+Ik ben van oordeel dat de voornoemde situatieschets tot andere conclusies moet leiden. Uit de analyse blijkt dat de betrokken beleidsterreinen moeten worden aangescherpt en dat wij eens en voor altijd moeten losbreken uit het keurslijf van de unanimiteitsregel.
+Maar de Raad werpt ook voor zichzelf steeds meer hindernissen op. Wij moeten deze overwinnen en proberen in een vrije, gezuiverde atmosfeer, dankzij een goed resultaat van deze Intergouvernementele conferen tie, gemeenschappelijk het volgende stadium binnen te gaan.
+Het ogenblik dat het leven me eens voor altijd neukte... en uitrukte wat er overbleef van mijn hart.
+We moeten definitief afstand nemen van de waan dat de mens de gevaren van kernenergie onder controle heeft.
+De Commissie stelt nu enkele wijzigingen voor op haar eerdere voorstellen en formuleert een overgangsregeling, waarbij zij opnieuw bevestigt dat het einddoel de volledige en definitieve afschaffing van de belastinggrenzen is, alsmede belastingheffing in het land van herkomst van de goederen.
+verwijderd, en "energie-eilanden" moeten voorgoed aan het Europese netwerk worden gekoppeld.
+Een boodschap ook van solidariteit met de volkeren die lijden en sterven of vernederd worden, de volkeren die strijd leveren omdat hun het recht op zelfbeschikking wordt ontzegd, omdat zij door een vreemde mogendheid bezet zijn of omdat zij in hun bestaan worden bedreigd : het Palestijnse volk, het Libanese volk, het Israëlische volk, het Namibische volk, het Afghaanse volk, het Cambodjaanse volk, het Poolse volk en zovele andere !
+De roep van de stad „die vrij moet zijn van buitenlanders", weerklinkt door een land waarin de heren historici die de geschiedenis verdringen, de ver schrikkingen van de holocaust voor altijd willen doen vergeten.
+Door de hervorming van de communautaire financiën in 1988 werd de samenstelling van de eigen middelen van de Gemeenschap gewijzigd en uitgebreid.
+Er moet duidelijk worden vastgelegd op welke gegevens eigendomsrechten rusten en op welke gegevens niet.
+Daarom hebben wij behoefte aan rijpheid, om meer Europa te verkrijgen, om met andere woorden eens en voor altijd te kunnen beslissen welk economisch bestel wij voor ons Europa willen, los van elk nationaal egoïsme.
+De enige manier om dit voor eens en voor altijd te beëindigen... is om een Bass-resectie te hebben.
+Zoals u al zei heeft de Commissie gisteren besloten de vrijwaringsclausule tot na 30 april te verlengen, en ik neem daar nota van; maar wanneer zal het besluit van de Raad over de associatie van de LGO's bij de Europese Unie nu eens eindelijk gewijzigd worden, zodat eindelijk de bezem door deze situatie gehaald wordt?
+Het staat duidelijk in de Bijbel genoteerd dat Jezus alle zonden van de wereld voor eens en voor altijd wegnam, toen Hij gedoopt werd.
+Hiermee kan de politiek het juiste antwoord geven om het door de financiële sector opgelegde juk van zich af te schudden.
+Ten tweede moeten de buitenlandse mogendheden definitief een eind aan hun vroegere beleid maken, dat een machtsstrijd inhield en de ongecontroleerde verkoop van allerlei soorten wapens. Dan, maar
+Daar wil ik nu een eind aan maken.
+Laten we voor eens en altijd een einde maken aan die voortdurende twijfel en eindeloze redevoeringen.
+Ter compensatie van deze buitengewone inspanning die men in Polen heeft geleverd voor een nationale eenheid en solidariteit, moet Europa zonder voorbehoud hulp en samenwerking toezeggen: en zij moet wat betreft de omvang van de te geven hulp geen politiek voorbehoud maken en niet te zuinig zijn.
+Een kans om alles te veranderen voor eens en voor altijd. - Stop met je verleden, slechte vechter. Laat echte strijders genieten van de nacht.
+Net zoals de aanvoerder Naaman zich zeven keer in de Jordaan waste om volledig van lepra geheeld te worden (2 Koningen hoofdstuk 5), moeten wij geloven dat Jezus voor eens en altijd de zonden in de Jordaan wegwaste en ons hiermee de eeuwige zaligheid gaf.
+Wat de inschrijving van de netwerken in categorie 4 (buitenlands beleid) betreft, zijn wij van mening dat zij niets anders betekent dan, enerzijds, het definitief laten varen van de werkloosheid als prioriteit (met het schrappen van de eigenlijke netten) en, anderzijds, een nieuwe manier om de financiering van de uitbreiding te vergroten, nu op een directere manier en ten koste van de interne doelstellingen.
+Ze maakte voorgoed een einde aan het afvallige joodse samenstel van dingen, en zeker in dat opzicht zal ze ’ niet meer voorkomen ’.
+Voor de eerste keer sinds de ondertekening van het Verdrag van Rome worden wij geconfronteerd met een land dat niet wenst dat de Europese integratie voortschrijdt.
+Eens en voor altijd moet duidelijk worden gemaakt wat met 'benadeeld' wordt bedoeld als dat woord wordt toegepast in verband met een eiland en niet enkel in verband met ultraperifere regio's.
+Om deze redenen keurt onze fractie het gemeenschappelijk stand punt goed maar verwerpt zij bepaalde amendementen van de rapporteur, conform de stemverklaring die ik op persoonlijke titel heb afgelegd bij de behandeling in de commissie.
+Je kunt geweldig maken ...sofia echte...sofia echte kapselsDe schattige Sofia de eerste heeft je hulp nodig om een ​​fantastisch kapsel te creëren, zodat zij eens kan bewijzen en voor alles wat ze waard is haar koninklijke titel.
+Dit beantwoordt voor altijd de vraag, waarom Wolowitz gestopt is met medische school.
+Wanneer het om antisemitisme gaat, mag het Europees Parlement niet lankmoedig zijn.
+Het evangelie van God is dynamiet. Het evangelie van God is dat, "Jezus Christus betaalde voor de schulden van een debiteur (zondaar) die zijn eigen schuld niet kan afbetalen."
+Een hele wereld, het huidige samenstel van dingen, spoedt zich krankzinnig en blind naar haar vernietiging in de universele oorlog van Armageddon, waarin de eeuwenoude strijdvraag betreffende Jehovah’s oppermacht en de universele soevereiniteit voor eens en altijd beslist zal worden.
+Daarom kan ik slechts aan alle mandaathouders in de regio appelleren om eindelijk tot bezinning te komen en voortaan politiek in het belang van hun burgers te bedrijven.
+We wisten dat we het Pure Kwaad enkel gevangen konden zetten in de Bieb.
+Dit zal ze voor eens en altijd leren van wie de veesteden zijn.
+Deze internationale uitbreiding schijnt vele mensen blij te stemmen, onder andere Rob Beckstorm, uitvoerend directeur voor ICANN: „Deze overeenkomst markeert een nieuwe evolutie voor ICANN in zijn ontwikkeling als internationale entiteit. Het bevestigt voor eens en voor altijd de goede werking van ICANN als openbaar samenwerkingsmodel“.
+De Fractie van de Europese Volkspartij roept de maoïsten op om de wapenstilstand eindelijk te hernieuwen en terug te keren naar de onderhandelingstafel.
+De reden dat ik volmondig met deze kredietoverschrijving heb ingestemd is dan ook dat deze technische kwestie daarmee nu eindelijk van de baan is en niets een succesvol Europees veiligheids- en defensiebeleid nog in de weg staat!
 Zij biechtten ook dat zij, volgens de Wet, nooit met hun goede daden het koninkrijk der hemel konden binnentreden, en hun gedachten keerden terug naar Jezus Christus die al hun zonden voor eens en voor altijd zal uitwissen en de poort naar het koninkrijk der hemel zal openen. Het doopsel dat Johannes de Doper aan de mensen van Israël gaf, was het volgende.
-Waarom niet vragen voor een on-site survey van lobbyisten klassieke wetenschap en fundamenteel onderzoek, botanici, Boeren, fysici, chemici (toxicologists!! Allereerst), biochemici, biologen, geologen, meteorologen speleologen waterbeheerders hydrogeologie archeologen, fotografen gespecialiseerd in Time-lapse foto? Simpelweg omdat ze hen in staat stelt "onverklaarbaar" fenomeen om voor eens en voor al waarvoor zij de grootste angst uit te leggen en verloren moeten zijn. Elke van hun inkomsten
-Het EESC is ervan overtuigd dat indien de overheid en a priori de Europese Unie niet alles in het werk stellen om de sociale partners bij een en ander te betrekken, om hun een actieve en positieve rol toe te bedelen, om hen aan initiatieven en projecten te laten deelnemen en om hen in hun organisatie te steunen bij het nastreven van een duurzame economie, de resultaten bij de verwachtingen zullen achterblijven en Europa definitief de afspraak met de nieuwe vooruitgang zal missen.
-Een dergelijk beleid dient rekening te houden met het geheel van de problematiek van het leven ten platte lande en mag niet beperkt blijven tot een gedeeltelijke of sectoriële aanpak, zoals terecht in de ontwerp-resolutie van de Commissie voor regionaal beleid wordt gesteld.
-Informatie is immers inherent aan democratische regeringen; duidelijke informatie, ver spreiding van en vrije toegang tot informatie over het milieu is een grondrecht geworden voor iedere burger die zich bezorgd maakt over de kwaliteit van zijn leefmilieu.
-Hoe het ook zij, dat er een probleem bestaat valt niet te ontkennen, daar ik - u bent daarvan vast al op de hoogte - onlangs antwoord gekregen heb van de Spaanse regering. Dat antwoord luidt dat de kwestie zo gecompliceerd is, zo complex, dat besloten is de zaak aanhangig te maken bij de Spaanse Raad van State.
-Natuurlijk moet men belasting betalen, zoals in de richtlijn staat, en natuurlijk moeten de lidstaten weten dat burgers uit andere landen hiernaar toe zijn gekomen en rente hebben gekregen op hun spaargeld. Maar waarom zeggen wij niet eens en voor altijd dat degenen die sparen geen belastingen of heffingen hoeven te betalen aan de regering vanwege het feit dat zij hebben gespaard?
-Johannes de Doper had het recht om de zonden van de wereld aan Jezus door te geven door het doopsel in een keer en voor altijd als de aardse hogepriester volgens de eeuwige statuten van God. Johannes de Doper was de laatste Hogepriester. Als ik zeg dat Johannes de Doper de Hogepriester was, zeggen sommige mensen, “Waar staat geschreven dat Johannes de Doper de Hogepriester was in de Bijbel?” Staat het er niet in geschreven?
-Over deze kwestie zou de Commissie ongetwijfeld het nodige kunnen zeggen als ze daarvoor de tijd zou hebben, maar het komt erop neer dat alle inspanningen die wij thans leveren om dit getraumatiseerde land te hulp te komen vruchteloos blijven zolang de buurlanden, of andere landen die op enigerlei wijze bij dit probleem betrokken zijn en invloed hebben in dit land, weigeren definitief een einde te maken aan hun interventies en bemoeienissen.
-Het rationele beheer mag niet tot deze maatregel worden beperkt en moet vergezeld gaan van een plan voor de instandhouding van de soort in het communautaire gebied, waardoor het mogelijk zou worden de behoeften van het ecologisch evenwicht en het rekening houden met de menselijke visserijactiviteit, die onze bescherming ver­dient, te evalueren.
-schriftelijk. - (FR) Ik heb tegen de overeenkomst betreffende wetenschappelijke en technologische samenwerking tussen de Europese Unie en de Faeröer gestemd. Ik heb dat niet gedaan omdat ik tegen wetenschappelijke samenwerking tussen de Unie en de Faeröer ben, maar omdat ik vind dat we moeten beginnen met het uitoefenen van druk op de Faeröer om definitief een einde te maken aan de steeds terugkerende slachtingen van grienden, waarbij er jaarlijks bijna duizend worden gedood.
-De Partij van de Gepensioneerden is tegen alle vormen van racisme, van welke strekking dan ook - links of rechts, het maakt niet uit. Ik roep zowel links als rechts ertoe op een stap terug te zetten, - want iemand moet toch besluiten dat te doen -, na te gaan of er in ons leven concrete sociale verwezenlijkingen zijn waar iedereen wat aan heeft, en erop toe te zien dat de ideologieën eens en voor altijd terzijde worden geschoven.
-Wel dient hierbij erkend te worden dat er nog een overgangsperiode nodig is. De in het verslag voorgestelde einddatum daarvan is beter dan die welke de Commissie had voorgesteld en wij vragen dan ook aan de Commissie daar een oordeel over te geven.
-Er zijn vele andere regeringen, waarvan het grootste deel de meest machtige landen vormt en voor wie het economisch het beste is dat jullie wereld blijft functioneren zoals het tot nu toe gedaan heeft (omdat dat hen grotere macht geeft over de rest van de landen), die terughoudend zijn in het laten plaatsvinden van een eerste ontmoeting, een die voor eens en altijd het ongeloof zal wegnemen dat jullie de enige intelligente levensvorm zijn in dit grote universum.
-Oreja Aguirre, lid van de Commissie. - (ES) Mijnheer de Voorzitter, geachte afgevaardigden, de Commissie wenst in de eerste plaats de rapporteur van de Commissie institutionele zaken, de heer Anastassopoulos, te feliciteren met het uitstekende verslag dat hij vandaag voorlegt, en wenst ook haar steun uit te spreken voor deze nieuwe po ging van het Parlement om een definitieve oplossing te vinden voor de kwestie van de verkiezingsprocedure, aangaande de fundamentele beginselen waarover een brede consensus bestaat tussen de lidstaten.
-We vinden het inderdaad positief dat ervoor wordt gepleit defensie-uitgaven uit de ontwikkelingshulp te lichten, dat er de nodige effectieve hulp ingezet wordt ter ontwikkeling en verbetering van de overheidsdiensten en dat de inzet van ontwikkelingshulp voor doeleinden die helemaal niets met ontwikkelingshulp van doen hebben eens en voor altijd uitgebannen wordt. Maar dat zal weinig soelaas bieden als we niet tegelijkertijd de liberalisering van de handel afwijzen, alsook de in de overeenkomsten inzake economisch partnerschap vervatte instrumenten ter overheersing en inmenging in de interne aangelegenheden.
-Als het verslag toch ambitieus is, dan komt dit door iets anders, namelijk omdat hierin wordt ge tracht om eens en voor altijd de oorzaken van de achterstand en de aarzelingen, de voortdurende onzekerheden en dubbelzinnigheden rond het communautair onderwijsprogramma grondig aan te pakken, ten einde hieraan een juridische en politieke basis te geven waar toe reeds in de resolutie van 1976 werd besloten en die eens en voor altijd een eind zal maken aan de kort zichtige kritiek en interpretaties die dit programma tot nu toe parten hebben gespeeld ..-:
-Ieder denkend mens — en ik ga ervan uit dat voorzitters van de Raad denkende mensen zijn — weet dat dit met de werkelijkheid absoluut niets te maken heeft, dat nu heel andere methoden van samen werking aan de orde zijn indien men de hand wil leg gen op terroristen en drughandelaren.
-Het beste wat ons kan overkomen is dat dergelijk geweld voor eens en altijd verdwijnt. Dan kunnen wij de ruimte geven aan het vrije politieke debat en de vrije democratische besluitvorming van alle Baskische burgers, zonder uitzondering, over de best mogelijke toekomst voor ons volk.
-Maar terwijl men deze omstandigheden — zeer terecht meen ik — wel voor Hamburg heeft laten gelden bij zijn toetreding tot de douane-unie en men deze omstandigheden ook thans, evenzeer terecht, in het midden brengt, is dit niet voor Triest gebeurd, misschien omdat tot voor tien jaar, toen het Verdrag van Osimo werd onder tekend, waarbij eens en vooral de grenzen van en de soevereiniteit over Triest werden vastgelegd, Italië daarover niet de volledige nationale soevereiniteit bezat, doch slechts het bestuur uitoefende.
-De evaluatie van de Gemeenschapsinstrumenten heeft een aan tal praktische conclusies opgeleverd, met name dat het van belang is de sectorale aanpak en de steun voor hervormingen, die reeds tijdens Lomé IV uitgebreid zijn gepraktiseerd, nog te versterken en de nadruk te leggen op verbetering van de institutionele omlijsting en de plaatselijke capaciteit voor het uitstippelen van economische en sociale beleidsvormen in het kader van een strategie voor de lange termijn.
-De Commissie is van oordeel dat een wijziging van bij lage 2, die de jacht op een aantal soorten zou toelaten, een belangrijke steunmaatregel kan zijn om dit probleem op te lossen.
-Barros Moura (PSE), schriftelijk. - (PT) De stem die ik - afzonderlijk en ook bij de eindstemming - over de ver schillende delen van dit verslag heb uitgebracht, betreft niet alleen concrete aspecten, maar is ook en vooral een stem voor transparantie, tegen hypocrisie, tegen antiparlementaire demagogie en tegen populisme.
+Zeker weten en ik hoop dat zijn executie het duidelijk maakt... voor eens en voor altijd waar de loyaliteit van de mensen moet liggen.
+De heer Kuijpers (ARC). — Geachte Vergadering, als pacifistische volksnationalisten zijn wij tegen elk terroristisch geweld en in de eerste plaats tegen het open en verdoken staatsterrorisme van Spanje en Frankrijk. De zogenaamde Spaanse anti-terroristenwet bevordert nog deze praktijk.
+En het is onze missie om de Nieuwe Orde voor eens en voor altijd weg te blazen.
+De heer Mouchel. — (FR) Mijnheer de Voorzitter, eens te meer rijzen er moeilijkheden bij de vaststelling van de landbouwprijzen.
+Wanneer we deze kreet niet horen, wanneer we voor deze kreet onze oren sluiten, hebben we eens en voorgoed het recht verbeurd het woord „Europa" in de mond te nemen.
+We moeten dit dus voor eens en voor altijd rechtzetten: het proces verloopt voorspoedig, en als we zeggen "het verloopt voorspoedig" , betekent dat dat het ook voor Polen voorspoedig verloopt.
+Wanneer dit niet gebeurt kan geen verdienstelijk werk worden verricht en ik heb in mijn naïviteit steeds geloofd dat de Raad verdienstelijk is.
+Ik ga het voor eens en altijd bewijzen.
+Wij - en ook het Parlement - moeten eens en voor altijd antwoorden op de vraag: zijn de Verenigde Staten de belangrijkste bondgenoten van Europa in de strijd tegen het terrorisme of zijn ze een probleem?
+De Commissie is van plan de bepalingen van de huidige overeenkomst over te nemen en die verder te ontwikkelen gezien de geboekte vooruitgang.
+Ik doe derhalve een beroep op alle leden van deze Vergadering om tegen de door de heer Prout voorgestelde wijziging van artikel 91, lid 3, testemmen, alsook tegen het gehele verslag van de heer Patterson.
+Ik heb u de sleutel gegeven dat dit conflict voor eens en voor altijd zal beëindigen zodat uw wet mag heersen en het paradijs zal volgen...
+Volgende? Met een vleugje ironie dat Alanis Morissette voor eens al altijd leert wat dat echt betekent.
+Ik hoop dat ik met deze brunch jullie voor eens en altijd kan overtuigen dat ik het beste voor heb met het bedrijf.
+Ik heb hem voor eens en altijd gedumpt. denk ik.
+Ik wil eens en voor al beklemtonen dat wij in ons Parlement te maken hebben met een ontoelaatbare achteruitgang van het professionele toezicht op de veiligheid.
+Met behulp van de T-PRO groundmarker kunnen speelvelden voor voetbal, rugby, veldhockey, lacrosse enz. tijdens de opmeting eens en voor altijd gemarkeerd worden zodat nieuwe opmetingen in de toekomst niet meer hoeven.
+Als gevolg van het dioxineschandaal is het ons allemaal duidelijk geworden dat we eindelijk korte metten moeten maken met die vuile rommel. De regeling over toevoegingsmiddelen aan diervoeder is een stap in de goede richting.
+Achter deze schijnbaar volstrekt onbelangrijke technische zaak schuilt een al geruime tijd gevoerde polemiek, waarop in de periode tussen het besluit van 20 mei en dat van 23 juni overigens ook door het personeel uitvoerig is gewezen.
+Dit soort optreden, dat niet typerend is voor mijn land, moet uit de Europese context ver dwijnen.
 De heer Thorn, voorzitter van de Commissie. — (FR) Zoals de heer Langes zojuist gezegd heeft, erkent de Europese Gemeenschap dat de gebeurtenissen ingewikkeld zijn — en door sommigen betwist worden — maar zij heeft zich toch niet onbetuigd gelaten inzake het probleem van de Miskito's, dat wel degelijk een echt probleem is.
-Mevrouw Adam-Schwaetzer, fungerend voorzitter van de Raad. — (DE) Het is niet alleen moeilijk, maar volgens de Raad ook zinloos om op dit moment te voorspellen hoe de situatie ten aanzien van de rente voor de afzonderlijke Europese munteenheden in het jaar 1992 en daarna zal zijn. Dit zal van vele, afzonderlijk niet voorspelbare factoren afhangen.
+Ik geloof oprecht dat het nabuurschapsbeleid in die gebieden veel strenger zou moeten zijn tegenover die twee staten, om te zorgen dat ze eens en voor altijd hun verantwoordelijkheid aanvaarden voor conflicten die in het ene geval al bijna een eeuw duren en in het andere geval al veertig of vijftig jaar bestaan zonder te zijn opgelost.
+Het gaat er dus om langzaam maar zeker en definitief de mentaliteit in de verschülende Üdstaten te veranderen, te zien dat de tidstaten definitief besluiten tot een communautaü optreden op het gebied van justitiële samenwerking en op het gebied van de nog heel wat intensievere en nauwere politiële samenwerking.
+En zeg me nu eindelijk eens wie je hier voor aangespoord heeft?
+Natuurlijk moet men belasting betalen, zoals in de richtlijn staat, en natuurlijk moeten de lidstaten weten dat burgers uit andere landen hiernaar toe zijn gekomen en rente hebben gekregen op hun spaargeld. Maar waarom zeggen wij niet eens en voor altijd dat degenen die sparen geen belastingen of heffingen hoeven te betalen aan de regering vanwege het feit dat zij hebben gespaard?
+Tot slot, mevrouw de Voorzitter, wil ik naar aanleiding van mijn vorige opmerking nog bij een punt stilstaan. Het zou wenselijk zijn bij de volgende Conventie en de volgende hervorming van het Verdrag een definitief kader op fiscaal gebied op te stellen en duidelijk vast te leggen wat er precies geharmoniseerd moet worden.
+De Japanse krant Asahi Shimbun meldde dezer dagen dat de Japanse regering van mening is, dat de kwestie van de sex slavinnen eens en voor altijd geregeld was met het Vredesverdrag van San Francisco (1951) en verschillende bilaterale verdragen.
+Handelingen van het Europees Parlement
+Tot slot, mijnheer de Voorzitter, wil ik van deze interventie in het Europees Parlement gebruikmaken om een beroep te doen op alle internationale instellingen en op "s werelds meest eminente persoonlijkheden op politiek, filosofisch, religieus en cultureel gebied. Laten wij samen besluiten om gedwongen kinderarbeid in de loop van het eerste decennium van de 21ste eeuw in de hele wereld definitief uit te roeien.
+Twee grote tegenover elkaar staande organisaties zullen spoedig een beslissende strijd voeren waarin dan eens en voor altijd de strijdvraag der oppermacht tot een oplossing zal worden gebracht.
+Overeenkomstig de gedragsregels en de beginselen, zoals met name neergelegd in het Handvest van de Verenigde Naties en de Slotakte van Helsinki, kennen de ontertekenaars van die documenten elk land en elk volk het recht toe om in volledige vrijheid en zonder enigerlei inmenging van buitenaf zijn eigen politieke, sociale, economische en culturele stelsel te kiezen en te ontwikkelen.
+Uiteraard moet er voor eens en voor altijd opgehelderd worden of het veiligheidsschild dat gecreëerd wordt door het radarsysteem in Polen en Tsjechië wel degelijk de gezamenlijke Europese belangen dient en beschermt, of dat het slechts een unilateraal initiatief is om zich te beschermen tegen de dreiging vanuit Azië.
+In een groot aantal fabrikaten is staal voor goed vervangen door andere materialen en waar het on vervangbaar is, is het gebruik verminderd.
+Morgen is het Wereldaidsdag en wereldwijd verzoeken maatschappelijke organisaties de politiek om voor eens en voor altijd haar verantwoordelijkheden te nemen, en daaronder valt niet alleen het vraagstuk over de toegang tot geneesmiddelen, maar ook de financiering van preventie- en onderzoeksprogramma's.
+Wat weer eens bewijst dat Joden niet kunnen hockeyen.
+Maar terwijl men deze omstandigheden — zeer terecht meen ik — wel voor Hamburg heeft laten gelden bij zijn toetreding tot de douane-unie en men deze omstandigheden ook thans, evenzeer terecht, in het midden brengt, is dit niet voor Triest gebeurd, misschien omdat tot voor tien jaar, toen het Verdrag van Osimo werd onder tekend, waarbij eens en vooral de grenzen van en de soevereiniteit over Triest werden vastgelegd, Italië daarover niet de volledige nationale soevereiniteit bezat, doch slechts het bestuur uitoefende.
+Laat het de Raad eens en voor altijd duidelijk zijn dat het Europees Parlement over onderzoeksuitgaven in de begrotingsprocedure het laatste woord heeft.
+Zo zullen de betalingen in het kader van het citrusteeltplan uiteindelijk definitief geregeld kunnen worden.
+Lannoye (V). - (FR) Mijnheer de Voorzitter, ik stel nu vast, dat wij om 12.30 uur gaan stemmen over de gemeenschappelijke ontwerptekst van het bemiddelingscomité betreffende verpakking en verpakkingsafval.
+Deze is nodig, zodat enorm speculatieve uitspattingen eindelijk aan banden kunnen worden gelegd.
+Wanneer snap je nou 's dat ik geen verplichtingen wil?
+Naar mijn mening kan een supercommissaris gebrek aan politieke wil bij de lidstaten niet compenseren. Hij mag niet als afleidingsmanoeuvre dienen, maar wij dienen de genomen besluiten eindelijk eens uit te voeren, dat wil zeggen: in de lidstaten ons huiswerk doen.
+Ik hoop dat wij bij de stemming in de plenaire vergadering later op de dag voor eens en voor altijd een einde kunnen maken aan deze kwestie en aan het onnodig lijden van dieren.
+„ DE katholieke Kerk ”, zo schreef een priester naar een vrouw die met Jehovah’s christelijke Getuigen de bijbel bestudeerde, „heeft eens en voor al de inhoud en interpretatie van het woord van God vastgelegd. ”
+Ik hoop dat het vandaag voor ons liggende verslag bepaalde mythen uit de weg zal ruimen en eens en vooral zal aantonen dat het niet onmogelijk is hulp te bieden aan deze mensen in nood.
+Ik moest zeker weten dat hij ons alles vertelde, En gezien de geschiedenis van je verloofde moest hij voorgoed leren om zijn neus uit onze zaken te houden.
+Gezien de bezorgdheid die in het verleden is geuit over de luchtkwaliteit binnen de instellingen, stel ik voor dit artikel via e-mail naar collega's te sturen. De opvatting dat roken binnen een afgesloten ruimte allesbehalve schadelijk is wordt in dit rapport voor eens en voor altijd naar het rijk der fabelen verwezen.
+Bepalingen van het eerste soort betreffen de kenmerken van steunmaatregelen, en leveren dus definitief uitsluitsel over de verenigbaarheid met de gemeenschappelijke markt, terwijl de gevolgen van het tweede soort bepalingen bij de beoordeling van een steunmaatregel in elk afzonderlijk geval afhangen van de functie van die bepaling in het kader van de steunregeling in haar geheel beschouwd.
+Ik denk dat we dit voor eens en voor altijd kunnen regelen... als we allebei naar het huwelijk gaan.
+De ministeriële bijeenkomst van Valencia is dan ook een goede gelegenheid om als lidstaten van de Europese Unie blijk te geven van onze politieke wil om de beleidsvormen in het kader van het proces van Barcelona daadwerkelijk en op vastberaden en efficiënte wijze ten uitvoer te leggen. De Europese volkeren en de volkeren van de Middellandse Zee hebben deze broodnodig om een gebied van veiligheid, welvaart en vrede te kunnen creëren.
+Dit Parlement lijdt reeds onder een gebrek aan nationale en politieke representativiteit en staat niet dicht bij de burgers. Door al dat polijsten van zijn procedures loopt het Parlement het risico zijn aard verliezen, de aard van een door en voor het volk gekozen vertegenwoordiging.
+Mevrouw de commissaris, het is belangrijk dat de Commissie eens en voor altijd haar verslagen over de uitvoering van de overeenkomsten en de situatie van de lokale visbestanden voorlegt voor het verstrijken van de geldigheidsduur van de respectieve protocollen, zodat het Europees Parlement zich hierover kan uitspreken voordat de protocollen verlengd worden.
+Het zou het papier kunnen zijn waarop ‘dolfijn beschermers’ onderling hun hatemail uitwisselen en een beroep doen op hun overheid om voor eens en altijd het zwemmen met dolfijnen te verbieden.
+Wat Turkije betreft stelt het Comité een ver­sterking van de dialoog voor die in dit land tot de onherroepelijke erkenning van de mensen­rechten, de onomkeerbare invoering van een rechtsstaat en van democratie, alsook tot een snellere economische ontwikkeling kan leiden.
+Het Hof merkte in zijn arrest uitdrukkelijk op dat de mededingingsregels rechtstreeks op het luchtvervoer van toepassing zijn en dat de Lid-Staten en de Commissie bij gebrek aan een communautaire verordening over het luchtvervoer gebruik moeten maken van de bevoegdheden waarover zij krachtens de artikelen 88 en 89 van het EEG-Verdrag beschikken.
+Wij kunnen hun deze faciliteiten ter beschikking stellen en hen helpen om het Europa van de burgers te realiseren door de opzet van een polyvalent conferentiecentrum voor onze eigen behoeften en die van andere burgers in Europa.
+Om de demonen van het verleden definitief te verslaan, werd begonnen met een gemeenschap van kolen en staal.
+Voor één keer geven wij de Britten nog tijd om eindelijk in te gaan zien dat ze zich moeten aanpassen.
+Inmiddels heeft de Commissie, ondanks de moeilijk heden die ze op haar weg ondervindt, een zeer belang rijke, onvervangbare rol te spelen bij het definitieve neerhalen van de muren tussen de verschillende economieën.
+We moeten op een goede manier leren omgaan met ringvaccinatie, en we moeten eindelijk een politiek signaal afgeven, opdat de wetenschap tijdig kan bijdragen tot de preventie van epidemieën, dan wel tijdig voor de juiste vaccinatiestoffen kan zorgen.
+Sommigen blijven in twijfel trekken dat de EPA’s allereerst een instrument voor ontwikkeling zijn.
+Zou de Commissie de heer Pronk voor eens en altijd kunnen uitleggen dat deze richtlijn geen enkel gevolg heeft voor mensen die voetbal spelen of naar voetbalwedstrijden gaan kijken.
+Laten we heel duidelijk stellen dat het Gods doel niet is om hier op aarde iets op te richten, zelfs niet als Zijn naam eraan verbonden is.
+JP heeft mij uitgedaagd voor een duel. Om het voor eens en voor altijd te regelen. En ik heb 'ja' gezegd.
+Daarom vragen wij de commissaris, wiens initiatieven wij zeer op prijs stellen, erop aan te dringen dat de speciale gevolmachtigden in Campania niet bij het verleden blijven stilstaan, maar eens en voor altijd in de toekomst kijken.
+De vreemde voorwerpen die hij in de eerste jaren van zijn loopbaan in het landschap aantrof en in zijn fotobeelden gebruikte, hebben hun voorgeschiedenis in de praktijk van het 'objet trouvé', zoals door Marcel Duchamp voor eens en voor altijd binnen de kunst op de kaart gezet.
+Specifieke overwegingen en nationale situaties buiten beschouwing latend stem ik voor het verslag, op basis waarvan nu eindelijk voor eens en voor altijd duidelijke regels worden gesteld voor ondernemers in zowel de publieke als de private sector.
+Daarom moet definitief worden afgezien van het nationaal monopolie dat in Europa nog bestaat om de grondslagen te kunnen leggen voor de toekomst van de communicatie en de toenadering tussen de Europese burgers.
+Wij willen echter vooral een richtlijn die op basis van duidelijke en eerlijke regels eindelijk een interne markt voor diensten creëert. Wij willen een interne markt waaraan alle dienstverleners - met name de kleine en middelgrote ondernemingen - en alle consumenten ook daadwerkelijk kunnen participeren.
+En als de ontleding is voltooid, gooi je het kleine lijkje weg.
+Dat is de reden waarom ik u heel krachtig steun en in plaats van hier licht over te gaan, moeten wij dit verder uitzoeken en de praktijk van het zogenaamde "pianospelen" , die al lang bestaat in dit Parlement, eens en voor altijd uitroeien.
+De geachte afgevaardigde weet wellicht dat de Raad zich tijdens de bijeenkomst van december definitief over deze kwesties zal moet uitspreken. Ik hoop dat op die dag alle ambiguïteit en twijfels overboord zullen worden gezet zodat wij voortgang kunnen maken met dit voor de toekomst van de Europese Unie onontbeerlijke project.
+Wij weten op zijn laatst sedert Tsjernobyl welk vernietigend karakter zij kan hebben.
+Ik geloof dat men ook voor ogen moet houden dat het niet alleen een Europees, maar een internationaal pro bleem is en dat daarom ook contact moet worden op genomen met de landen van het Oostblok.
+Ik kan nu het Parlement slechts vragen zich bij ons aan te sluiten, omdat voor het toekomstige ver voerbeleid van de Gemeenschap — dat moet ik nog maals beklemtonen — de spoorwegen van beslissende betekenis zijn.
+- bron van bevoegdheden: ergens in het begin van het verdrag zou eens en altijd kunnen worden vastgelegd dat het de lidstaten zijn die de bevoegdheden verlenen.
+Het economisch herstel zal sneller kunnen verlopen en minder sociale kosten veroorzaken, indien wij onze markten openstellen voor de produkten uit deze landen. Wij moeten ervoor zorgen dat de grote Europese binnenmarkt de economieën in deze landen helpt bij het vinden van een definitieve aansluiting op de wereldeconomie en hen het gevoel geeft dat zij volledig deelachtig zijn aan de Europese democratie.
+Dus laten wij de zaak nu eens eindelijk regelen en ervoor zorgen dat iedereen de chocolade kan eten die hij lust en dat er ook een echte interne markt komt voor chocolade.
+Het is een gelegenheid voor president Mugabe om voor eens en altijd de beslissing te nemen het land voor de afgrond te behoeden, zoals de heer Van Orden duidelijk gemaakt heeft. Op dit moment worden in Abuja besprekingen gevoerd tussen ministers van Buitenlandse Zaken van het Britse Gemenebest.
+Het is dus van vitaal belang dat alle particuliere Rothschild banken ten koste van alles worden vernietigd en dat wetgeving wordt opgesteld om te voorkomen dat een dergelijk bankstelsel ooit weer kan worden gevestigd.
+Dat weet ik niet meer.
+Maar het is ook essentieel dat de nationale regeringen eindelijk eens hun eigen belangen naar de achtergrond schuiven en de functie van hoge vertegenwoordiger en de taken van zijn dienst hun volledige steun geven zonder zich voortdurend met de gang van zaken te bemoeien, wat we helaas gewend zijn.
+De enige manier om tot een werkelijk doelmatiger samenwerking te komen is om voor eens en altijd zoveel mogelijk samenwerkingsterreinen van de derde pijler naar de eerste pijler over te brengen.
+Het verslag dat de Commissie eerder dit jaar heeft opgesteld — dat bijna 2000 bladzijden beslaat — verschaft informatie over de werkzaamheden van de 424 comités.
+En deze koffie is werkelijk goddelijk.
+Het betreft hier een van de belangrijkste aspecten van de economische unie.
+Het zou zinvoller en consequenter zijn om daar voor eens en voor altijd duidelijk over te zijn. We zouden er beter aan doen onze betrekkingen met dit grote land op een andere manier te verdiepen, namelijk met partnerschapsovereenkomsten, in plaats van Turkije een aansluiting in het vooruitzicht te stellen die we toch voor ons uit blijven schuiven.
+Door de menselijke familie haar eigen weg te laten gaan, heeft God eens voor altijd aangetoond dat wij zijn heerschappij nodig hebben.
+Iemand kan zijn leven volledig in orde brengen door voor eens en voor altijd vat te krijgen op zijn overtredingen tegen de verschillende morele codes waarmee hij ingestemd had en die hij later overtreden heeft.
+Wij hopen dat het jaarverslag over de nationale controle dat ieder Lid-Staat aan de Commissie uitbrengt het uiteindelijk mogelijk zal maken dieren te fokken die met een gezondere voeding zijn gevoederd en tot dierlijke produkten die definitief vrij zijn van geneesmiddelen. middelen.
+Nu is het moment gekomen om de behoeften van het mkb eens en voor altijd in het totale EU-beleid te verankeren en het toekomstbeeld van de staatshoofden en regeringsleiders van 2000 – dat de EU het mkb het beste klimaat ter wereld biedt2 – te verwezenlijken.
+Maar mogen wij hier ook niet Uitspreken dat de Eu ropese Unie wat dat betreft bereid is om mét Turkije na te denken over een oplossing van dat belangwekkende probleem.
+Buster Moon heeft vandaag voorgoed het huis neergehaald.
+242e ZITTING algemene kaderregeling voor de steun die de Lid-Staten aan de scheepsbouw verleenden om het concurrentievermogen van deze zich in crisis bevindende sector te herstellen.
+Dit gezegd hebbende bedank ik nogmaals alle leden van het Parlement en vooral de rapporteur, de voorzitter van de parlementaire commissie en onze andere partners in het Parlement en de Commissie.
+Andere zaken bereiken snel een kritiek punt en om regeringswijzigingen mogelijk te maken, dringen we er bij onze bondgenoten op aan om voor eens en altijd diegenen te verwijderen die jullie niet van dienst zijn.
+Indien wij met dit voorstel instemmen, kan de procedure definitief worden afgesloten en kunnen de werkzaamheden op het gebied van de arbeidstijd in de zeevaartsector worden afgerond.
+Het christelijk geloof werd in de eerste eeuw eens en voor altijd overgeleverd.
+Het Parlement heeft vaak en ook controversieel financiële hulp voor Israël en de bezette gebieden besproken.
+Daarna kwam de her-kenning en her-innering en vroeg ik voor eens en voor altijd om de cirkel te sluiten voor de zuigers, voor dat wat buiten de cirkel hoort en mag zijn.
+Als wij een Europa met meer en betere arbeidsplaatsen willen, een Europa met meer sociale samenhang - kortom, een Europa dat beantwoordt aan de ambitieuze maar noodzakelijke doelstellingen van Lissabon - moeten wij extra inspanningen ondernemen om de nog steeds bestaande hinderpalen voor de beroeps- en geografische mobiliteit van de Europese burgers definitief uit de weg te ruimen of in ieder geval te verminderen.
+Naar onze mening dient de Europese Unie nu eindelijk eens - want dit gebeurt niet alleen in Tsjetsjenië maar ook in Turkije, en nog in vele andere landen - de pressiemiddelen te gebruiken waarover zij in verdragen beschikt in de vorm van de democratische clausule en de clausule van de bescherming van de mensenrechten, met als doel slachtingen te voorkomen.
+333 artikelen 92 en 93 van het Verdrag, ten aanzien waarvan de Lid-Staten alleen soeverein zijn, is definitief verworpen.
+Ten einde vervolgens eens voor al vast te stellen dat Jehovah inderdaad de stam Levi had uitverkoren, zoals die door Mozes en Aäron werd vertegenwoordigd, liet Jehovah elk van de stamoversten een staf naar de tabernakel brengen die voor het aangezicht van Jehovah neergelegd moest worden.
+De enig juiste manier om deze vraag eens voor altijd te beantwoorden, was de mens toe te staan zichzelf te besturen.
+Uw bestelling zal definitief bevestigd worden na ontvangst van uw betaling.
+De Raad en de Commissie hebben daarover een gezamenlijke verklaring in de notulen opgenomen waarin zij erop wijzen dat dit besluit gerechtvaardigd was door uitzonderlijke omstandigheden in Italië en tot doel had de problemen die zich in het verleden hadden voorgedaan bij de toepassing van de aanvullende heffing in Italië definitief op te lossen.
+Hij beloofde dat er een „zaad ” of„ nageslacht ” zou komen dat ’ Satan in de kop zou vermorzelen ’, waardoor zijn opstand en de schadelijke gevolgen ervan definitief uitgebannen zouden worden. — Genesis 3: 15, vtn.
+In het verslag komt nogmaals de wens van het Parlement naar voren dat de Europese Commissie, om een voorbeeld te stellen en bij wijze van ontmoediging, die lidstaten sancties oplegt die vaak niet voldoen aan de hun opgelegde verplichtingen inzake de vissersvloot. Zo kan voor eens en voor altijd worden voorkomen dat de algemene doelstellingen voor een communautaire vloot steeds weer in twijfel worden getrokken, ondanks het feit dat er grote offers gevraagd worden in sociaal en economisch opzicht in een aantal gebieden van lidstaten die normaal gesproken zeer betrouwbaar zijn.
+Ik zal je eens en voor altijd leren dat je af moet blijven... van wat van mij is.
+De Commissie is van oordeel dat een wijziging van bij lage 2, die de jacht op een aantal soorten zou toelaten, een belangrijke steunmaatregel kan zijn om dit probleem op te lossen.
+Meer dan een half miljoen vrouwen hebben nog altijd te lijden van een gruwelijk ritueel dat voor eens en voor altijd verboden en strafrechtelijk vervolgd hoort te worden.
+Ik moet voor eens en altijd afrekenen met Zoom voordat er nog meer slachtoffers vallen.
+Ik moest je laten zien dat ik echt niet zou weglopen.
+Met behulp van deze functie is zoals het aanpassen van uw volume knop eens en voor altijd elke Compact Disc u in een cd-speler.
+Wij menen evenwel dat dit patroon met als onvermijdelijk moet worden beschouwd voor alle landen in de Derde Wereld, met voorbijgaan aan de specifieke omstandigheden en bijzondere sociaal-politieke krachtsverhoudingen op een bepaald moment.
+Maar ondanks deze afwijzing: de dar heeft eens voor altijd z'n werk gedaan.
+En ik weet zeker dat ze nu alles aan het uitdenken zijn... wat de aanleiding is voor mij om nu alles te gaan oplossen... voor eens en altijd, wat ik eerder al had moeten doen.
+Het kan zijn dat we langzamerhand dichter bij een betere situatie komen, maar we moeten onszelf geen zand in de ogen strooien en geloven dat de nieuwe wet, de nieuwe richtlijn, een nieuwe autoriteit voorgoed kan zorgen voor transparantie en misbruik op de financiële markten kan voorkomen.
+Mijnheer de Voorzitter, zonder verbeeldingskracht en zonder politieke wil gaat de Gemeenschap ten onder.
+Mijnheer de Voorzitter, tot onze grote ongerustheid zien wij in ons buurland het wapengeweld voortduren, ofschoon druk wordt onderhandeld over een definitieve oplossing van de conflicten die ten grondslag liggen aan dit geweld.
+Het wordt tijd dat wij de landbouw voorgoed uitsluiten van de onderhandelingen, zodat wij het lot van de Europese landbouwers niet hoeven te verkwanselen.
+4.1 Volgens het Comité is de herziening van het communautair milieubeheer- en auditsysteem (EMAS) de gelegenheid bij uitstek om de communautaire vrijwilligersregeling een nieuwe impuls te geven, waarmee de regeling definitief kan gaan gelden als standaard voor uitmuntendheid en als instrument voor communicatie en marketing voor organisaties, productie en de levenscycli van producten dat perfect is afgestemd op andere instrumenten voor milieubeleid.
+Hoe is het mogelijk dat we deze unieke kans om ons eindelijk eens daadwerkelijk solidair te tonen met Zuid-Afrika, zomaar laten torpederen door dat belachelijke voorstel over port en sherry?
+Voor eens en voor altijd toont dat...
+Het is nu meer dan ooit van het grootste belang dat elke gelovige bidt voor onderscheidend vermogen, en in oprechtheid strijdt voor het geloof dat voor eens en altijd aan de heiligen gegeven is.
+De opneming in de nationale wetgevingen van een zeer groot aantal bepalingen op de meest uiteenlopende gebieden heeft in de lidstaten soms reacties of verzet opgeroepen, ondanks het feit dat in de Raad van Ministers de vertegenwoordigers van de lidstaten met de betreffende bepalingen hadden ingestemd en toegezegd deze in de nationale wetgevingen te doen opnemen.
+De Unie beschikt voor de financiering van haar uitgaven over eigen middelen, dit zijnontvangsten van fiscale aard die eens en voor altijd aan de Gemeenschap zijn toegekend enhaar van rechtswege toekomen, zonder dat de lidstaten daarover nog een besluit moetennemen.
+Ik ben bang dat als ik dit vreselijk stomme boek steun... ik m'n reputatie van compleet rund nooit meer kwijtraak.
+Om de besluitvorming niet moeilijker te maken moet de drempel definitief in het verdrag worden vastgelegd, zo nodig op een lager niveau dan het huidige van om en bij de 71%.
+Laat het de Raad eens en voor altijd duidelijk zijn dat het Europees Parlement over onderzoeksuitgaven in de begrotingsprocedure het laatste woord heeft.
+Mevrouw Martin (LDR). — (FR) Mijnheet de Vootzittet, we beseffen allemaal dat de landbouw een nieuwe en giondige verandering moet ondeigaan. Die mag echtet niet te bruusk of zonder begeleiding verlopen, en wij verwachten van de vootstellen van de Commissie dat ze in deze lichting gaan.
+En we moeten ofwel stoppen zestig van de honderd keer anders te stemmen in de Verenigde Naties, ofwel definitief afzien van het streven van de Europese Unie naar een gedeeld mondiaal leiderschap.
+Nu hoop ik alleen maar dat wij morgenochtend om 9.00 uur het verslag-Sablé in zijn huidige vorm goedkeuren, en zo voorgoed het geschil tussen riet- en bietsuiker bijleggen.
+Terwijl ik het ermee eens ben dat het tweede auto-olieprogramma van de Commissie wordt gesteund, dat als uitgangspunt moet dienen voor het vaststellen van emissiegrenzen voor het jaar 2000, ben ik van mening dat de automobilisten van de meeste Europese landen al meer dan genoeg belasting moeten betalen door de hoge heffingen voor het gebruik van hun voertuigen, en dat we er eens en voor al mee moeten ophouden de belastingen te verhogen of voortdurend zogenaamd ecologische kosten voor de auto te bedenken.
+. Voorzitter, commissaris, geachte collega's, ook vandaag tijdens de plechtige vergadering met president Schuster van de Republiek Slowakije hebben we weer gesproken over de historische kans om de deling van Europa definitief te overwinnen.
+Ik vormde deze groep met één doel, om voor eens en altijd een manier te vinden om van Hak man af te komen.
+Europa is de grote gelegenheid om dit verleden opnieuw aan de orde te stellen en te toetsen aan de ervaringen van anderen. Dat is de enige manier om ons definitief te bevrijden van erfenissen die bedoeld waren om ons te verenigen, maar die uiteindelijk verdeeldheid hebben gezaaid.
+Deze oorlog van de lafaards, zoals men ze genoemd heeft, La guerre des laches, moeten wij werkelijk een zeer uitdrukkelijk halt beroepen en als Europese Gemeenschap moeten wij al het mogelijke doen om deze te vermijden.
+Bij de toelichting van dit voorstel heeft Franz Fischler, Europees Commissaris voor Landbouw en Platte­ landsontwikkeling, er de nadruk op gelegd dat het één van de belangrijkste problemen van het GLB eens en voor altijd zou moeten oplossen en dat het zou moeten resulteren in een meer transparante markt voor voe­dingsmiddelen en landbouwproducten, wat zowel de producent als de consument ten goede zal komen.
+Als jij 't bent, wil je je er dan eindelijk eens bij neerleggen?
+Kapiteins en koopvaardijschepen moet voor eens en altijd duidelijk worden gemaakt dat het helpen van migranten in nood op geen enkele manier wordt bestraft en dat er plaatsen voor snelle en veilige ontscheping zullen komen.
+Het is in ieder geval een goede zaak dat wij, wat deze ontwerpresolutie betreft, overeenstemming tussen de zes politieke fracties hebben weten te bereiken om de moord op David Kato eensgezind te veroordelen. Gezamenlijk roepen wij de autoriteiten - het nieuwe politieke leiderschap dat morgen in Oeganda gekozen zal worden - en de religieuze leiders op om voorgoed een einde te maken aan de vervolging van en het geweld tegen lesbiennes en homoseksuelen en andere minderheden.
+Integendeel, hij deed dat om eens en voor al de fundamentele waarheid vast te stellen dat hij alleen soeverein is en dat gehoorzaamheid aan zijn wetten van essentieel belang is voor duurzame vrede en blijvend geluk van al zijn scheppingen.
+Zal het voorzitterschap er bij het Parlement op aandringen zijn verplichting ingevolge het Verdrag na te komen?
+De Voorzitter. — Mijnheer Pearce, het is duidelijk dat ik u geen aanvullende vraag meer kan laten stellen over een vraag die reeds is afgehandeld.
+(De spreker wordt door de Voorzitter onderbroken)
+Ook willen wij dat men zich bezig gaat houden met een aantal zaken die erg belangrijk zijn en niet in de Gemeenschap gerespecteerd worden, zoals bij voorbeeld de vogelvangst met netten, iets wat in Italië — en ik spreek nu als Italiaan — helaas nog steeds getolereerd wordt.
+Overal, van de Canarische Eilanden tot Scandinavië - u heb gehoord wat de heer Stubb zojuist zei - en natuurlijk ook in Brussel moeten we voorgoed afrekenen met het gebruik van eurojargon. We moeten bij de redactie van wetten een zo helder mogelijk taalgebruik hanteren, zodat de tekst te volgen is voor al degenen voor wie hij bedoeld is.
+Om jullie er voor eens en altijd van te overtuigen, waarom Clearwater, waarom New Orleans, de beste kandidaat is voor de eerste... scheepswerf in ons land sinds decennia.
+Deze dreiging eens en voor altijd een einde
+De staatshoofden en regeringsleiders waren het erover eens dat de verordeningen over de stmctuurfondsen tegen eind 1993 goedgekeurd moeten zijn.
+- Laten we dit afhandelen.
+In 740 v.G.T. bediende Jehovah zich van het Assyrische leger om het noordelijke koninkrijk Israël eens en voor altijd te verwoesten.
+Het beste wat ons kan overkomen is dat dergelijk geweld voor eens en altijd verdwijnt. Dan kunnen wij de ruimte geven aan het vrije politieke debat en de vrije democratische besluitvorming van alle Baskische burgers, zonder uitzondering, over de best mogelijke toekomst voor ons volk.
+Het nieuwe Europa, dat wij thans vorm zien krijgen, maakt definitief een einde aan de oude breuklijnen en de littekens van de broederoorlogen die hier in het verleden zijn gevoerd.
+In het verslag wordt duidelijke steun uitgesproken voor de zes grote doelstellingen die in het Plan voor Regionale Ontwikkeling en in het communautair bestek worden genoemd, en welker verwezenlijking enerzijds Portugal nader tot de andere EG-lidstaten moet brengen en ander zijds de regio's binnen Portugal nader tot elkaar moet brengen.
+De Polen krijgen ze bovendien op de manier die zij zelf hebben gekozen.
+Ik wil dit alleen even naar voren brengen omdat hiermee weer eens wordt aangetoond dat bepaalde mooie verklaringen over landen waarvan we weinig weten, helemaal geen zin hebben en dat we eindelijk eens moeten inzien dat de toestand daar ernstig is.
+Wanneer de tenuitvoerlegging van de landbouwhervorming niet gelijktijdig en in alle lidstaten even snel gebeurt, bestaat het gevaar dat de concurrentiepositie gewijzigd wordt en dat de concurrentie in de verschillende lidstaten niet meer neutraal is.
+"Zo'n agressieve tijdlijn instellen te sluiten - voor eens en altijd - de grootste binnenlandse ivoren markt in de wereld is wereldwijd aanzienlijk,"Zei de Natural Resources Defense Council.
+Mijnheer de Voorzitter, moeten we naar de wapens grijpen om Saddam Hoessein te dwingen definitief af te zien van zijn programma's van ontwikkeling, productie en opslag van massavernietigingswapens en te bewijzen dat hij ze daadwerkelijk heeft opgegeven?
+Ze doen een DNA-test en je kunt voor altijd bewijzen dat Reece je zoon is.
+Verantwoorde afstand is niet waarde tijdperk en eens voor alle gegevene elk gekozene snelheid, maar is aangewezen op de toestand van dorozhnogo strijkend, respectievelijk klimatisch conditioneert, de voltage van de toeloop van rennende automobielen en zelfs van gedrag baanbrekend en navolging daarvoor bestuurder. In verschillende tormoznykh de mogelijkheden van de automobielen wezen aangewezen op hun type (legkovye, lading, avtopoezda t. D.) Op dorre rijweg deze afstand (m) moet stileren niet minder halveert van de betekenis van de snelheid (km/h) in de motie op de erbuit-van de -stad rijwegen en10... 15 m in de omstandigheden van de stad.
+Je zou de Mriswith voor altijd kunnen uitroeien en dan kunnen ze niemand meer doden.
+Ik geloof dat er zekere incoherenties bestaan en het zou goed zijn als de Raad een grotere samenhang zou bereiken.
+De Europese Unie bestaat echter uit vijfentwintig - en binnenkort zevenentwintig - lidstaten en moet de zeer ernstige situatie eens en voor altijd het hoofd bieden.
+Meer info Rainbow Web 2 Reken voorgoed af met de kwaadaardige tovenaarspin in het 3-op-een-rij-spel Rainbow Web 2!
+Ik stel voor om deze zaak verder te laten rusten.
+Tweede vraag: wat is de definitieve oplossing voor toekomstige crisissituaties op de markt als gevolg van de massale invoer van zalm waardoor deze tak. die zo sterk ie lijden heeft onder de gevolgen van het visserijbeleid, zijn ondergang tegemoet gaat.
+We moeten toch in staat zijn om voor onze Europese interne markt eindelijk concrete richtlijnen voor te leggen, niet alleen voor micro-ondernemingen, maar zeer zeker ook voor grotere ondernemingen, zo zou ik dat aanpakken.
+Ik ben er volkomen van overtuigd dat zo'n vergelijking zal aantonen dat de essentie van het Zweedse model en het wezen van het drugsbeleid, namelijk dat de jeugd nooit experimenteert met drugs, het meest effectief zullen blijken te zijn.
+Zij zal in de toekomst meer nog dan in het verleden waakzaam en vastberaden haar verantwoordelijkheden uitoefenen en er zich op toeleggen voor de Gemeen schap werkelijk het stuwende orgaan te zijn, het or gaan waarvan nieuwe voorstellen uitgaan.
+Het congres stelt bijgevolg met voldoening vast dat over de vraag van Denemarkens toetreding tot de Europese Gemeenschap pen uiteindelijk via een stemming van het Parlement op 2 oktober zal worden beslist, waarbij eenieder het recht heeft, maar ook de plicht, te stemmen vanuit zijn persoonlijke overtuiging.
+Kan de Commissie voor eens en altijd voorstellen dat er nooit meer steun wordt gegeven aan het vernietigen van voedsel?
+We moeten de Goa'uld voorgoed ontmaskeren.
+Deze manier van spellen zou eens en voor altijd duidelijk maken dat 'kunst' slechts ťťn van de vele andere kunsten is: de kunst van het genezen, de kunst van het overreden, de kunst van het verkopen, de kunst van het bedriegen en ga zo maar door.
+Zoals ik gisteravond in het kader van het Vragenuur al heb meegedeeld, ligt er thans een voorstel van de Commissie om in het kader van een hulp voor Israël ook 100 miljoen ecu beschikbaar te stellen voor de bezette gebieden.
+Jezus, de Alpha en de Omega, heeft een offer aangeboden voor de zonden van alle tijden, de zonden van de wereld voor eens en voor altijd verdragend door Zijn doopsel in de Jordaan en door te sterven aan het Kruis.
+Veel te vaak heffen we onze vinger naar de kandidaten om ze de les te lezen over de verplichtingen die ze nog moeten vervullen. We zouden die vinger beter naar onszelf richten en eindelijk moeten beseffen dat het al lang onze beurt is om verplichtingen na te komen.
+Aan het begin van de twintigste eeuw kwam de Amerikaanse ingenieur Frederick Taylor op de proppen met zijn “scientific management” waarmee hij die voortdurende machtsstrijd voor eens en altijd in het voordeel van de bazen hoopte te beslissen.
+Ten tijde dat de Gemeenschap overgaat tot grootse projecten op economisch en sociaal vlak, terzake van buitenlandse politiek, ten tijde dat zij de interne markt voltooit, mag het niet gebeuren dat ze afstand neemt van de dagelijkse beslommeringen van onze medeburgers en zich ontpopt als een voor de grondslagen van de maatschappelijke samenleving destabiliserende factor.
+Ik zou willen eindigen met te zeggen dat men reeds is begonnen na te denken over de architectuur van het grote Europa.
+Het zou de Raad tot eer strekken en hij zou er baat bij hebben als hij bij de volgende gelegenheid hier eens en voor altijd een einde aan zou maken.
+Voor de Europese gebieden van doelstelling 2, waar een groot aantal arbeidsplaatsen verloren is gegaan in de kolen- en staalindustrie, was het EGKS-Verdrag van vitaal belang doordat het de mogelijkheid biedt om hoognodige financiële hulp te verlenen.
+Ik ben mij ervan bewust dat zij in dit stadium nog niet beschikken over programma's daar voor, maar het zou een prachtig gebaar van de Europese Gemeenschap zijn als wij aan de mensen in de Derde Wereld met wie wij zoveel op zeggen te heb ben een, zij het bescheiden, deelneming aan ons ruim teprogramma kunnen aanbieden.
+Ten tweede is er amendement nr. 16, volgens welke het begrip levensverzekering voor eens en voor altijd duide­lijk moet worden gedefinieerd. Hierin moeten de criteria worden overgenomen van de zevende overweging van de eerste richtlijn inzake levensverzekeringen, dat wil zeg­gen met inbegrip van de investeringen en het beheer.
+Ik zal je voor eens en altijd laten zien dat het geen geluksvest is.
+Het interinstitutioneel akkoord is dus - zoals terecht in het verslag van de heer Medina Ortega staat - een voorwaarde voor met name het recht van het Parlement om automatisch te worden geraadpleegd als het gaat om mederegulering en zelfregulering, voor met andere woorden het recht van het Parlement om onmiddellijk door de Commissie geïnformeerd te worden en de toepassing van elke vrijwillige, niet door het Parlement aanvaarde overeenkomst definitief op te schorten.
+Maar laten we voor eens en voor altijd een eind maken aan het idee dat Europa een christelijk project is.
+Toen God zei: 'Laten wij [de menselijke personen] naar ons beeld' hij voor eens en altijd voorzien van een basis voor de menselijke waardigheid, kracht en waardigheid. Hij verzegelde altijd het feit dat alle personen die deze aarde wandelde het recht om zichzelf te zien als wezens van waarde, waarde en het belang zou hebben ... Het maakt niet uit hoe diep de zonde mars ons beeld, een feit blijft: we zijn naar zijn beeld ... De Bijbel beschrijft zonde als een indringer in de menselijke natuur.
+Wat er sindsdien is gebeurd, heeft eens en voor al bewezen dat God gelijk had, dat de mens niet onafhankelijk van zijn Maker kan leven en toch werkelijk gelukkig kan zijn.
+Men moet echter vooral de noodzakelijke lessen leren uit dit drama dat de inwoners van Toulouse zo zwaar heeft getroffen, opdat de bevolking van de Europese Unie dergelijke verschrikkelijke ontploffingen in het vervolg bespaard blijft.
+De volledige opheldering van de zeer ernstige gevallen van fraude die in 1999 aan het licht zijn gekomen, vormt een test voor zowel de geloofwaardigheid van de Europese Commissie als de efficiëntie van OLAF.
+Wat het concurrentieklimaat in Europa betreft, vindt de Commissie dat nu een definitief besluit moet worden genomen over haar voorstellen om voor extra financiële middelen te zorgen voor de transeuropese netwerken.
+De heer Prag (ED). — (EN) Een motie van orde, mijnheer de Voorzitter, met betrekking tot de verzoeningsprocedure op 21 en 22 november en de regelingen voor het Sociaal Fonds, met name de verordening terzake en de ingrijpende wijzigingen in het voorstel voor de behandeling van gehandicapten.
+Na mijn afstuderen kwam ik ook boven die inkomensgrens, maar ik heb wel mijn huurwoning toen nog wel een aantal jaren kunnen aanhouden, waarna ik definitief besloten heb om te kopen en op een andere plek te gaan wonen.
+De regerende Bangladesh Nationalist Party en de oppositie van de Awami League moeten nu voor eens en altijd hun persoonlijke vetes laten voor wat ze zijn en doelgerichte gesprekken gaan voeren.
+Hopelijk wordt die doorn vandaag verwijderd. De teams stellen zich nu op voor de aftrap.
+Zij worden vaak niet door een rechtbank gestraft, maar wel voor altijd door sociale media en de publieke opinie, waardoor ze een soort non-person worden.
+Maar wij geloven niet dat het voldoende is om alleen de handels- en werkgelegenheidsaspecten van toerisme in aanmerking te nemen, hoe belangrijk die ook zijn.
+De heer Pannella (NI). - (IT) Mevrouw de Voorzitter, mijnheer de fungerend voorzitter van de Raad, mijn-
+Ons Parlement moet zich het volgende afvragen : waar zouden de racisten die euvelmoed vandaan moeten halen, als zij geen steun en toegeeflijkheid ondervonden, als de multinationals niet zo schaamteloos met hen samenwerken, als het IMF niet het schandelijke besluit had genomen om de regering in Pretoria een miljard dollar te lenen, waar ook Lid-Staten van de EEG en de Verenigde Staten voor gestemd hebben, en niet te vergeten het feit dat de Verenigde Staten de opdracht van de contactgroep hebben gesaboteerd on der het voorwendsel dat er Cubaanse troepen in An gola aanwezig waren.
+Barros Moura (PSE), schriftelijk. - (PT) De stem die ik - afzonderlijk en ook bij de eindstemming - over de ver schillende delen van dit verslag heb uitgebracht, betreft niet alleen concrete aspecten, maar is ook en vooral een stem voor transparantie, tegen hypocrisie, tegen antiparlementaire demagogie en tegen populisme.
+Natuurlijk, maar de bevolking op Mururoa wenst de kernproeven niet. Daarom is het ook belangrijk dat wij de Franse goederen blijven boycotten, zodat de Franse bevolking misschien toch uiteindelijk een invloed op de president kan uitoefenen.
+Het verleden was de wereld, het heden is de wereld en de toekomst zal ook de wereld zijn. Jezus, de Alpha en de Omega, heeft een offer aangeboden voor de zonden van alle tijden, de zonden van de wereld voor eens en voor altijd verdragend door Zijn doopsel in de Jordaan en door te sterven aan het Kruis. En we zijn geheiligd.
+Het is bovendien een hersenschim te denken dat een op jonge leeftijd genoten opleiding volstaat voor de rest van het leven.
+Het is echter van doorslaggevend belang dat eindelijk aangetoond wordt - en niet alleen voor burgers in Frankrijk en Nederland - dat er aan de denkpauze ook consequenties voor een ander beleid verbonden worden.
+Het is echter de vraag— en daarover moeten wij ook nu met elkaar discussiëren — of de manier waarop dit gebeurt de juiste is, en of er niet méér maatregelen noodzakelijk zijn om eindelijk te bereiken dat wij van dit eeuwige probleem, dat jaarlijks terugkerende probleem van pakhuizen die uit hun voegen barsten, nu eindelijk kunnen afkomen.
+Zegt u klip en klaar waar deze Commissie voor staat. Als u uw standpunt over het Europese sociale model boven iedere twijfel wilt verheffen, zult u de heer McCreevy, mevrouw Kroes en andere leden van uw Commissie eindelijk moeten afremmen.
+Ook maakt dat bloed eens en voor altijd de vergeving van zonden mogelijk.
+De stem die ik - afzonderlijk en ook bij de eindstemming - over de verschillende delen van dit verslag heb uitgebracht, betreft niet alleen concrete aspecten, maar is ook en vooral een stem voor transparantie, tegen hypocrisie, tegen antiparlementaire demagogie en tegen populisme. Ik wil dat er een einde komt aan een proces dat bijna de hele zittingsperiode geduurd heeft, waarbij het Europees Parlement en zijn leden aan de schandpaal genageld werden door een onwetende "tabloid" -pers, die bereid is de meest primaire instincten in de publieke opinie wakker te maken.
+Men kan niet, zoals zij willen, Zwitserland proberen te chanteren met het argument dat als het niet doet wat de EU wil, de Zwitsers hun eigen land niet meer uit mogen en als het ware gegijzeld worden; dat is het top punt van imperialistische aanstellerij en grootheidswaan, dat moet maar eens duidelijk gezegd worden!
+Geachte afgevaardigden, een andere factor in de economische onzekerheid die de burgers voelen vloeit voort uit de noodzaak bepaalde financiële zienswijzen te herzien.
+(2) De energietechnologie dient een centrale rol te spelen in de definitieve ontkoppeling van economische ontwikkeling en aantasting van het milieu.
+Alleen bij een definitieve opening van de spoorwegnetten hebben de spoorwegondernemingen met hun werknemers een kans.
+U hoorde waarschijnlijk dat Mr Strachey zijn proefschrift wil afmaken, of sterft in een poging, en zich daartoe heeft opgesloten.
+Allereerst kan de situatie in Zuidoost-Europa alleen verbeteren als het voor eens en voor altijd stopt met het geweld en met zijn pogingen om politieke veranderingen te bewerkstelligen door middel van bloedvergieten, chaos, bommen en kogels.
+Als de overheid wil bewijzen dat vlucht 77 tegen het Pentagon terecht kwam, dan moeten ze enkel deze cassettes vrijgeven.
+Monkey Island™ 2 Special Edition: Le Chuck's Revenge™ Meer afbeeldingen en video's Hij heeft de kwaadaardige spookpiraat LeChuck verslagen en nu keert Guybrush Threepwood terug in een van de grootste avonturen ooit. www.pegi.info Verschijningsdatum: Nu verkrijgbaar Genre: Avontuur Uitgever: LucasArts Ontwikkelaar: LucasArts OVERZICHT Verhaal Presentatie Gameplay GAME-FEATURES Gebruik je verstand, je humor en je drang naar avontuur om je aartsvijand voor eens en altijd te verslaan.Laat zien dat je de beste piraat in de Caraïben bent!
+Als vertegenwoordiger van een van de armere regio's van de Gemeenschap, zoals mevrouw Giannakou, vind ik het regionale beleid een van de teleurstellende aspecten van het communautaire beleid van de afgelopen jaren.
+Eén reden waarom God het zoveel duizenden jaren heeft toegelaten dat de mens onafhankelijk van hem heerschappij uitoefent, is om eens voor al aan te tonen dat een dergelijke heerschappij geen werkelijke vrijheid en werkelijk geluk tot stand kan brengen.
+- Nog èèn keer: Ze hebben niks.
+Ten tweede moet het mechanisme voor lastendeling in het pact inzake immigratie direct ten uitvoer worden gelegd en het moet worden omgezet in een bindend wetgevingsinstrument. Het derde punt is dat er meer aandacht besteed moet worden aan de terugkeer van immigranten die illegaal op het grondgebied van de EU verblijven.
+Hij rekent op de steun van de Lid-Staten, die ongetwijfeld ook uitvoering zullen willen geven aan de wensen die kortgeleden op niet mis te verstane wijze ook weer door de Europese Raad zijn uitgesproken, namelijk dat het noodzakelijk is de interne markt van de Ge meenschap te versterken en uit te breiden, een markt die steeds meer wordt bedreigd door handelsbarrières.
+Het wordt in één keer gegeven omdat Jezus al onze zonden in één keer voor altijd wegnam door één keer gedoopt te worden en het oordeel voor eens en voor altijd te ontvangen. Hij zei, zoals in Mattheus 3:15 staat genoteerd, "Laat nu af, want aldus is betaamt het ons alle gerechtigheid te vervullen."
+Geef nou maar toe dat je er niet onderuit kunt.
+Evenals de Commissie erkent het Comité ten slotte dat bijzondere maatregelen ter ondersteuning van de produktie van aardappelzetmeel moeten worden genomen.
+Zoals de brief aan de Hebreeën het zegt: 'Hij offerde voor eens en altijd toen Hij het offer van zijn leven bracht'.(7:27; zie ook 9:25-26 en 10:10) Zo zijn ook wij op onze beurt geroepen om ons leven om te vormen tot een geschenk.
+De loonverschillen moeten uiteindelijk verdwijnen en we moeten af van de gedeelde arbeidsmarkt.
+Ik ga hier voor eens en voor altijd een einde aan maken.
+Met het oog op de toekomst moeten wij volgens mij dringend uitmaken wat wij onder een eenvormige sociale minimumnorm verstaan. Toch verzoek ik u dit akkoord goed te keuren, want anders hebben wij niets.
+Zowel de wereldsituatie als de bijbelse chronologie kenmerken onze generatie als het geslacht waarin de Allerhoogste de eeuwenoude strijdvraag betreffende de universele heerschappij of universele soevereiniteit eens en voor altijd zal oplossen.
+Eentje die permanent word... aan het einde van het jaar, als alles volgens plan gaat. Waardoor ik in staat ben alles hier af te breken... en het te ontdoen van het diepe, etnische aroma van Figgins' stempel.
+Noodzakelijk omdat de Unie, en vooral dit Parlement, voor eens en altijd een duidelijk antwoord moeten geven, een ondubbelzinnige manifestatie van ons gemeenschappelijke compromis om een probleem op te lossen dat al te lang op onze deur klopt zonder dat er een passend antwoord voor wordt gevonden.
+JEZUS GAF VOORGOED DE EEUWIGE VERLOSSING Waarom heeft iemand het recht om zich de hele tijd te verheugen? (1 Thessalonieken 5:16) Omdat Jezus alle zonden wegnam kan iemand slecht nederig worden voor Hem en dankbaar voor Zijn Genade zijn.
+En indien zij geloof oefenen in het geofferde bloed van Jezus, dat bijna tweeduizend jaar geleden eens en voor altijd vergoten werd, zal het hen reinigen van alle zonde. — 1 Johannes 1: 8, 9.
+Ook, en ik vind dat wij daar niet in politieke gevoeligheden moeten vervallen, zoals de heer Fayot net meldde, denk ik dat het nodig is dat alle pers- en audiovisuele diensten van het EP definitief in Brussel worden gevestigd, want versnippering kunnen wij ons niet langer permitteren.
+We gaan voor eens en altijd bewijzen dat God dood is.
+De intergouvernementele conferentie komt steeds dichterbij en zij zal ongetwijfeld de aangewezen plek zijn — dat hopen we tenminste — om de beslissingsprocedures nu eindelijk tot drie terug te brengen. Het taboe van de unanimiteitsregel in de Raad op het terrein van de gewone wetgeving moet worden doorbroken, en er moeten zoveel mogelijk kwesties die momenteel tot de tweede en derde pijler behoren definitief naar de eerste pijler worden overgeheveld, waarbij het subsidiariteitsbeginsel op een juistere en actuelere manier moet worden toegepast, enzovoorts.
+Wij menen echter dat het zoeken naar een oplossing voor de budgettaire problemen ertoe kan bijdragen middelen te vinden om de tijdbom van de werkloosheid aan te pakken.
+eens en voor altijd beslecht moet worden.
+Als hij dat niet doet, zeker religie is een chronische vloek over de mensheid, die ervoor zorgt dat mensen om te leven door verkeerde doeleinden. het zou een daad van heldhaftigheid en welwillendheid uit te vinden voor eens en voor altijd de waarheid van deze zaak.
+Mijnheer de Voorzitter, mijnheer Barrot, mijnheer Brown, u hebt het al gezegd, twintig jaar geleden viel de Berlijnse muur, waarmee voorgoed een einde kwam aan het model dat erdoor belichaamd werd, en dat sowieso al enige tijd ten dode opgeschreven was.
+We vinden dat we ervoor moeten zorgen dat Europees geld nooit meer zo zinloos kan worden verspild, en daarvoor moet er een regeling komen die voor de rechter kan worden afgedwongen.
+Het Vrouwenhandvest voorziet bovendien in een uitgebreid en doeltreffend beleidskader om gendergerelateerd geweld te bestrijden en in maatregelen, onder andere op strafrechtelijk gebied, om binnen de grenzen van de bevoegdheid van de EU de genitale verminking van vrouwen in Europa eens en voor altijd uit te bannen.
+Mijnheer de Voorzitter, ik zou willen dat dit verslag ertoe bijdroeg dat de Commissie voorgoed afstand deed van haar obsessieve veronderstelling dat een moderne vloot op gespannen voet staat met de bescherming van de visbestanden.
+Tenslotte hoop ik dat wij, wanneer wij het bijgewerkte verslag van de Commissie ontvangen, in staat zullen zijn om alle nog openstaande problemen snel tot een oplossing te brengen, zodat de bevolking van Malta zelf eens en vooral over haar toekomstige plaats in de Europese Unie kan beslissen.
+De persoonlijke bemoeienis van de staatshoofden of regeringsleiders van Midden- en Zuid-Amerika om ervoor te zorgen dat de grondwettelijke president Manuel Zelaya onvoorwaardelijk in zijn ambt wordt hersteld, toont aan dat het gehele werelddeel voorgoed wil afrekenen met het tijdperk van staatsgrepen en dictaturen.
+Ik wil nu wel eens weten wie je bent.
+Wordt het dan geen tijd dat de Raad nu eindelijk eens in het openbaar gaat beraadslagen als hij als wetgever optreedt?
+In eerste instantie bevestigt de Zevende Richtlijn, dat over verkopen tussen particulieren geen BTW wordt geheven en dat zij zonder enigerlei formaliteit in de gehele Unie kunnen worden verricht (aankoopvrijheid van het definitieve stelsel: de prijs wordt eenmalig betaald op de plaats van aankoop).
+Dan zou ik met die pepmiddelen moeten stoppen. Deze keer voorgoed.
+Registratiebelastingen zijn een heilige koe; laten we ze voor eens en altijd slachten – niet in de laatste plaats, en misschien zelfs juist uit milieuoverwegingen.
+Niemand beweert evenwel dat de internationale organisaties, niettegenstaande de rol die zij in het internationale bestel spelen, momenteel dezelfde juridische status hebben als de Staten.
+De Voorzitter. — De minister bepaalt zelf welke antwoorden hij wenst te geven.
+Al die Europese regeringen die dachten dat oorlog nu voorgoed tot het verleden behoorde en dat ze daarom konden korten op de voor defensie en veiligheid beschikbare middelen, zouden zich daarvan bewust moeten zijn als ze nu hun stem willen verheffen tegen het terrorisme.
+Ik wil de lidstaten klemmend aanraden nu eindelijk eens over de verschillen heen te stappen en maatregelen te nemen.
+De Raad en de Commissie zouden er goed aan doen nu eindelijk eens doortastend te handelen en dat waar te maken, wat zij ons al zolang beloven, namelijk een Europees vervoerbeleid tot stand te brengen.
+In de eerste plaats wil ik hun laten weten dat wij dit debat niet kunnen en niet mogen afsluiten zonder een serieus en rigoureus politiek compromis te hebben bereikt om nu eindelijk eens een einde te maken aan de doden, de uitbuiting en de mensenhandel, kortom met al die verschrikkelijke menselijke tragedies die wij dagelijks meemaken aan de zuidelijke Middellandse-Zeekust.
+Sociaal-politiek moeten wij ons concentreren op een verdere uitbreiding van de structuurfondsen, om aldus
+Maar aangezien het hier gaat om één derde van de vervuiling waarvan de bronnen gemakkelijk te identificeren zijn, zou de datum beter kunnen worden vervroegd ; door ons amendement nr. 6 stellen wij voor om de maatregelen een jaar na het van kracht worden van deze richtlijn in te voeren.
+Het Parlement veroordeelt alle vormen van geweld en met name het terrorisme van de PKK; het vraagt de Turkse autoriteiten een eind te maken aan de uitzonderingstoestand in de provincies met een Koerdische meerderheid en de naleving van de mensenrechten in het gebied te garanderen.
+Sinds Edison verkregen het octrooi op de gasgevulde gloeilamp in 1898 en de praktische waarde van de elektriciteit werd voor eens en altijd bewezen heeft de vraag naar elektriciteit Verhoogd.
+Het zou de Europese Commissie en overigens ook dit Europees Parlement zo vreselijk sieren als wij dat nu met z'n allen eens een keer zouden toegeven en inderdaad de juiste keuzes zouden maken.
+Door kwaad en lijden toe te laten, heeft God eens voor altijd laten zien wat de trieste gevolgen zijn van het misbruiken van de vrije wil.
+Dit moet zo snel mogelijk afgehandeld worden.
+Ik kan het misschien maar beter beëindigen, met mijn bloed.
+Ik maak nu definitief een einde aan je.
+De drijfveren van overheden om overeenkomsten te ondertekenen, ratificeren en implementeren zijn vrij goed begrepen in de context van een statisch spel waarin overheden beslissen voor eens en altijd tot een overeenkomst toe te treden of niet.
+Niet de Raad, de lidstaten of het Parlement, maar de Commissie moet haar huiswerk maken. Ik hoop dat ze dat, in het belang van de belastingbetalers in de Europese Unie, eindelijk tot onze tevredenheid zal doen.
+Ik ben eindelijk op het punt te bewijzen eens en voor altijd wie erachter zat.
+Als we het er allemaal over eens zijn dat we vat moeten krijgen op vraag naar energie en aanbod van energie, dan lijkt het me vanzelfsprekend dat we nu ook eens en voor altijd een weg moeten kiezen, zelfs al is dat dan een middenweg.
+De Sloveense en vervolgens de Franse voorzitterschappen moeten samen met Ierland proberen een juridisch acceptabele oplossing te vinden die eens en voor altijd een eind maakt aan meer dan vijftien jaar van pogingen de werking van het uitgebreide Europa te hervormen.
+Guarana daadwerkelijk ook is gebruikt voor cardio gezondheid en welzijn op het hart te versterken, terwijl het zuiveren van het bloed.De hoge cafeïne materiaal in guarana is misschien niet een keuze voor mensen met een nieraandoening, hoge bloeddruk, hartproblemen, hyperthyreoïdie of angstgevoelens zijn. nicotinamide Ook wel aangeduid als niacine, is dit over het algemeen vitamine B3 die essentieel is voor eens en altijd wellness evenals tekort kan leiden tot ziekte.
+Het is echter evenzeer nodig om in dit nieuwe Verdrag uitsluitsel te geven over de grenzen van de Europese Unie. Hier hebben de burgers en de buren van de Europese Unie recht op.
+Ik kan u zeggen, dat de werkgroep die de Intergouvernementele Conferentie aan het voorbereiden is, en die wordt voorgezeten door de Spanjaard Carlos Westendorp, op de bijeenkomst van begin juli in Toledo heeft voorgesteld om een vragenlijst over deze onderwerpen op te stellen, en de vijftien lidstaten van de Europese Unie hebben dat voorstel verwelkomd.
+Wanneer men ervoor strijdt en zich ervoor inzet dat de sociale en economische cohesie ten volle wordt nagekomen in de Europese Unie kan deze verklaring van de Wereldhandelsorganisatie - indien deze wordt gehandhaafd - op onherstelbare wijze de grootste landbouwproductie voor de economie van bepaalde regio's in de Europese Unie, met name ultraperifere en insulaire regio's, die toch al zwaar benadeeld zijn, verwoesten.
+De strijd voor de rechten van de vrouw is een strijd van ons allen, vrouwen en mannen, die overal gevoerd moet worden.
+Dan weten we voor eens en altijd... wie wie is en wat wat is.
+Met 'Trilateral Progression' zal Neuraxis ongetwijfeld uit de schaduw weten te kruipen van hun landgenoten Cryptopsy, Kataklysm en Gorguts en voortaan in één adem met hen worden genoemd.
+Mevrouw Kultu, echtgenote van de secretaris-generaal van de Verenigde Turkse Communistische Partij, is vrijwillig naar haar vaderland teruggekeerd en vervolgens gearresteerd. Kan de Europese Politieke Samenwerking naar aanleiding hiervan mededelen welke concrete maatregelen zij zal nemen opdat de Turkse overheid definitief ophoudt burgers om hun opvattingen gevangen te zetten, te folteren en te veroordelen?
+Laten we proberen er iets van te maken.
+Het is noodzakelijk dat de herziening van de financiële vooruitzichten dit gevaar wegneemt en alle, de huidige en de toekomstige Europeanen garandeert dat al hetgeen tot nu toe bereikt is, dat wil zeggen de communautaire verworvenheden die de Unie zo aantrekkelijk maken voor degenen die er nog geen deel van uitmaken, behouden zal blijven.
+Ik geloof dat het tijd is dat we deze zaak opnieuw ter harte nemen en dat we de Raad en de Commissie vragen om nu voor eens en altijd actie te ondernemen om een einde te maken aan het criminele handelen tegen mensen die zich in Zimbabwe inzetten voor de mensenrechten.
+Dus met de steun van Donna"s auto, hebben ze voor eens en altijd het standbeeld ontmandeld van B. Emerson Plunkett.

@@ -1,58 +1,54 @@
-Ik vind je geweldig .	-0.594998300075531
-Ze vinden je geweldig .	-0.5816579461097717
-Ik denk aan de wereld van Julie .	-0.27602654695510864
-Ik vind de wereld van haar .	-0.4764041602611542
-Ik denk aan de wereld van Michelle .	-0.2730559706687927
-Ik vind de wereld van haar .	-0.4764041602611542
-Ik denk aan de wereld van kolonel Potter .	-0.308375746011734
-En ik denk aan de wereld van Finlay !	-0.3087485730648041
-Ik denk ook aan de wereld van jou .	-0.5188214778900146
-Ze denken alleen maar aan jou .	-0.5639464259147644
-Owen , ik denk dat de wereld van jou ...	-0.2514278292655945
-Mijn dochters denken over haar .	-0.4916726350784302
-Ze moeten de wereld van jou denken .	-0.6629305481910706
-Esme , ik vind je geweldig .	-0.4490603804588318
-Ik vind je geweldig , Beau .	-0.42085766792297363
-Helaas vindt Sandra de wereld van haar .	-0.42541342973709106
-De kinderen denken de wereld van hem .	-0.4908639192581177
-En ik denk aan de wereld van je vrouw .	-0.3115425407886505
-Killian vindt je echt geweldig .	-0.4456373453140259
-Je weet dat ik de wereld van Calvin denk .	-0.3307163119316101
-Ik denk gewoon aan de wereld van jou , Marisol .	-0.4312606453895569
-Ik dacht altijd aan de wereld van haar .	-0.40733402967453003
-Nee , Martha , ik vind je geweldig .	-0.43510007858276367
-Ik denk de wereld van jou , Lee ... maar ...	-0.4000103175640106
-Natuurlijk , ik denk de wereld van hem .	-0.49388551712036133
-Iemand waar je de wereld van denkt .	-0.563707172870636
-En de Davenports , ze denken de wereld van jou .	-0.43351873755455017
-Weet je , ik denk de wereld van jou , maar ...	-0.4253830313682556
-Ik vind de wereld van jullie mooie jonge mannen .	-0.5233585834503174
-Nee , eigenlijk denk ik aan de wereld van je moeder .	-0.354818195104599
-We denken aan de wereld van Tawney .	-0.3486292362213135
-Liz en ik denken aan de wereld van Sarah .	-0.2714787721633911
-Sherry Conrad denkt aan de wereld van jou .	-0.5013866424560547
-Het is niet makkelijk om iemand te vinden waar je de wereld van denkt .	-0.3982529044151306
-- Je weet dat ik de wereld van jou vind , Brad .	-0.4947201609611511
-Ja , we denken ook aan de wereld van Mylene hier .	-0.37800079584121704
-Als ze is wat Joe nodig heeft , dan denk ik aan de wereld van haar .	-0.40266385674476624
-Waarom denk je dat de wereld van de wetenschap goed voor je is ?	-0.35726186633110046
-Het is een geweldige bemanning , zoon , en ze denken de wereld van jou .	-0.44670534133911133
-Ik denk dat Veta haar dag heeft gezien .	-0.4787600636482239
-Ik denk aan de wereld van deze hond , en kijk gewoon naar hem .	-0.39349332451820374
-Voor alles wat je voor me gedaan hebt ... denk ik aan de wereld van jou .	-0.4215155243873596
-En om redenen buiten mij , lijken de mannen de wereld van jou te denken .	-0.519904375076294
-Je weet dat ik de wereld van je denk , en ik vertrouw je met mijn leven .	-0.42211225628852844
-Ik denk dat jij een collega en vriend bent .	-0.5875709056854248
-Zelfs als we de wereld van onszelf denken ... zijn we net druppels in een rivier .	-0.4335671365261078
-Rooster , je weet dat ik de wereld van je denk , maar er is niets wat ik kan doen .	-0.38795486092567444
-Ik wil gewoon dat jullie weten dat ik van jullie moeder hou , en ik denk aan de wereld van jullie meisjes .	-0.46737679839134216
-Maar je weet dat ik denk dat de wereld van je vader en wij ervoor moeten zorgen dat hij beschermd wordt .	-0.36289116740226746
-Je weet dat ik de wereld van je denk , maar als je me compromitteert , of mijn werk weer ... is het voorbij .	-0.37998002767562866
-Iemand suggereerde dat Berlijn een geweldige stad was . Ik weet dat ook veel Nederlanders de wereld van Berlijn denken .	-0.3762895166873932
-Ik denk dat hij de wereld van hem kent , maar hij weet wat mijn knoppen zijn en hij weet hoe hij ze moet duwen .	-0.4629952907562256
-Ik denk dat de wereld van jou en wens je succes , maar het boek is niet goed genoeg om mijn naam erop te zetten .	-0.2919355034828186
-Zijn patiënten denken dat de wereld van hem : ze vliegen naar binnen vanuit plaatsen zo ver weg als India en de VS om door hem behandeld te worden .	-0.4160228967666626
-Als het zeggen van 'het spijt me ' je zoon zal helpen , een kind dat , trouwens , ik denk dat de wereld van ... dan spijt het me . Ik had het mis .	-0.42750197649002075
-Luister , zoon , je weet dat ik denk dat de wereld van Carrie , maar , uh , als je 12.000 van mij wilt , moet je haar onder controle krijgen .	-0.39902615547180176
-Luister , Steven , je bent nog maar een tiener voor een paar jaar , en je moeder zal je vervelen en dan word je volwassen en denk je aan de wereld van haar .	-0.41571545600891113
-Als zo ' n persoon een evenwichtige gemoedstoestand zou hebben dan zelfs wanneer mensen hem eerst prezen , zou hij denken : `` Mensen denken de wereld van mij , maar ik ken al mijn tekortkomingen en dus zal ik mezelf blijven verbeteren . ''	-0.3918398320674896
+Luister, zoon, je weet dat ik denk dat de wereld van Carrie, maar, uh, als je 12.000 van mij wilt, moet je haar onder controle krijgen.
+En om redenen buiten mij, lijken de mannen de wereld van jou te denken.
+Ik denk de wereld van jou, Lee... maar...
+En ik denk aan de wereld van je vrouw.
+Als ze is wat Joe nodig heeft, dan denk ik aan de wereld van haar.
+Ik denk aan de wereld van Julie.
+Zelfs als we de wereld van onszelf denken... zijn we net druppels in een rivier.
+Ze denken alleen maar aan jou.
+Voor alles wat je voor me gedaan hebt... denk ik aan de wereld van jou.
+Nee, eigenlijk denk ik aan de wereld van je moeder.
+Ik vind de wereld van haar.
+Als zo'n persoon een evenwichtige gemoedstoestand zou hebben dan zelfs wanneer mensen hem eerst prezen, zou hij denken: "Mensen denken de wereld van mij, maar ik ken al mijn tekortkomingen en dus zal ik mezelf blijven verbeteren."
+Rooster, je weet dat ik de wereld van je denk, maar er is niets wat ik kan doen.
+Ik denk dat Veta haar dag heeft gezien.
+Ik denk aan de wereld van deze hond, en kijk gewoon naar hem.
+Killian vindt je echt geweldig.
+Owen, ik denk dat de wereld van jou...
+Luister, Steven, je bent nog maar een tiener voor een paar jaar, en je moeder zal je vervelen en dan word je volwassen en denk je aan de wereld van haar.
+Je weet dat ik de wereld van je denk, maar als je me compromitteert, of mijn werk weer... is het voorbij.
+Ik vind je geweldig.
+Ik vind de wereld van jullie mooie jonge mannen.
+We denken aan de wereld van Tawney.
+Ja, we denken ook aan de wereld van Mylene hier.
+Helaas vindt Sandra de wereld van haar.
+Het is een geweldige bemanning, zoon, en ze denken de wereld van jou.
+Ik denk dat hij de wereld van hem kent, maar hij weet wat mijn knoppen zijn en hij weet hoe hij ze moet duwen.
+En de Davenports, ze denken de wereld van jou.
+Ik denk aan de wereld van Michelle.
+Ze vinden je geweldig.
+Sherry Conrad denkt aan de wereld van jou.
+Je weet dat ik de wereld van je denk, en ik vertrouw je met mijn leven.
+Waarom denk je dat de wereld van de wetenschap goed voor je is?
+Ik denk gewoon aan de wereld van jou, Marisol.
+Ik denk dat de wereld van jou en wens je succes, maar het boek is niet goed genoeg om mijn naam erop te zetten.
+Je weet dat ik de wereld van Calvin denk.
+Nee, Martha, ik vind je geweldig.
+Mijn dochters denken over haar.
+Ik dacht altijd aan de wereld van haar.
+Ik denk ook aan de wereld van jou.
+Weet je, ik denk de wereld van jou, maar...
+- Je weet dat ik de wereld van jou vind, Brad.
+Maar je weet dat ik denk dat de wereld van je vader en wij ervoor moeten zorgen dat hij beschermd wordt.
+Ik denk dat jij een collega en vriend bent.
+Iemand suggereerde dat Berlijn een geweldige stad was. Ik weet dat ook veel Nederlanders de wereld van Berlijn denken.
+En ik denk aan de wereld van Finlay!
+Natuurlijk, ik denk de wereld van hem.
+Ze moeten de wereld van jou denken.
+Zijn patiënten denken dat de wereld van hem: ze vliegen naar binnen vanuit plaatsen zo ver weg als India en de VS om door hem behandeld te worden.
+Ik vind je geweldig, Beau.
+Liz en ik denken aan de wereld van Sarah.
+Esme, ik vind je geweldig.
+Ik denk aan de wereld van kolonel Potter.
+Ik wil gewoon dat jullie weten dat ik van jullie moeder hou, en ik denk aan de wereld van jullie meisjes.
+De kinderen denken de wereld van hem.
