@@ -1,0 +1,3 @@
+EVERY dog has its day — and it came yesterday.	1 1 1 1 1 0 0 0 0 0	every dog has its day	figurative	case	DET NOUN VERB ADJ NOUN PUNCT CCONJ PRON VERB NOUN
+' Every dog has its day. '	0 1 1 1 1 1 0	every dog has its day	figurative	case	PUNCT DET NOUN VERB ADJ NOUN PUNCT
+Owner's tip : Try to remember that every dog must have its day.	0 0 0 0 0 0 0 1 1 0 1 1 1	every dog has its day	figurative	combined-inflection	PROPN NOUN PUNCT VERB PART VERB ADP DET NOUN VERB VERB ADJ NOUN

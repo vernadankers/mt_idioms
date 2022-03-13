@@ -1,0 +1,6 @@
+' That makes two of us.	0 1 1 1 1 1	that makes two of us	figurative	case	PUNCT DET VERB NUM ADP PRON
+' That makes two of us. '	0 1 1 1 1 1 0	that makes two of us	figurative	case	PUNCT DET VERB NUM ADP PRON PUNCT
+They were in Monaco, the home of poseurs, and when Keke said he was fed up, Niki could say, ' That makes two of us. '	0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 1 1 1 1 1 0	that makes two of us	figurative	case	PRON VERB ADP PROPN DET NOUN ADP NOUN CCONJ ADV PROPN VERB PRON VERB VERB PART PROPN VERB VERB PUNCT DET VERB NUM ADP PRON PUNCT
+‘ Then that makes two of us,’ Shiona countered, meeting the blue eyes that suddenly seemed to have grown darker beneath the sweep of thick black lashes.	0 0 1 1 1 1 1 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0	that makes two of us	figurative	dashes	PUNCT ADV DET VERB NUM ADP PROPN PROPN VERB VERB DET ADJ NOUN ADJ ADV VERB PART VERB VERB ADJ ADP DET NOUN ADP ADJ ADJ NOUN
+‘ Well that makes two of us then!	0 0 1 1 1 1 1 0	that makes two of us	figurative	identical	PUNCT INTJ DET VERB NUM ADP PRON ADV
+Well, that makes two of us, Hilary thought with a little smile as she sat at the table.	0 1 1 1 1 1 0 0 0 0 0 0 0 0 0 0 0 0	that makes two of us	figurative	identical	INTJ DET VERB NUM ADP PRON PROPN VERB ADP DET ADJ NOUN ADP PRON VERB ADP DET NOUN
