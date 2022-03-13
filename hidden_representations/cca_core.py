@@ -1,11 +1,11 @@
 # Copyright 2018 Google Inc.
-# 
+#
 # Licensed under the Apache License, Version 2.0 (the "License");
 # you may not use this file except in compliance with the License.
 # You may obtain a copy of the License at
-# 
+#
 #     http://www.apache.org/licenses/LICENSE-2.0
-# 
+#
 # Unless required by applicable law or agreed to in writing, software
 # distributed under the License is distributed on an "AS IS" BASIS,
 # WITHOUT WARRANTIES OR CONDITIONS OF ANY KIND, either express or implied.
@@ -33,8 +33,10 @@ from __future__ import absolute_import
 from __future__ import division
 from __future__ import print_function
 import numpy as np
+import torch
 
 num_cca_trials = 5
+
 
 def positivedef_matrix_sqrt(array):
   """Stable method for computing matrix square roots, supports complex matrices.
@@ -271,7 +273,7 @@ def get_cca_similarity(acts1, acts2, epsilon=0., threshold=0.98,
     return create_zero_dict(compute_dirns, acts1.shape[1])
 
   if compute_coefs:
-    
+
     # also compute full coefficients over all neurons
     x_mask = np.dot(x_idxs.reshape((-1, 1)), x_idxs.reshape((1, -1)))
     y_mask = np.dot(y_idxs.reshape((-1, 1)), y_idxs.reshape((1, -1)))
@@ -284,7 +286,7 @@ def get_cca_similarity(acts1, acts2, epsilon=0., threshold=0.98,
     return_dict["full_invsqrt_xx"] = np.zeros((numx, numx))
     np.place(return_dict["full_invsqrt_xx"], x_mask,
              return_dict["invsqrt_xx"])
-    
+
     return_dict["coef_y"] = v
     return_dict["invsqrt_yy"] = invsqrt_yy
     return_dict["full_coef_y"] = np.zeros((numy, numy))
@@ -320,6 +322,7 @@ def get_cca_similarity(acts1, acts2, epsilon=0., threshold=0.98,
   # summary statistics
   return_dict["mean"] = (np.mean(s[:idx1]), np.mean(s[:idx2]))
   return_dict["sum"] = (np.sum(s), np.sum(s))
+  return_dict["sum_threshold"] = idx1
 
   if compute_dirns:
     return_dict["cca_dirns1"] = cca_dirns1
@@ -371,3 +374,18 @@ def robust_cca_similarity(acts1, acts2, threshold=0.98, epsilon=1e-6,
         raise
 
   return return_dict
+
+
+def compute_cosine_sim(data1, data2, cca_results):
+    cacts1 = data1 - cca_results["neuron_means1"]
+    cacts2 = data2 - cca_results["neuron_means2"]
+
+    P = cca_results["full_coef_x"]
+    data1 = np.dot(
+        np.dot(P.T, np.dot(P, cca_results["full_invsqrt_xx"])), cacts1)
+    P = cca_results["full_coef_y"]
+    data2 = np.dot(
+        np.dot(P.T, np.dot(P, cca_results["full_invsqrt_yy"])), cacts2)
+    cos = torch.nn.CosineSimilarity(dim=0)
+    cos = cos(torch.FloatTensor(data1), torch.FloatTensor(data2))
+    return torch.mean(cos).item()
