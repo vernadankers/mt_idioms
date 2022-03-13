@@ -1,5 +1,8 @@
 ## Data preprocessing
 
+`magpie/data` contains data extracted from MAGPIE, with the context removed, and idiomaticity annotations in `tsv` files.
+The identifiers correspond to the identifiers in `idiom_keywords.tsv`.
+
 Run `run_magpie.sh <language>` to...
 1. Translate data with Marian-MT while saving hidden representations and attention patterns.
 2. Translate data with Marian-MT while masking a token in the input.
