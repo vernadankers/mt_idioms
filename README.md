@@ -25,8 +25,9 @@ Other non-standard libraries are provided in the `requirements.txt` file.
 For results from the paper's sections, visit the following folders, that have their own README.
 - Section 3: See the `data` folder.
 - Section 4: See the `attention` folder.
-- Section 5: See the `hidden representations` folder.
+- Section 5: See the `hidden_representations` folder.
 - Section 6: See the `amnesic_probing` folder.
+- Appendix B: See the `data` folder.
 - Appendix C: See the `attention` folder.
 - Appendix D: See the `attention` and `hidden_representations` folder.
 - Appendix E: See the `hidden_representations` folder.
