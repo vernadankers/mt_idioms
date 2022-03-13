@@ -1,6 +1,5 @@
 import sys
 sys.path.append('../data/')
-sys.path.append('../amnesic_probing/')
 import logging
 import numpy as np
 import random
@@ -117,10 +116,10 @@ if __name__ == "__main__":
 
     # Load all hidden representations of idioms
     samples_for_analysis = extract_sentences(
-        range(0, 500), classifier, tokenizer, use_tqdm=True,
+        range(0, 1000), classifier, tokenizer, use_tqdm=True,
         store_hidden_states=True, data_folder="../data/magpie/nl")
     samples_for_estimation = extract_sentences(
-        range(500, 1000), classifier, tokenizer, use_tqdm=True,
+        range(1000, 1727), classifier, tokenizer, use_tqdm=True,
         store_hidden_states=True, data_folder="../data/magpie/nl")
 
     # Shuffle the examples
@@ -133,14 +132,14 @@ if __name__ == "__main__":
     for s in samples_for_analysis:
         vocab.extend(s.tokenised_sentence.split())
     vocab = Counter(vocab)
-    vocab = list(set(x for x in vocab if vocab[x] >= 8 and vocab[x] <= 128))
-    logging.info(f"Found {len(vocab)} words with frequency between 16 - 100.")
+    vocab = list(set(x for x in vocab if vocab[x] >= 64 and vocab[x] <= 500))
+    logging.info(f"Found {len(vocab)} words with frequency between 64 - 500.")
 
     # We want five sets of vocabularies that have approx. the same amoun of vecs
-    vocab_setups = [(0, "40 x 128"), (1, "80 x 64"), (2, "160 x 32"),
-                    (3, "320 x 16"), (4, "640 x 8")]
-    vocab_size = {0: (40, 128), 1: (80, 64), 2: (160, 32),
-                  3: (320, 16), 4: (640, 8)}
+    vocab_setups = [(0, "80 x 64"), (1, "160 x 32"),
+                    (2, "320 x 16"), (3, "640 x 8"), (4, "1280 x 4")]
+    vocab_size = {0: (80, 64), 1: (160, 32), 2: (320, 16),
+                  3: (640, 8), 4: (1280, 4)}
     vocab_sets = dict()
     random.shuffle(vocab)
     for cat in [0, 1, 2, 3, 4]:
