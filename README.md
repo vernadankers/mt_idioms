@@ -27,6 +27,10 @@ For results from the paper's sections, visit the following folders, that have th
 - Section 4: See the `attention` folder.
 - Section 5: See the `hidden representations` folder.
 - Section 6: See the `amnesic_probing` folder.
+- Appendix C: See the `attention` folder.
+- Appendix D: See the `attention` and `hidden_representations` folder.
+- Appendix E: See the `hidden_representations` folder.
+- Appendix F: See the `amnesic_probing` folder.
 - Appendix G: See the `data` folder.
 
 <image src="attention_flow.png" />
