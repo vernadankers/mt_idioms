@@ -1,20 +1,20 @@
 import sys
 sys.path.append('../data/')
-from classifier import Classifier
-import random
-import torch
-import pickle
-from data import extract_sentences
-import numpy as np
-from collections import defaultdict
-import logging
-import os
-logging.getLogger().setLevel(logging.INFO)
-import torch
-from sklearn.metrics import f1_score
-from transformers import MarianTokenizer
-from debias import get_debiasing_projection, SKlearnClassifier, load_data
 from sklearn.linear_model import LogisticRegression
+from debias import get_debiasing_projection, SKlearnClassifier, load_data
+from transformers import MarianTokenizer
+from sklearn.metrics import f1_score
+import os
+import logging
+from collections import defaultdict
+import numpy as np
+from data import extract_sentences
+import pickle
+import torch
+import random
+from classifier import Classifier
+
+logging.getLogger().setLevel(logging.INFO)
 
 
 def set_seed(seed):
@@ -40,7 +40,6 @@ if __name__ == "__main__":
     parser.add_argument("--start", type=int, default=0)
     parser.add_argument("--stop", type=int, default=100)
     parser.add_argument("--step", type=int, default=1)
-    parser.add_argument("--setup", type=str, choices=["attention", "hidden"])
     parser.add_argument("--target", type=str, choices=["both", "magpie"])
     parser.add_argument("--average_pie", action="store_true")
     parser.add_argument("--split_by_idiom", action="store_true")
@@ -60,12 +59,12 @@ if __name__ == "__main__":
 
     for i in range(args.start, args.stop, args.step):
         if (i + 1) % 50 == 0:
-            logging.info(f"Loading idiom {i/args.step:.0f} / {(args.stop-args.start)/args.step:.0f}")
+            logging.info(
+                f"Loading idiom {i/args.step:.0f} / {(args.stop-args.start)/args.step:.0f}")
         samples = extract_sentences(
             [i], classifier, tokenizer,
             data_folder=f"../data/magpie/{args.language}",
-            use_tqdm=False, store_hidden_states=args.setup == "hidden",
-            store_attention_query=args.setup == "attention")
+            use_tqdm=False, store_hidden_states=args.setup == "hidden")
         for s in samples:
             if args.target == "both":
                 if s.translation_label == "paraphrase" and s.magpie_label == "figurative":
@@ -126,7 +125,7 @@ if __name__ == "__main__":
              (train_4, test_4), (train_5, test_5)]
 
     scores_dict = defaultdict(lambda: defaultdict(list))
-    for layer in range(6 if args.setup == "attention" else 7):
+    for layer in range(7):
         f1s_train, f1s_test, baseline_f1s = [], [], []
         for train, test in folds:
             train_sentences = [s.sentence+s.idiom for s in train]
@@ -135,14 +134,17 @@ if __name__ == "__main__":
                 len(set(train_sentences).intersection(set(test_sentences)))
 
             X_train, Y_train, median_freq = load_data(
-                train, layer, args.setup == "attention", False,
+                train, layer, False,
                 average_pie=args.average_pie)
             X_dev, Y_dev, _ = load_data(
-                test, layer, args.setup == "attention", False,
+                test, layer, False,
                 median_freq, average_pie=args.average_pie)
-            clf = SKlearnClassifier(LogisticRegression(**{"max_iter": 5000, "random_state": 1}))
-            f1_train, f1_test = clf.train_network(X_train, Y_train, X_dev, Y_dev)
-            f1_baseline = f1_score(Y_dev, [random.choice(Y_train) for _ in Y_dev], average="macro")
+            clf = SKlearnClassifier(LogisticRegression(
+                **{"max_iter": 5000, "random_state": 1}))
+            f1_train, f1_test = clf.train_network(
+                X_train, Y_train, X_dev, Y_dev)
+            f1_baseline = f1_score(Y_dev, [random.choice(
+                Y_train) for _ in Y_dev], average="macro")
 
             scores_dict[layer]["f1_train"].append(f1_train)
             scores_dict[layer]["f1_test"].append(f1_test)
@@ -152,10 +154,11 @@ if __name__ == "__main__":
             f1s_test.append(f1_test)
             baseline_f1s.append(f1_baseline)
 
-            logging.info(f"Training set size: {len(train_sentences)}, Test set size: {len(test_sentences)}")
-        logging.info(f"{layer}, {np.mean(f1s_train):.3f} {np.std(f1s_train):.3f}, " +
-                     f"{np.mean(f1s_test):.3f}+/-{np.std(f1s_test):.3f}, " +
-                     f"{np.mean(baseline_f1s):.3f}")
+            logging.info(
+                f"Training set size: {len(train_sentences)}, Test set size: {len(test_sentences)}")
+        logging.info(f"{layer}, {np.mean(f1s_train):.3f} {np.std(f1s_train):.3f}, "
+                     + f"{np.mean(f1s_test):.3f}+/-{np.std(f1s_test):.3f}, "
+                     + f"{np.mean(baseline_f1s):.3f}")
 
     for x in scores_dict:
         scores_dict[x] = dict(scores_dict[x])

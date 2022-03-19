@@ -1,16 +1,16 @@
 import sys
-import random
-from collections import defaultdict
-import logging
-import pickle
-import gc
-import torch
 sys.path.append('../data/')
+import torch
+import gc
+import pickle
+import logging
+import random
 from data import extract_sentences
 from classifier import Classifier
 from transformers import MarianTokenizer
 from probing import set_seed
-from debias import get_debiasing_projection, get_projection_to_intersection_of_nullspaces
+from debias import get_debiasing_projection, \
+    get_projection_to_intersection_of_nullspaces
 logging.getLogger().setLevel(logging.INFO)
 
 
@@ -35,7 +35,8 @@ if __name__ == "__main__":
     data = dict()
     for i in range(args.start, args.stop, args.step):
         if (i + 1) % 50 == 0:
-            logging.info(f"Sample {i/args.step:.0f} / {(args.stop-args.start)/args.step:.0f}")
+            logging.info(
+                f"Sample {i/args.step:.0f} / {(args.stop-args.start)/args.step:.0f}")
         samples = extract_sentences(
             [i], classifier, tokenizer, use_tqdm=False, store_hidden_states=True,
             data_folder=f"../data/magpie/{args.language}")
@@ -60,7 +61,6 @@ if __name__ == "__main__":
     del data
     gc.collect()
 
-    percentages, bleus = [], []
     for fold in args.folds:
         # Separate into folds
         if fold == 0:
@@ -81,6 +81,9 @@ if __name__ == "__main__":
 
         train1 = [x for x in train if x.label == 1]
         train0 = [x for x in train if x.label == 0]
+
+        # Equalise the sizes of the 0 and 1 class. The 0 class is larger,
+        # so prune that one.
         random.shuffle(train0)
         train = train0[:len(train1)] + train1
         random.shuffle(train)
@@ -89,10 +92,10 @@ if __name__ == "__main__":
             # Collect projection matrices by training on hidden states
             _, rowspace_projections, _ = get_debiasing_projection(
                 {"max_iter": 2500, "random_state": 1}, 50, 512,
-                train, dev, layer=layer, attention=False, baseline=args.baseline)
-            for k in range(0, 50, 10):
-                P = torch.FloatTensor(get_projection_to_intersection_of_nullspaces(
-                    rowspace_projections[:k], 512))
-                pickle.dump(
-                    P, open(f"projection_matrices/{args.language}_hidden_fold={fold}_layer=" +
-                            f"{layer}_baseline={args.baseline}_classifiers={k+10}.pickle", 'wb'))
+                train, dev, layer=layer, baseline=args.baseline)
+
+            P = torch.FloatTensor(get_projection_to_intersection_of_nullspaces(
+                rowspace_projections, 512))
+            pickle.dump(
+                P, open(f"projection_matrices/{args.language}_hidden_fold={fold}_layer=" +
+                        f"{layer}_baseline={args.baseline}.pickle", 'wb'))
