@@ -7,9 +7,10 @@ from torch import FloatTensor as FT, LongTensor as LT
 import torch
 import logging
 
+
 class Sentence():
     def __init__(self, sentence, tokenised_sentence, hidden_states_enc, attention,
-                 attention_query, cross_attention, translation_label,
+                 cross_attention, translation_label,
                  magpie_label, variant, idiom,
                  annotation, tokenised_annotation, pos_tags,
                  non_tokenised_pos_tags, prd=None, stacked_by_layer=False):
@@ -29,19 +30,14 @@ class Sentence():
                 self.hidden_states = torch.stack([
                     FT(x) if x is not None else zero_vector for x in hidden_states_enc]).transpose(0, 1)
 
-        if attention_query is not None:
-            zero_vector = torch.zeros((6, 512))
-            self.attention_query = torch.stack([
-                FT(x) if x is not None else zero_vector for x in attention_query]).transpose(0, 1)
-
         if attention is not None:
             # Identify which indices were masked in the attention,
             # is only used in the influence setup for SVCCA similarities
-            self.masked_indices = []
+            self.masked_annotation = []
             for l in range(6):
                 summed = np.sum(np.sum(attention[l], axis=0), axis=0)[:src_len]
                 indices = [1 if x == 0 else 0 for i, x in enumerate(summed)]
-                self.masked_indices.append(indices)
+                self.masked_annotation.append(indices)
             self.attention = FT(attention)[:, :, :src_len, :src_len]
 
         if cross_attention is not None:
@@ -58,20 +54,35 @@ class Sentence():
 
     def index_select(self, target_label, tags=[], no_subtokens=True,
                      neighbours_only=False, neighbourhood=10,
-                     context_context=False, layer=None):
-        """Collect all indices that adhere to certain conditions."""
+                     context_of_mask=False, layer=None):
+        """Collect all indices that adhere to certain conditions.
+        Args:
+            target_label (int): 0 or 1, indicating non-pie or pie token.
+            tags (list): specific tags that one is interested in.
+            no_subtokens (bool): whether to exclude subtokens (default True).
+            neighbours_only (bool): whether to include PIE's neighbouring
+                tokens only.
+            neighbourhood (int): neighbourhood size.
+            context_of_mask (bool): whether the "neighbour" should be a
+                neighbour to the PIE (False) or to the masked token (True).
+            layer (int): used for context_of_mask only, layer where the
+                masking occurred.
+
+        Returns:
+            list of indices that satisfy the set constraints
+        """
         if isinstance(target_label, int):
             target_label = [target_label]
         neighbours = []
 
         # Collect neighbours of idiom, unless context_context
         # in that case take the neighbours from the masked indices
-        ann = self.tokenised_annotation if not context_context else self.masked_indices[
+        ann = self.tokenised_annotation if not context_of_mask else self.masked_annotation[
             layer]
 
         # Now collect the neighbours
-        for i, l in enumerate(ann):
-            if l != 1 and 1 in ann[max(0, i-neighbourhood):i + neighbourhood + 1]:
+        for i, label in enumerate(ann):
+            if label != 1 and 1 in ann[max(0, i-neighbourhood):i + neighbourhood + 1]:
                 neighbours.append(i)
 
         # Collect all sentences that adhere to the conditions
@@ -99,13 +110,11 @@ def extract_sentences(indices,
                       store_hidden_states=False,
                       store_attention=False,
                       store_cross_attention=False,
-                      store_attention_query=False,
                       influence_setup=False,
                       get_verb_idioms=False,
                       data_folder2=None,
                       stacked_by_layer=False):
     sentences = []
-
     for i in tqdm(indices, disable=not use_tqdm):
         if not os.path.exists(f"{data_folder}/prds/{i}_pred.txt") or \
            len(open(f"{data_folder}/prds/{i}_pred.txt").readlines()) == 0:
@@ -115,13 +124,7 @@ def extract_sentences(indices,
         # Only open the pickled data needed, to avoid exploding memory usage
         if store_hidden_states:
             filename = f"{data_folder}/hidden_states_enc/{i}_pred_hidden_states_enc.pickle"
-            if not os.path.exists(filename):
-                continue
             hidden_states_enc = pickle.load(open(filename, 'rb'))
-
-        if store_attention_query:
-            attention_queries = pickle.load(open(
-                f"{data_folder}/query_attention/{i}_pred_query_attention.pickle", 'rb'))
 
         if store_attention:
             attention = pickle.load(open(
@@ -148,16 +151,12 @@ def extract_sentences(indices,
         prds = open(
             f"{data_folder}/prds/{i}_pred.txt", encoding="utf-8").readlines()
         for x, _ in zip(inputs, prds):
-            sentence, annotation, idiom, label, variant, tags, \
-                _, _, _ = x.split("\t")
-
+            sentence, annotation, idiom, label, variant, tags = x.split("\t")
             tok_sent, tok_annotation, tok_tags = [], [], []
             for w, l, t in zip(sentence.split(), annotation.split(), tags.split()):
                 tok_sent.extend(tokenizer.tokenize(w))
                 tok_annotation.extend([l] * len(tokenizer.tokenize(w)))
                 tok_tags.extend([t] * len(tokenizer.tokenize(w)))
-
-            src_len = len(tok_annotation) + 1
 
             srcs.append(sentence)
             data_info[sentence] = {
@@ -178,19 +177,14 @@ def extract_sentences(indices,
             continue
 
         # Collect the detokenised predicted translations by the model
-
         to_prds = {x.strip(): y.strip() for x, y in zip(srcs, prds)}
-
         for sent in data_info:
             # We only generated translations up to length 512, so remove long items
             if len(data_info[sent]["tok_annotation"]) >= 511:
                 continue
 
             translation_label = classifier(idiom, to_prds[sent])
-
-            # Exclude copies, only keep other samples if get_verb_idioms is True
-            if translation_label in ["copied"]:
-                continue
+            # Only keep "none" samples if get_verb_idioms is True
             if not get_verb_idioms and translation_label in ["none"]:
                 continue
 
@@ -200,7 +194,6 @@ def extract_sentences(indices,
                 tokenised_sentence=' '.join(data_info[sent]["tok_sent"]),
                 hidden_states_enc=None if not store_hidden_states else hidden_states_enc[sent],
                 attention=None if not store_attention else attention[sent],
-                attention_query=None if not store_attention_query else attention_queries[sent],
                 cross_attention=None if not store_cross_attention else cross_attention[sent],
                 translation_label=translation_label,
                 magpie_label=data_info[sent]["label"],
