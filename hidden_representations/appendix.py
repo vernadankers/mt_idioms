@@ -1,15 +1,15 @@
 import sys
 sys.path.append('../data/')
-import logging
-import numpy as np
-import random
-import seaborn as sns
-import cca_core
-from matplotlib import pyplot as plt
-from data import extract_sentences
-from classifier import Classifier
-from collections import defaultdict, Counter
 from transformers import MarianTokenizer
+from collections import defaultdict, Counter
+from classifier import Classifier
+from data import extract_sentences
+from matplotlib import pyplot as plt
+import cca_core
+import seaborn as sns
+import random
+import numpy as np
+import logging
 
 
 def visualise(all_coefs, filename, caption):
@@ -132,8 +132,8 @@ if __name__ == "__main__":
     for s in samples_for_analysis:
         vocab.extend(s.tokenised_sentence.split())
     vocab = Counter(vocab)
-    vocab = list(set(x for x in vocab if vocab[x] >= 64 and vocab[x] <= 500))
-    logging.info(f"Found {len(vocab)} words with frequency between 64 - 500.")
+    vocab = list(set(x for x in vocab if vocab[x] >= 64 and vocab[x] <= 1000))
+    logging.info(f"Found {len(vocab)} words with frequency between 64 - 750.")
 
     # We want five sets of vocabularies that have approx. the same amoun of vecs
     vocab_setups = [(0, "80 x 64"), (1, "160 x 32"),
