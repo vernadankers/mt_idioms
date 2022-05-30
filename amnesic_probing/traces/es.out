@@ -1,0 +1,14 @@
+INFO:root:{'hidden_layers': [0, 1, 2, 3, 4], 'hidden_labels': [1], 'attention_labels': [1], 'start': 0, 'stop': 1727, 'step': 1, 'baseline': False, 'filename': 'data/attention_es.pickle', 'trace_filename': 'data/trace_es.pickle', 'folds': [0, 1, 2, 3], 'gather_attention': True, 'language': 'es'}
+INFO:root:Seed: 1
+INFO:root:Starting with fold 0.
+INFO:root:Starting with fold 1.
+INFO:root:Starting with fold 2.
+INFO:root:Starting with fold 3.
+INFO:root:BLEU = 77.855, % idioms = 0.39520003910368057
+INFO:root:{'hidden_layers': [0, 1, 2, 3, 4], 'hidden_labels': [1], 'attention_labels': [1], 'start': 0, 'stop': 1727, 'step': 1, 'baseline': True, 'filename': 'attention.pickle', 'trace_filename': 'data/trace_baseline_es.pickle', 'folds': [0, 1, 2, 3], 'gather_attention': False, 'language': 'es'}
+INFO:root:Seed: 1
+INFO:root:Starting with fold 0.
+INFO:root:Starting with fold 1.
+INFO:root:Starting with fold 2.
+INFO:root:Starting with fold 3.
+INFO:root:BLEU = 77.879, % idioms = 0.3006031651804165
