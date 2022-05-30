@@ -14,6 +14,14 @@ from torch import LongTensor as LT
 random.seed(1)
 
 
+def is_sub(sub, lst):
+    ln = len(sub)
+    for i in range(len(lst) - ln + 1):
+        if all(sub[j] == lst[i+j] for j in range(ln)):
+            return True
+    return False
+
+
 def main(mode, start, stop, step, language, use_precomputed_alignments=False, folder="data"):
     src_not_found = []
 
@@ -29,7 +37,6 @@ def main(mode, start, stop, step, language, use_precomputed_alignments=False, fo
     sentences = extract_sentences(
         range(start, stop, step), classifier, tokenizer, use_tqdm=False,
         data_folder=f"../data/magpie/{language}", store_cross_attention=True)
-    print(len(sentences))
 
     # Restrict the data used to...
     # - identical are matches labelled as identical by MAGPIE
@@ -43,9 +50,15 @@ def main(mode, start, stop, step, language, use_precomputed_alignments=False, fo
                       == "paraphrase" and x.magpie_label == "figurative"}
         intersection = lit_idioms.intersection(fig_idioms)
         sentences = [x for x in sentences if x.idiom in intersection]
+    elif mode == "short":
+        sentences = [
+            x for x in sentences
+            if x.tokenised_annotation.count(1) == 3 and \
+               (is_sub([1, 0, 1, 1], x.tokenised_annotation) or is_sub([1, 1, 0, 1], x.tokenised_annotation))]
 
     logging.info(
         f"Processing cross-attention - mode {mode} - {len(sentences)} samples.")
+    logging.info(f"Translation 1: {sentences[0].translation}")
 
     per_layer = dict()
     for layer in range(6):
@@ -64,7 +77,7 @@ def main(mode, start, stop, step, language, use_precomputed_alignments=False, fo
                     if not u'▁' in sent.translation[i]:
                         continue
                     att_last_layer = torch.mean(
-                        sent.cross_attention[-1, :, i, :-1], dim=0)
+                        torch.mean(sent.cross_attention[:, :, i, :-1], dim=0), dim=0)
                     index = torch.argmax(att_last_layer, dim=-1)
                     align_src2tgt[index.item()].append(i)
             else:
@@ -127,13 +140,16 @@ def main(mode, start, stop, step, language, use_precomputed_alignments=False, fo
         os.mkdir(f"{folder}/{language}")
     if mode == "intersection":
         pickle.dump(per_layer, open(
-            f"{folder}/{language}/cross_attention_subset=intersection.pickle", 'wb'))
+            f"{folder}/{language}/cross_attention_subset=intersection_eflomal={use_precomputed_alignments}.pickle", 'wb'))
     elif mode == "identical":
         pickle.dump(per_layer, open(
-            f"{folder}/{language}/cross_attention_subset=identical.pickle", 'wb'))
+            f"{folder}/{language}/cross_attention_subset=identical_eflomal={use_precomputed_alignments}.pickle", 'wb'))
+    elif mode == "short":
+        pickle.dump(per_layer, open(
+            f"{folder}/{language}/cross_attention_subset=short_eflomal={use_precomputed_alignments}.pickle", 'wb'))
     else:
         pickle.dump(per_layer, open(
-            f"{folder}/{language}/cross_attention.pickle", 'wb'))
+            f"{folder}/{language}/cross_attention_eflomal={use_precomputed_alignments}.pickle", 'wb'))
 
     print(src_not_found)
 
@@ -147,7 +163,7 @@ if __name__ == "__main__":
     parser.add_argument("--use_precomputed_alignments", action="store_true")
     parser.add_argument("--folder", type=str, default="data")
     parser.add_argument(
-        "--mode", type=str, choices=["regular", "intersection", "identical"],
+        "--mode", type=str, choices=["regular", "intersection", "identical", "short"],
         default="regular")
     args = parser.parse_args()
     logging.basicConfig(level=logging.INFO)

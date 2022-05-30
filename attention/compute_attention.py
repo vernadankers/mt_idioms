@@ -15,6 +15,13 @@ from torch import LongTensor as LT
 
 random.seed(1)
 
+def is_sub(sub, lst):
+    ln = len(sub)
+    for i in range(len(lst) - ln + 1):
+        if all(sub[j] == lst[i+j] for j in range(ln)):
+            return True
+    return False
+
 
 def main(mode, start, stop, step, language):
 
@@ -40,9 +47,15 @@ def main(mode, start, stop, step, language):
                       == "paraphrase" and x.magpie_label == "figurative"}
         intersection = lit_idioms.intersection(fig_idioms)
         sentences = [x for x in sentences if x.idiom in intersection]
+    elif mode == "short":
+        sentences = [
+            x for x in sentences
+            if x.tokenised_annotation.count(1) == 3 and \
+               (is_sub([1, 0, 1, 1], x.tokenised_annotation) or is_sub([1, 1, 0, 1], x.tokenised_annotation))]
 
     logging.info(
         f"Processing attention - mode {mode} - {len(sentences)} samples.")
+    logging.info(f"Translation 1: {sentences[0].translation}")
 
     # Step 3: Iterate over the layers and compute 3 types of attention weights
     per_layer = dict()
@@ -120,6 +133,9 @@ def main(mode, start, stop, step, language):
     elif mode == "identical":
         pickle.dump(per_layer, open(
             f"data/{language}/attention_subset=identical.pickle", 'wb'))
+    elif mode == "short":
+        pickle.dump(per_layer, open(
+            f"data/{language}/attention_subset=short.pickle", 'wb'))
     else:
         pickle.dump(per_layer, open(f"data/{language}/attention.pickle", 'wb'))
 
@@ -131,7 +147,7 @@ if __name__ == "__main__":
     parser.add_argument("--step", type=int, default=1)
     parser.add_argument("--language", type=str, default="nl")
     parser.add_argument(
-        "--mode", type=str, choices=["regular", "intersection", "identical"],
+        "--mode", type=str, choices=["regular", "intersection", "identical", "short"],
         default="regular")
     args = parser.parse_args()
     logging.basicConfig(level=logging.INFO)
