@@ -1,2 +1,0 @@
-Het feit dat dit niet in de Notulen van gisteren is gepubliceerd houdt in dat wij nu na de stemming over de belangrijkste kwestie over vragen zullen stemmen. Dat lijkt nogal belachelijk.
-We leven in een groot drama, een groot drama waar alle belangrijke gebeurtenissen als een script voor de mensen geschreven is.Waar de mensen naar zo'n laag niveau van begrip zijn gebracht, waar minderwaardigheid in alle gebieden is gepromoot, zodat er geen kritische vermogens tot nadenken meer zijn.

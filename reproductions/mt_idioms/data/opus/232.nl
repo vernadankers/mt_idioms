@@ -1,1 +1,0 @@
-Ik krijg rimpels.

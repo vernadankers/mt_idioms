@@ -1,6 +1,0 @@
-Mag ik eerst en vooral zeggen dat ik ervan overtuigd blijf dat de controle van de vlaggestaat het belangrijkste middel moet blijven voor de toepassing van de normen.
-Ons eerste bedrijfspand, een kantoor met aangrenzende bedrijfsruimte voor verzending en logistiek, ligt in de buurt van Würzburg Omdat we vaak tot in de late uurtjes doorwerken en het licht bij ons dan nog brandt, hebben onze buren vast gedacht: "Die hebben de energie om grote dingen te bereiken!"
-Wel zou ik, met het versIag-Chouraqui als een nog afschuwelijker voorbeeld, het Bureau willen suggereren de Commissie Reglement en verzoekschriften te vragen zich met name te verdiepen in herziening van artikel 54 bis teneinde het effectief te maken, gemakkelijk uitvoerbaar en niet alleen de tijd te sparen van de leden maar ook de rapporteurs, die tot diep in de nacht moeten werken om te proberen nog iets te maken van een overvloed van amendementen.
-In deze periodes was Moeder alleen met mij en tijdens de lange avonden las en herlas zij haar bijbel tot diep in de nacht.
-Ik heb al enige tijd het gevoel dat iemand een hand in de geldla gehad heeft... dus ik besloot het zekere voor het onzekere te nemen om er zeker van te zijn.
-Ik vind het uitstekend dat we hier zijn, wat mij betreft tot diep in de nacht, als er iets te bespreken valt.

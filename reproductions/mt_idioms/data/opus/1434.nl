@@ -1,3 +1,0 @@
-Race - Stay The Distance Cal Selecteer op basis van tips en hoop dat het winnen van de race voor jou!
-Race - Stay The Distance Selecteer uw paard op basis van tips en hoop dat...
-Ik geef me helemaal

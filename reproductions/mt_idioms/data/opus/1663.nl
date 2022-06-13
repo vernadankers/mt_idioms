@@ -1,3 +1,0 @@
-Deze onderhandelingen zijn uiterst gevoelig en we kunnen ons geen problemen veroorloven...
-Die wil je toch niet verstoren?
-Maar in 2015 hebben de rechters ook daar een streep doorgehaald in eenzaaktegen de Haagse Hogeschool.

@@ -1,2 +1,0 @@
-Ook geen straf … Draken in Furth De directe omgeving van de camping biedt volop mogelijkheden voor leuke dagjes uit.
-En als u daar bent zijn de Santo Spirito en het niet te versmaden Palazzo Pitti met zijn prachtige schilderijenverzameling en tuinen nabij. U ziet: simpel is het niet Florence in kort bestek te doen. Of u zou moeten kiezen voor een meer thematische aanpak: gotiek of Renaissance, architectuur, beeldhouwkunst of schilderkunst.

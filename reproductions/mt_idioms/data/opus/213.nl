@@ -1,3 +1,0 @@
-Je gaat geen « parelen voor de zwijnen gooien » en bewaard je kostbare bezit voor beter, meer geschiktere situaties.
-Ja, je moet wat, om je te onderscheiden op de diamantenclub, en het kan niet gek genoeg, dus werpen we in een wedstrijd paarlen voor de zwijnen in het belendende park van ons familiekasteel.
-Bernard licht toe dat zout in sommige dorpen een schaars goed is. Rattenvlees is vlees dat van weinig waarde wordt geacht, iets dat kinderen soms eten, de trotste buit van hun gezamenlijke jacht. Je gaat geen « parelen voor de zwijnen gooien » en bewaard je kostbare bezit voor beter, meer geschiktere situaties.

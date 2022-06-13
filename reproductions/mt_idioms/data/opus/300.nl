@@ -1,1 +1,0 @@
-Tijdens een feestje werd ze door haar vrienden voorgesteld aan Ben Volpeliere-Pierrot van Curiosity Killed the Cat, die haar meenam naar de Metamorphisis recording studios in All Saints Road, Londen alwaar ze begon als achtergrondzangeres voor diverse artiesten.

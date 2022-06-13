@@ -1,1 +1,0 @@
-En patenthouders die geen producten ontwikkelen maar alleen geld kloppen uit bedrijven die wel producten ontwikkelen lachen helemaal als laatste, terwijl ze ondertussen de vooruitgang in de weg staan.Maar de meeste ontwikkelaars en gebruikers zijn slechter af met softwarepatenten, die daarmee de ontwikkeling van software meer tegenhoudt dan dat ze het stimuleert.

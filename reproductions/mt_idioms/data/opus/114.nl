@@ -1,1 +1,0 @@
-Wij mogen niet vergeten dat terwijl de landbouwproduktie in Europa in de loop van die 25 jaar fors steeg, de landbouwproduktie in mijn land stagneerde of praktisch stagneerde, of soms zelfs daalde zoalsbij voorbeeld in de laatste tien jaar het geval was.

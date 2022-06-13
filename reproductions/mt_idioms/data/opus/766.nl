@@ -1,1 +1,0 @@
-De eurofederalisten zitten sowieso in de hoek waar de klappen vallen, want volgens dezelfde enquête wil 63 procent van de Fransen en 68 procent van de Nederlanders een aantal bevoegdheden terug van de Europese Unie of anders uit de Unie stappen.

@@ -1,1 +1,0 @@
-Fiachra in de National Stud, Kildare Renpaarden De geschiedenis leeft voort in Ierland, zoals je kunt zien aan het paardenfokken en -trainen dat van Kildare nog steeds een wereldwijd paarden-hotspot maakt.

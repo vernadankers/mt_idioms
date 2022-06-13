@@ -1,7 +1,0 @@
-We weten dat de regering dit al talloze jaren heeft voorbereid en dus kom ik in de lucht en probeer ik je zo snel mogelijk bij te praten.
-Dit doen ze al ik weet niet hoeveel jaar en niets is veranderd.
-Maar wel op één voorwaarde, namelijk dat ze een groot aantal stemmen krijgt als een overduidelijk bewijs van de verknochtheid van de overweldigende meerderheid van het Parlement aan de erin geformuleerde rechten.
-Wij, die een jarenlange traditie achter de rug hebben van vrije handel en vrije ontwikkelingen, hebben toch ook in sommige landen en in sommige industrieën grote problemen. Ik noem daar bijvoorbeeld het omschakelen, de conversie en ombouw van industrieën die we niet langer nodig hebben.
-En het is nu tijd voor mensen om hun hoofden helder te houden, want we krijgen onze helden om te volgen, in bepaalde alternatieve media, die de bal aan het rollen zullen brengen om het gevecht onder elkaar op het juiste moment te laten beginnen.
-Door zijn bijdrage, bijvoorbeeld bij de opvoeding van de kinderen en de zorg voor zwakkere familieleden, is het gezin een uiterst belang rijke component van de sociale structuur van onze samenleving. Met de organisatie van een informele bijeenkomst van de ministers van gezinsaangelegenheden op 14 en 15 september 1994 in Berlijn heeft het voorzitterschap willen tonen welke grote betekenis het aan het welzijn van de gezinnen in de landen van de Unie hecht.
-- Daar nestelen ze al jaren.

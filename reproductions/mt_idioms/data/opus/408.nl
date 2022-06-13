@@ -1,2 +1,0 @@
-Mede in verband met de opstelling van de Raad en het eerder door dit Parlement uitgesproken meerderheidsstandpunt zal ook ik in dit verslag en in het volgende verslag de parallellen tussen liberalisatie en harmonisatie niet ontkennen.
-Maar alsof er niets aan de hand is en met het grootste cynisme sprekend van een zogenaamde "dialoog met de burger in het kader van het Verdrag van Lissabon" weigert Europa zich neer te leggen bij de mening van het volk en wil het langs achterpoortjes de Grondwet alsnog door de strot van de Europeanen duwen.

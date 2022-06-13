@@ -1,3 +1,0 @@
-Je houdt de hand van iemand vast nadat hun mama...
-Als zijn hart in orde is. Ik heb nu geen tijd om iemands hand vast te houden.
-Vorige week stak ik wat in de fik, en hoefde ik niemands hand er voor vast te houden.

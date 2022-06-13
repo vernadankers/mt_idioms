@@ -1,1 +1,0 @@
-Hardlopers zijn doodlopers.

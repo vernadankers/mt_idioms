@@ -1,3 +1,0 @@
-Duizend banen komen in de aardappelindustrie op de tocht te staan, want het is een industrie die na de stillegging ervan niet zo maar opnieuw kan worden opgestart.
-Ik had het buitengewoon belangrijk gevonden als we de tijd vanmiddag hadden benut om ook andere dringende kwesties te bespreken die er normaalgesproken bij in schieten omdat we er nooit tijd voor hebben.
-Overigens wil ik eraan herinneren dat de Europese Commissie ons in de Commissie voor de begro tingen duidelijk heeft gezegd dat zij op het ogenblik beschikt over alle bedragen die zij denkt nodig te heb ben, zowel in 1981 als in 1982.

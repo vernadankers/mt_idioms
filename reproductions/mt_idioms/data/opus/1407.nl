@@ -1,1 +1,0 @@
-In een hoofdartikel in de New York Times van 5 april 1972 werd opgemerkt: „’ Wie zijn kinderen liefheeft, die kastijdt ze ’ is een verkeerd spreekwoord dat nog steeds instemming ontvangt van de zijde van mensen die zichzelf hebben aangesteld als handhavers van ’ de oude deugden ’.

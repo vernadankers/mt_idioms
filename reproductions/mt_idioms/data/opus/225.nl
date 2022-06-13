@@ -1,1 +1,0 @@
-"Verbeter de wereld, begin bij jezelf", dat wil zeggen: innerlijk. Verandering begint ook innerlijk, en gehoor geven aan de dynamische geest van deze tijden betekent, vóór alles, dat ieder deze dynamische geest in zijn of haar eigen leven op zijn of haar eigen manier beleeft, in overeenstemming met de eigen hoogste waarden.
