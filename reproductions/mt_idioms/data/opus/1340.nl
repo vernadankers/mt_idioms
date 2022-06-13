@@ -1,0 +1,2 @@
+"IK BEN" zal scheiden de schapen van de geiten van degenen die in deze huizen zijn gebleven en een getuige aan de geiten zijn geweest in de hoop dat zij zouden wensen om een schaap te worden.
+Hoewel de schapen en de bokken in een letterlijke kudde misschien binnen een dag van elkaar gescheiden kunnen worden, neemt de wereldomvattende scheiding van mensen die een vrije wil bezitten, een veel langere tijd in beslag.

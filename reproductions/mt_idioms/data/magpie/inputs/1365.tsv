@@ -1,0 +1,6 @@
+‘ And are you, or are you not, sick as a parrot or over the moon respectively, about increased charges for changing rooms and pitches?’	0 0 0 0 0 0 0 0 1 1 0 1 0 0 0 0 0 0 0 0 0 0 0 0 0	sick as a parrot	figurative	identical	PUNCT CCONJ VERB PRON CCONJ VERB PRON ADV ADJ ADP DET NOUN CCONJ ADP DET NOUN ADV ADP VERB NOUN ADP VERB NOUN CCONJ NOUN
+If I was to break my leg tomorrow I 'd be as sick as a parrot, but it wouldn't be the end of the world.	0 0 0 0 0 0 0 0 0 0 0 0 1 1 0 1 0 0 0 0 0 0 0 0 0	sick as a parrot	figurative	identical	ADP PRON VERB PART VERB ADJ NOUN NOUN PRON VERB VERB ADV ADJ ADP DET NOUN CCONJ PRON VERB VERB DET NOUN ADP DET NOUN
+‘ I 'm sick as a parrot not to be standing,’ said Nigel.	0 0 0 1 1 0 1 0 0 0 0 0 0	sick as a parrot	figurative	identical	PUNCT PRON VERB ADJ ADP DET NOUN ADV PART VERB ADJ VERB PROPN
+‘ You can definitely say he's sick as a parrot — and so am I.’	0 0 0 0 0 0 1 1 0 1 0 0 0 0 0	sick as a parrot	figurative	identical	PUNCT PRON VERB ADV VERB PRON ADJ ADP DET NOUN PUNCT CCONJ ADV VERB PROPN
+As sick as a parrot.	0 1 1 0 1	sick as a parrot	figurative	identical	ADV ADJ ADP DET NOUN
+‘ What, so you 'd be sick as a parrot if we went over the moon together?’	0 0 0 0 0 0 1 1 0 1 0 0 0 0 0 0 0	sick as a parrot	figurative	identical	PUNCT NOUN ADV PRON VERB VERB ADJ ADP DET NOUN ADP PRON VERB ADP DET NOUN NOUN

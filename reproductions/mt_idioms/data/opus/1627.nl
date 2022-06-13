@@ -1,0 +1,2 @@
+In sommige huisgezinnen besluiten man en vrouw wellicht zelfs samen te gaan winkelen, aangezien bij het inkopen - doen twee hoofden beter zijn dan één.
+"We weten allemaal dat twee hoofden zijn beter dan een als het gaat om het oplossen van een probleem of het creëren van een resultaat. Dus stel met een vaste groep van vijf of zes mensen die elke week samenkomen voor het doel van het oplossen van problemen, brainstormen, netwerken, en het aanmoedigen en motiveren van elkaar!

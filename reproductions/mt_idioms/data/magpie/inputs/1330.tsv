@@ -1,0 +1,5 @@
+Have a look and see how many elephants you can see.	0 0 0 0 1 0 0 1 0 0 0	see the elephant	literal	combined-inflection	VERB DET NOUN CCONJ VERB ADV ADJ NOUN PRON VERB VERB
+But first we decided to try to see the elephants.	0 0 0 0 0 0 0 1 0 1	see the elephant	literal	inflection	CCONJ ADV PRON VERB PART VERB PART VERB DET NOUN
+only two weeks ago, I actually saw er elephants chained up by their legs, in a marquee at a British circus.	0 0 0 0 0 0 1 0 1 0 0 0 0 0 0 0 0 0 0 0 0	see the elephant	literal	combined-inflection	ADV NUM NOUN ADV PRON ADV VERB INTJ NOUN VERB PART ADP ADJ NOUN ADP DET NOUN ADP DET ADJ NOUN
+Neither Child nor Douglas - Hamilton ( nor I ) had ever seen Asian elephants in the wild.	0 0 0 0 0 0 0 0 0 0 0 0 1 0 1 0 0 0	see the elephant	literal	combined-inflection	DET PROPN CCONJ PROPN PUNCT PROPN PUNCT CCONJ PRON PUNCT VERB ADV VERB ADJ NOUN ADP DET NOUN
+' See this elephant? '	0 1 0 1 0	see the elephant	literal	combined-other	PUNCT VERB DET NOUN PUNCT

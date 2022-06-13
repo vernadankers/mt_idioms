@@ -1,0 +1,3 @@
+Kauw op het vlees en spoel het weg met koffie..
+We zijn hier om vlees te tonen en de sport te promoten.
+Als je moet gaan... Luister...
