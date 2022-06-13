@@ -1,0 +1,4 @@
+The ayes have it.	0 1 1 1	the ayes have it	figurative	deletion-determiner	DET NOUN VERB PRON
+The ayes have it.	0 1 1 1	the ayes have it	figurative	deletion-determiner	DET NOUN VERB PRON
+I think the ayes have it, the ayes have it.	0 0 0 1 1 1 0 0 0 0	the ayes have it	figurative	deletion-determiner	PRON VERB DET NOUN VERB PRON DET NOUN VERB PRON
+no, I think the ayes have it, the ayes have it.	0 0 0 0 0 0 0 0 1 1 1	the ayes have it	figurative	deletion-determiner	INTJ PRON VERB DET NOUN VERB PRON DET NOUN VERB PRON

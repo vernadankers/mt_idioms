@@ -1,0 +1,2 @@
+Opnieuw wordt voorgesteld het ene gat met het andere te dichten, zodat het heilige budgettaire stabiliteitspact niet wordt aangetast.
+Ik dank evenwel ook het voorzitterschap, omdat wij er de afgelopen weken in zijn geslaagd een lang aanslepend proces -ruim vijfjaar voor het Garantiefonds, bijna twee jaar voor de akkoorden - afte ronden met - zoals ik gisterenavond al in de commissie heb gezegd - een compromis tussen beide zijden.

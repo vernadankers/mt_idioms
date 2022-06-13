@@ -1,0 +1,6 @@
+This sort of thing should be right up your street.	0 0 0 0 0 0 1 1 1 1	right up your street	figurative	identical	DET NOUN ADP NOUN VERB VERB ADV ADP ADJ NOUN
+You 'll like Echo and the Bunnymen, that 'll be right up your street.	0 0 0 0 0 0 0 0 0 0 1 1 1 1	right up your street	figurative	identical	PRON VERB VERB PROPN CCONJ DET PROPN DET VERB VERB ADV ADP ADJ NOUN
+‘ This will be right up your street,’ said Tabitha.	0 0 0 0 1 1 1 1 0 0	right up your street	figurative	dashes	PUNCT DET VERB VERB ADV ADP ADJ NOUN VERB PROPN
+Should be right up your street.’	0 0 1 1 1 1	right up your street	figurative	dashes	VERB VERB ADV ADV ADJ NOUN
+There you are Rupert, right up your streets, isn't it.	0 0 0 0 1 1 1 1 0 0	right up your street	figurative	inflection	ADV PRON VERB PROPN ADV ADV ADJ NOUN VERB PRON
+‘ The assignment should be right up your street.	0 0 0 0 0 1 1 1 1	right up your street	figurative	identical	PUNCT DET NOUN VERB VERB ADV ADP ADJ NOUN

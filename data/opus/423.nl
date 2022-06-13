@@ -1,0 +1,10 @@
+Ha, mijn Famous Last Words zijn eigenlijk altijd gelijk: Jij bedankt voor het interview, en mensen die interesse hebben: neem gerust contact op !!!!
+En "Ik ben in orde" zijn beroemde laatste woorden als het om hoofdwonden gaat.
+Mijn familieleden hebben de laatste woorden Liggen rond in tatters Klinkend absurd Wat ik ook probeer Maar ik hou van jou En dat is alles wat er echt aan doet Als dit goedbaye is als dit goed is Jij heldere glanzende zon Zou de weg voor me lichten Jij was degene Ik voelde me dat ik kon vliegen En ik houd van je Wat op mij wacht Als dit goede Baye is Als dit goedbaye is Wie weet hoe lang we hebben? Of wat zijn er gemaakt van Wie weet of er een plan is of niet Er is onze liefde Ik weet dat er ons isliefde Mijn familieleden hebben de laatste woorden Kon het verhaal nooit vertellen Spinning ongehoord In het donker van de lucht Maar ik hou van jou En dit is onze glorie Als dit tot ziens is Als dit tot ziens is.
+Desondanks kon hij nog landen. Zijn laatste woorden waren 'kaputt' (kapot). Tegenwoordig is hij vooral een karikatuur (in de VS).
+Beroemde laatste woorden van 'n stel muiters.
+Beroemde laatste woorden voor ze zijn lijk vonden.
+Beroemde laatste woorden voor veel slechte beslissingen.
+100 bruiloften Over Anita Onderscheiding blessing zegeningen boek een strand boek voor bruiden celebrant burgerlijk huwelijk schaking ideeën famous last words eerste stappen funeral homohuwelijk cadeaubonnen internationale echtparen interview slot liefde sloten mijl-hoog bruiloft niet godsdienstig hangslot Hangsloten pre-bruiloft voorbereiding Prinses voor een dag quiz kerkelijk huwelijk hetzelfde geslacht shire informatie social media liedjes verrassing bruiloft talky gezicht tips top 10 uniek unieke ceremonie idee unplugged geloften wedding blessings huwelijksfotograaf bruiloft tekenen bruiloft liedjes wedding stories bruiloft trends
+Nu woensdag nemen we je in de volgende aflevering mee naar de wondere wereld van de animatie, en kijken we we naar de verschillende G.I. Joe-tekenfilms.
+Je wilt nu vast de beroemde laatste woorden zeggen.
